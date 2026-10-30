@@ -1,3 +1,62 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐìÕÍ•1…å½ÕÑ™™•Ð°ÕÍ•I•˜°ÕÍ•MÑ…Ñ”ô™É½´€É•…Ðœì)¥µÁ½ÉÐìÉ•…Ñ•A½ÉÑ…°ô™É½´€É•…Ðµ‘½´œì)¥µÁ½ÉÐì™¥Ñ5•¹Ô°ÑåÁ”5•¹Õ½µµ…¹ô™É½´€œ¸½½¹Ñ•áÐµµ•¹Ôµµ½‘•°œì()•áÁ½ÉÐ™Õ¹Ñ¥½¸½¹Ñ•áÑ5•¹Ô¡ìà°ä°Ñ¥Ñ±”°½µµ…¹‘Ì°½¹á•ÕÑ”°½¹±½Í”ôèìàè¹Õµ‰•Èìäè¹Õµ‰•ÈìÑ¥Ñ±”èÍÑÉ¥¹œì½µµ…¹‘Ìè5•¹Õ½µµ…¹‘mtì½¹á•ÕÑ”è€¡½µµ…¹è5•¹Õ½µµ…¹¤€ôøÙ½¥ì½¹±½Í”è€ ¤€ôøÙ½¥ô¤ì(€½¹ÍÐÉ½½Ð€ôÕÍ•I•˜ñ!Q51¥Ù±•µ•¹Ðø¡¹Õ±°¤ì(€½¹ÍÐmÁ…Ñ °Í•ÑA…Ñ¡t€ôÕÍ•MÑ…Ñ”ñÍÑÉ¥¹mtø¡mt¤ì(€½¹ÍÐm¥¹‘¥•Ì°Í•Ñ%¹‘¥•Ít€ôÕÍ•MÑ…Ñ”ñ¹Õµ‰•Émtø¡lÁt¤ì(€½¹ÍÐmÁ½Í¥Ñ¥½¹Ì°Í•ÑA½Í¥Ñ¥½¹Ít€ôÕÍ•MÑ…Ñ”ñÉÉ…äñì±•™Ðè¹Õµ‰•ÈìÑ½Àè¹Õµ‰•Èôøø¡mt¤ì(€½¹ÍÐÁ…¹•±Ìè5•¹Õ½µµ…¹‘mumt€ôm½µµ…¹‘Ítì(€™½È€¡½¹ÍÐ¥½˜Á…Ñ ¤ì½¹ÍÐ¡¥±‘É•¸€ôÁ…¹•±Ì¹…Ð ´Ä¤„¹™¥¹ ¡¥Ñ•´¤€ôø¥Ñ•´¹¥€ôôô¥¤ü¹¡¥±‘É•¸ì¥˜€¡¡¥±‘É•¸¤Á…¹•±Ì¹ÁÕÍ ¡¡¥±‘É•¸¤ìô(€ÕÍ•1…å½ÕÑ™™•Ð  ¤€ôøìÉ½½Ð¹ÕÉÉ•¹Ðü¹™½ÕÌ ¤ìô°mt¤ì(€ÕÍ•1…å½ÕÑ™™•Ð  ¤€ôøì(€€€½¹ÍÐ•±•µ•¹ÑÌ€ôl¸¸¸¡É½½Ð¹ÕÉÉ•¹Ðü¹ÅÕ•ÉåM•±•Ñ½É±°ñ!Q51±•µ•¹Ðø œ¹½¹Ñ•áÐµµ•¹ÔµÁ…¹•°œ¤€üümt¥tì(€€€½¹ÍÐÉ•ÍÕ±ÐèÉÉ…äñì±•™Ðè¹Õµ‰•ÈìÑ½Àè¹Õµ‰•Èôø€ômtì(€€€•±•µ•¹ÑÌ¹™½É…  ¡•±•µ•¹Ð°¥¹‘•à¤€ôøì(€€€€€½¹ÍÐÉ•Ð€ô•±•µ•¹Ð¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤ì(€€€€€¥˜€ …¥¹‘•à¤É•ÍÕ±Ð¹ÁÕÍ ¡™¥Ñ5•¹Ô¡à°ä°É•Ð¹Ý¥‘Ñ °É•Ð¹¡•¥¡Ð°Ý¥¹‘½Ü¹¥¹¹•É]¥‘Ñ °Ý¥¹‘½Ü¹¥¹¹•É!•¥¡Ð¤¤ì(€€€€€•±Í”ì(€€€€€€€½¹ÍÐÁ…É•¹Ð€ô•±•µ•¹ÑÍm¥¹‘•à€´€Åt°É½Ü€ôÁ…É•¹Ð¹ÅÕ•ÉåM•±•Ñ½Èñ!Q51±•µ•¹Ðø m‘…Ñ„µ½µµ…¹µ¥ôˆœ€¬ML¹•Í…Á”¡Á…Ñ¡m¥¹‘•à€´€Åt¤€¬€œ‰tœ¤ì(€€€€€€€½¹ÍÐ‰½Õ¹‘Ì€ôÉ½Üü¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤€üüÁ…É•¹Ð¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤ì(€€€€€€€½¹ÍÐÁÉ•Ù¥½ÕÌ€ôÉ•ÍÕ±Ñm¥¹‘•à€´€Åt°É¥¡Ð€ôÁÉ•Ù¥½ÕÌ¹±•™Ð€¬Á…É•¹Ð¹½™™Í•Ñ]¥‘Ñ €¬€Ðì(€€€€€€€É•ÍÕ±Ð¹ÁÕÍ ¡™¥Ñ5•¹Ô¡É¥¡Ð€¬É•Ð¹Ý¥‘Ñ €ðôÝ¥¹‘½Ü¹¥¹¹•É]¥‘Ñ €´€à€üÉ¥¡Ð€èÁÉ•Ù¥½ÕÌ¹±•™Ð€´É•Ð¹Ý¥‘Ñ €´€Ð°‰½Õ¹‘Ì¹Ñ½À°É•Ð¹Ý¥‘Ñ °É•Ð¹¡•¥¡Ð°Ý¥¹‘½Ü¹¥¹¹•É]¥‘Ñ °Ý¥¹‘½Ü¹¥¹¹•É!•¥¡Ð¤¤ì(€€€€€ô(€€€ô¤ì(€€€¥˜€¡)M=8¹ÍÑÉ¥¹¥™ä¡É•ÍÕ±Ð¤€„ôô)M=8¹ÍÑÉ¥¹¥™ä¡Á½Í¥Ñ¥½¹Ì¤¤Í•ÑA½Í¥Ñ¥½¹Ì¡É•ÍÕ±Ð¤ì(€ô°mà°ä°Á…Ñ °½µµ…¹‘Ì°Á½Í¥Ñ¥½¹Ít¤ì(€ÕÍ•1…å½ÕÑ™™•Ð  ¤€ôøì(€€€½¹ÍÐ±½Í”€ô€¡•Ù•¹ÐèA½¥¹Ñ•ÉÙ•¹Ð¤€ôøì¥˜€ …É½½Ð¹ÕÉÉ•¹Ðü¹½¹Ñ…¥¹Ì¡•Ù•¹Ð¹Ñ…É•Ð…Ì9½‘”¤¤½¹±½Í” ¤ìôì(€€€½¹ÍÐ‘¥Íµ¥ÍÌ€ô€ ¤€ôø½¹±½Í” ¤ì(€€€Ý¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•É‘½Ý¸œ°±½Í”°ÑÉÕ”¤ìÝ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È É•Í¥é”œ°‘¥Íµ¥ÍÌ¤ì(€€€É•ÑÕÉ¸€ ¤€ôøìÝ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•É‘½Ý¸œ°±½Í”°ÑÉÕ”¤ìÝ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È É•Í¥é”œ°‘¥Íµ¥ÍÌ¤ìôì(€ô°m½¹±½Í•t¤ì(€½¹ÍÐ½Á•¸€ô€¡±•Ù•°è¹Õµ‰•È°½µµ…¹è5•¹Õ½µµ…¹°¥¹‘•àè¹Õµ‰•È¤€ôøì(€€€Í•Ñ%¹‘¥•Ì¡l¸¸¹¥¹‘¥•Ì¹Í±¥” À°±•Ù•°¤°¥¹‘•át¤ì(€€€Í•ÑA…Ñ ¡l¸¸¹Á…Ñ ¹Í±¥” À°±•Ù•°¤°€¸¸¸¡½µµ…¹¹¡¥±‘É•¸€üm½µµ…¹¹¥‘t€èmt¥t¤ì(€ôì(€½¹ÍÐ­•å‘½Ý¸€ô€¡•Ù•¹ÐèI•…Ð¹-•å‰½…É‘Ù•¹Ð¤€ôøì(€€€¥˜€¡•Ù•¹Ð¹¹…Ñ¥Ù•Ù•¹Ð¹¥Í½µÁ½Í¥¹œ¤É•ÑÕÉ¸ì(€€€½¹ÍÐ±•Ù•°€ôÁ…¹•±Ì¹±•¹Ñ €´€Ä°Á…¹•°€ôÁ…¹•±Ím±•Ù•±t°¥¹‘•à€ô¥¹‘¥•Ím±•Ù•±t€üü€À°½µµ…¹€ôÁ…¹•±m¥¹‘•átì(€€€¥˜€¡•Ù•¹Ð¹­•ä€ôôô€Í…Á”œñð•Ù•¹Ð¹­•ä€ôôô€Q…ˆœ¤ì•Ù•¹Ð¹ÁÉ•Ù•¹Ñ•™…Õ±Ð ¤ì•Ù•¹Ð¹ÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤ì½¹±½Í” ¤ìÉ•ÑÕÉ¸ìô(€€€¥˜€¡•Ù•¹Ð¹­•ä€ôôô€ÉÉ½Ý½Ý¸œñð•Ù•¹Ð¹­•ä€ôôô€ÉÉ½ÝUÀœñð•Ù•¹Ð¹­•ä€ôôô€!½µ”œñð•Ù•¹Ð¹­•ä€ôôô€¹œ¤ì(€€€€€•Ù•¹Ð¹ÁÉ•Ù•¹Ñ•™…Õ±Ð ¤ì•Ù•¹Ð¹ÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤ì(€€€€€½¹ÍÐ¹•áÐ€ô•Ù•¹Ð¹­•ä€ôôô€!½µ”œ€ü€À€è•Ù•¹Ð¹­•ä€ôôô€¹œ€üÁ…¹•°¹±•¹Ñ €´€Ä€è€¡¥¹‘•à€¬€¡•Ù•¹Ð¹­•ä€ôôô€ÉÉ½Ý½Ý¸œ€ü€Ä€è€´Ä¤€¬Á…¹•°¹±•¹Ñ ¤€”Á…¹•°¹±•¹Ñ ì(€€€€€Í•Ñ%¹‘¥•Ì¡l¸¸¹¥¹‘¥•Ì¹Í±¥” À°±•Ù•°¤°¹•áÑt¤ì(€€€€€É½½Ð¹ÕÉÉ•¹Ðü¹ÅÕ•ÉåM•±•Ñ½É±° œ¹½¹Ñ•áÐµµ•¹ÔµÁ…¹•°œ¥m±•Ù•±tü¹ÅÕ•ÉåM•±•Ñ½É±° ‰ÕÑÑ½¸œ¥m¹•áÑtü¹ÍÉ½±±%¹Ñ½Y¥•Ü¡ì‰±½¬è€¹•…É•ÍÐœô¤ì(€€€ô•±Í”¥˜€¡•Ù•¹Ð¹­•ä€ôôô€ÉÉ½Ý1•™Ðœ¤ì•Ù•¹Ð¹ÁÉ•Ù•¹Ñ•™…Õ±Ð ¤ì•Ù•¹Ð¹ÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤ìÍ•ÑA…Ñ ¡Á…Ñ ¹Í±¥” À°€´Ä¤¤ìô(€€€•±Í”¥˜€ ¡•Ù•¹Ð¹­•ä€ôôô€ÉÉ½ÝI¥¡Ðœñð•Ù•¹Ð¹­•ä€ôôô€¹Ñ•Èœñð•Ù•¹Ð¹­•ä€ôôô€œ€œ¤€˜˜½µµ…¹¤ì(€€€€€•Ù•¹Ð¹ÁÉ•Ù•¹Ñ•™…Õ±Ð ¤ì•Ù•¹Ð¹ÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤ì(€€€€€¥˜€¡½µµ…¹¹¡¥±‘É•¸€˜˜€…½µµ…¹¹É•…Í½¸¤ìÍ•ÑA…Ñ ¡l¸¸¹Á…Ñ ¹Í±¥” À°±•Ù•°¤°½µµ…¹¹¥‘t¤ìÍ•Ñ%¹‘¥•Ì¡l¸¸¹¥¹‘¥•Ì¹Í±¥” À°±•Ù•°€¬€Ä¤°€Át¤ìô(€€€€€•±Í”¥˜€¡•Ù•¹Ð¹­•ä€„ôô€ÉÉ½ÝI¥¡Ðœ¤½¹á•ÕÑ”¡½µµ…¹¤ì(€€€ô(€ôì(€É•ÑÕÉ¸É•…Ñ•A½ÉÑ…° ñ‘¥ØÉ•˜õíÉ½½Ñô±…ÍÍ9…µ”ô‰½¹Ñ•áÐµµ•¹ÔµÉ½½ÐˆÑ…‰%¹‘•àõì´Åô½¹-•å½Ý¸õí­•å‘½Ý¹ô½¹½¹Ñ•áÑ5•¹Ôõì¡•Ù•¹Ð¤€ôø•Ù•¹Ð¹ÁÉ•Ù•¹Ñ•™…Õ±Ð ¥ôø(€€€íÁ…¹•±Ì¹µ…À ¡¥Ñ•µÌ°±•Ù•°¤€ôø€ñ‘¥Ø­•äõí±•Ù•±ôÉ½±”ô‰µ•¹Ôˆ…É¥„µ±…‰•°õí±•Ù•°€ü€Ÿ–¶C¢>s–6Tœ€èÑ¥Ñ±•ô…É¥„µ…Ñ¥Ù•‘•Í•¹‘…¹Ðõìµ•¹Ô´œ€¬±•Ù•°€¬€œ´œ€¬€¡¥¹‘¥•Ím±•Ù•±t€üü€À¥ô±…ÍÍ9…µ”ô‰½¹Ñ•áÐµµ•¹ÔµÁ…¹•°ˆÍÑå±”õíì±•™ÐèÁ½Í¥Ñ¥½¹Ím±•Ù•±tü¹±•™Ð€üüà°Ñ½ÀèÁ½Í¥Ñ¥½¹Ím±•Ù•±tü¹Ñ½À€üüä°Ù¥Í¥‰¥±¥ÑäèÁ½Í¥Ñ¥½¹Ím±•Ù•±t€ü€Ù¥Í¥‰±”œ€è€¡¥‘‘•¸œõôø(€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰½¹Ñ•áÐµµ•¹Ôµ…ÁÑ¥½¸ˆùí±•Ù•°€üÁ…¹•±Ím±•Ù•°€´€Åt¹™¥¹ ¡¥Ñ•´¤€ôø¥Ñ•´¹¥€ôôôÁ…Ñ¡m±•Ù•°€´€Åt¤ü¹±…‰•°€èÑ¥Ñ±•ôð½‘¥Øø(€€€€€í¥Ñ•µÌ¹µ…À ¡½µµ…¹°¥¹‘•à¤€ôø€ñ‰ÕÑÑ½¸ÑåÁ”ô‰‰ÕÑÑ½¸ˆÉ½±”ô‰µ•¹Õ¥Ñ•´ˆ¥õìµ•¹Ô´œ€¬±•Ù•°€¬€œ´œ€¬¥¹‘•áô‘…Ñ„µ½µµ…¹µ¥õí½µµ…¹¹¥‘ô­•äõí½µµ…¹¹¥‘ô…É¥„µ‘¥Í…‰±•õì„…½µµ…¹¹É•…Í½¹ô…É¥„µ¡…ÍÁ½ÁÕÀõí½µµ…¹¹¡¥±‘É•¸€ü€µ•¹Ôœ€èÕ¹‘•™¥¹•‘ô…É¥„µ•áÁ…¹‘•õí½µµ…¹¹¡¥±‘É•¸€üÁ…Ñ¡m±•Ù•±t€ôôô½µµ…¹¹¥€èÕ¹‘•™¥¹•‘ôÑ¥Ñ±”õí½µµ…¹¹É•…Í½¹ô±…ÍÍ9…µ”õíl¡¥¹‘¥•Ím±•Ù•±t€üü€À¤€ôôô¥¹‘•à€ü€¥Ìµ™½ÕÍ•œ€è€œœ°½µµ…¹¹‘…¹•È€ü€¥Ìµ‘…¹•Èœ€è€œœ°¥¹‘•à€˜˜½µ´V¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅææBç6V7F–öâÓÒ—FV×5¶–æFW‚ÒÒç6V7F–öâòw7F'G2×6V7F–öâr¢ruÒæ¦ö–â‚rr—Òöåö–çFW$VçFW#×²‚’Óâ÷Vâ†ÆWfVÂÂ6öÖÖæBÂ–æFW‚—ÒöäÖ÷W6TF÷vã×²†WfVçB’ÓâWfVçBç&WfVçDFVfVÇB‚—Òöä6Æ–6³×²‚’Óâ²–b†6öÖÖæBæ6†–ÆG&Vâbb6öÖÖæBç&V6öâ’²÷Vâ†ÆWfVÂÂ6öÖÖæBÂ–æFW‚“²6WD–æF–6W2…²ââæ–æF–6W2ç6Æ–6RƒÂÆWfVÂ’Â–æFW‚ÂÒ“²ÒVÇ6RöäW†V7WFR†6öÖÖæB“²×Óà¢Ç7â6Æ74æÖSÒ&6öçFW‡BÖ6öÖÖæBÖ–6öâ"&–Ö†–FFVãÒ'G'VR#ç¶6öÖÖæBæ–6öâóò|+rwÓÂ÷7ããÇ7â6Æ74æÖSÒ&6öçFW‡BÖ6öÖÖæBÖÆ&VÂ#ç¶6öÖÖæBæÆ&VÇ×¶6öÖÖæBç&V6öâbbÇ6ÖÆÃç¶6öÖÖæBç&V6öçÓÂ÷6ÖÆÃçÓÂ÷7ããÇ7â6Æ74æÖSÒ&6öçFW‡BÖ6öÖÖæBÖ¶W’#ç¶6öÖÖæBæ6†–ÆG&Vâò~(¢r¢6öÖÖæBç6†÷'F7WGÓÂ÷7ãà¢Âö'WGFöãâ—Ð¢ÂöF—câ—Ð¢ÂöF—câÂv–æF÷ræFö7VÖVçBæ&öG’“°§Ð
+import { useLayoutEffect, useRef, useState } from 'react';
+import { createPortal } from 'react-dom';
+import { fitMenu, type MenuCommand } from './context-menu-model';
+
+export function ContextMenu({ x, y, title, commands, onExecute, onClose }: { x: number; y: number; title: string; commands: MenuCommand[]; onExecute: (command: MenuCommand) => void; onClose: () => void }) {
+  const root = useRef<HTMLDivElement>(null);
+  const [path, setPath] = useState<string[]>([]);
+  const [indices, setIndices] = useState<number[]>([0]);
+  const [positions, setPositions] = useState<Array<{ left: number; top: number }>>([]);
+  const panels: MenuCommand[][] = [commands];
+  for (const id of path) { const children = panels.at(-1)!.find((item) => item.id === id)?.children; if (children) panels.push(children); }
+  useLayoutEffect(() => { root.current?.focus(); }, []);
+  useLayoutEffect(() => {
+    const elements = [...(root.current?.querySelectorAll<HTMLElement>('.context-menu-panel') ?? [])];
+    const result: Array<{ left: number; top: number }> = [];
+    elements.forEach((element, index) => {
+      const rect = element.getBoundingClientRect();
+      if (!index) result.push(fitMenu(x, y, rect.width, rect.height, window.innerWidth, window.innerHeight));
+      else {
+        const parent = elements[index - 1], row = parent.querySelector<HTMLElement>('[data-command-id="' + CSS.escape(path[index - 1]) + '"]');
+        const bounds = row?.getBoundingClientRect() ?? parent.getBoundingClientRect();
+        const previous = result[index - 1], right = previous.left + parent.offsetWidth + 4;
+        result.push(fitMenu(right + rect.width <= window.innerWidth - 8 ? right : previous.left - rect.width - 4, bounds.top, rect.width, rect.height, window.innerWidth, window.innerHeight));
+      }
+    });
+    if (JSON.stringify(result) !== JSON.stringify(positions)) setPositions(result);
+  }, [x, y, path, commands, positions]);
+  useLayoutEffect(() => {
+    const close = (event: PointerEvent) => { if (!root.current?.contains(event.target as Node)) onClose(); };
+    const dismiss = () => onClose();
+    window.addEventListener('pointerdown', close, true); window.addEventListener('resize', dismiss);
+    return () => { window.removeEventListener('pointerdown', close, true); window.removeEventListener('resize', dismiss); };
+  }, [onClose]);
+  const open = (level: number, command: MenuCommand, index: number) => {
+    setIndices([...indices.slice(0, level), index]);
+    setPath([...path.slice(0, level), ...(command.children ? [command.id] : [])]);
+  };
+  const keydown = (event: React.KeyboardEvent) => {
+    if (event.nativeEvent.isComposing) return;
+    const level = panels.length - 1, panel = panels[level], index = indices[level] ?? 0, command = panel[index];
+    if (event.key === 'Escape' || event.key === 'Tab') { event.preventDefault(); event.stopPropagation(); onClose(); return; }
+    if (event.key === 'ArrowDown' || event.key === 'ArrowUp' || event.key === 'Home' || event.key === 'End') {
+      event.preventDefault(); event.stopPropagation();
+      const next = event.key === 'Home' ? 0 : event.key === 'End' ? panel.length - 1 : (index + (event.key === 'ArrowDown' ? 1 : -1) + panel.length) % panel.length;
+      setIndices([...indices.slice(0, level), next]);
+      root.current?.querySelectorAll('.context-menu-panel')[level]?.querySelectorAll('button')[next]?.scrollIntoView({ block: 'nearest' });
+    } else if (event.key === 'ArrowLeft') { event.preventDefault(); event.stopPropagation(); setPath(path.slice(0, -1)); }
+    else if ((event.key === 'ArrowRight' || event.key === 'Enter' || event.key === ' ') && command) {
+      event.preventDefault(); event.stopPropagation();
+      if (command.children && !command.reason) { setPath([...path.slice(0, level), command.id]); setIndices([...indices.slice(0, level + 1), 0]); }
+      else if (event.key !== 'ArrowRight') onExecute(command);
+    }
+  };
+  return createPortal(<div ref={root} className="context-menu-root" tabIndex={-1} onKeyDown={keydown} onContextMenu={(event) => event.preventDefault()}>
+    {panels.map((items, level) => <div key={level} role="menu" aria-label={level ? 'å­èœå•' : title} aria-activedescendant={'menu-' + level + '-' + (indices[level] ?? 0)} className="context-menu-panel" style={{ left: positions[level]?.left ?? x, top: positions[level]?.top ?? y, visibility: positions[level] ? 'visible' : 'hidden' }}>
+      <div className="context-menu-caption">{level ? panels[level - 1].find((item) => item.id === path[level - 1])?.label : title}</div>
+      {items.map((command, index) => <button type="button" role="menuitem" id={'menu-' + level + '-' + index} data-command-id={command.id} key={command.id} aria-disabled={!!command.reason} aria-haspopup={command.children ? 'menu' : undefined} aria-expanded={command.children ? path[level] === command.id : undefined} title={command.reason} className={[(indices[level] ?? 0) === index ? 'is-focused' : '', command.danger ? 'is-danger' : '', index && command.section !== items[index - 1].section ? 'starts-section' : ''].join(' ')} onPointerEnter={() => open(level, command, index)} onMouseDown={(event) => event.preventDefault()} onClick={() => { if (command.children && !command.reason) { open(level, command, index); setIndices([...indices.slice(0, level), index, 0]); } else onExecute(command); }}>
+        <span className="context-command-icon" aria-hidden="true">{command.icon ?? 'Â·'}</span><span className="context-command-label">{command.label}{command.reason && <small>{command.reason}</small>}</span><span className="context-command-key">{command.children ? 'â€º' : command.shortcut}</span>
+      </button>)}
+    </div>)}
+  </div>, window.document.body);
+}

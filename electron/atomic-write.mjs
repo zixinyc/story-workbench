@@ -1,2 +1,26 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐìµ­‘¥È°É•¹…µ”°É´°ÝÉ¥Ñ•¥±”ô™É½´€¹½‘”é™Ì½ÁÉ½µ¥Í•Ìœì)¥µÁ½ÉÐÁ…Ñ ™É½´€¹½‘”éÁ…Ñ œì()•áÁ½ÉÐ…Íå¹Œ™Õ¹Ñ¥½¸É•Á±…•M…™•±ä¡Ñ…É•Ð°‰åÑ•Ì¤ì(€…Ý…¥Ðµ­‘¥È¡Á…Ñ ¹‘¥É¹…µ”¡Ñ…É•Ð¤°ìÉ•ÕÉÍ¥Ù”èÑÉÕ”ô¤ì(€½¹ÍÐÍÕ™™¥à€ô€‘íÁÉ½•ÍÌ¹Á¥‘ô´‘í…Ñ”¹¹½Ü ¥ô´‘í5…Ñ ¹É…¹‘½´ ¤¹Ñ½MÑÉ¥¹œ ÌØ¤¹Í±¥” È¥õ€ì(€½¹ÍÐÑ•µÀ€ô€‘íÑ…É•Ñô¹ÑµÀ¸‘íÍÕ™™¥áõ€ì(€½¹ÍÐÁÉ•Ù¥½ÕÌ€ô€‘íÑ…É•Ñô¹ÁÉ•Ù¥½ÕÌ¸‘íÍÕ™™¥áõ€ì(€…Ý…¥ÐÝÉ¥Ñ•¥±”¡Ñ•µÀ°‰åÑ•Ì¤ì(€ÑÉäì(€€€…Ý…¥ÐÉ•¹…µ”¡Ñ…É•Ð°ÁÉ•Ù¥½ÕÌ¤ì(€ô…Ñ €¡•ÉÉ½È¤ì(€€€¥˜€¡•ÉÉ½È¹½‘”€„ôô€9=9Pœ¤ì(€€€€€…Ý…¥ÐÉ´¡Ñ•µÀ°ì™½É”èÑÉÕ”ô¤ì(€€€€€Ñ¡É½Ü•ÉÉ½Èì(€€€ô(€ô(€ÑÉäì(€€€…Ý…¥ÐÉ•¹…µ”¡Ñ•µÀ°Ñ…É•Ð¤ì(€ô…Ñ €¡•ÉÉ½È¤ì(€€€ÑÉäì…Ý…¥ÐÉ•¹…µ”¡ÁÉ•Ù¥½ÕÌ°Ñ…É•Ð¤ìô…Ñ íô(€€€…Ý…¥ÐÉ´¡Ñ•µÀ°ì™½É”èÑÉÕ”ô¤ì(€€€Ñ¡É½Ü•ÉÉ½Èì(€ô(€…Ý…¥ÐÉ´¡ÁÉ•Ù¥½ÕÌ°ì™½É”èÑÉÕ”ô¤¹…Ñ   ¤€ôøíô¤ì)ô(
+import { mkdir, rename, rm, writeFile } from 'node:fs/promises';
+import path from 'node:path';
+
+export async function replaceSafely(target, bytes) {
+  await mkdir(path.dirname(target), { recursive: true });
+  const suffix = `${process.pid}-${Date.now()}-${Math.random().toString(36).slice(2)}`;
+  const temp = `${target}.tmp.${suffix}`;
+  const previous = `${target}.previous.${suffix}`;
+  await writeFile(temp, bytes);
+  try {
+    await rename(target, previous);
+  } catch (error) {
+    if (error.code !== 'ENOENT') {
+      await rm(temp, { force: true });
+      throw error;
+    }
+  }
+  try {
+    await rename(temp, target);
+  } catch (error) {
+    try { await rename(previous, target); } catch {}
+    await rm(temp, { force: true });
+    throw error;
+  }
+  await rm(previous, { force: true }).catch(() => {});
+}

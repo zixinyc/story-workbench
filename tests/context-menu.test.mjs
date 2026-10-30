@@ -1,88 +1,235 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞì‰Õ¥±‘]½É­ÍÁ…•5•¹Ô°µ•¹ÕQ¥Ñ±”ô™É½´€œ¸¸½ÍÉŒ½Õ¤½İ½É­ÍÁ…”µµ•¹Ô¹ÑÌœì)¥µÁ½ÉĞì½µµ…¹‘½É-•ä°‘•™•ÉQ½9…Ñ¥Ù•5•¹Ô°™¥Ñ5•¹Ôô™É½´€œ¸¸½ÍÉŒ½Õ¤½½¹Ñ•áĞµµ•¹Ôµµ½‘•°¹ÑÌœì)¥µÁ½ÉĞì¡•­±¥Á‰½…É‘I•™•É•¹•Ì°‘ÕÁ±¥…Ñ•A…É…É…Á °‘ÕÁ±¥…Ñ•M±¥”°Ù…±¥‘…Ñ•±¥Á‰½…Éô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½½¹Ñ•áĞµ±¥Á‰½…É¹ÑÌœì()½¹ÍĞ…±±Ì€ômtì)½¹ÍĞ…Ñ¥½¸€ô€¡¹…µ”¤€ôø€ ¤€ôøì…±±Ì¹ÁÕÍ ¡¹…µ”¤ìôì)½¹ÍĞQ%=9L€ôì(€Õ¹‘¼è…Ñ¥½¸ Õ¹‘¼œ¤°É•‘¼è…Ñ¥½¸ É•‘¼œ¤°ÕĞè…Ñ¥½¸ ÕĞœ¤°½Áäè…Ñ¥½¸ ½Áäœ¤°Á…ÍÑ”è…Ñ¥½¸ Á…ÍÑ”œ¤°(€‘•±•Ñ•M•±•Ñ¥½¸è…Ñ¥½¸ ‘•±•Ñ•M•±•Ñ¥½¸œ¤°‘•±•Ñ•A…É…É…Á è…Ñ¥½¸ ‘•±•Ñ•A…É…É…Á œ¤°(€½¹Ù•ÉĞè€ ¤€ôøì…±±Ì¹ÁÕÍ  ½¹Ù•ÉĞœ¤ìô°µ½Ù•Q½É½ÕÀè€¡¥¤€ôøì…±±Ì¹ÁÕÍ  µ½Ù”èœ€¬¥¤ìô°(€µ½Ù•A…É…É…Á è€¡¤€ôøì…±±Ì¹ÁÕÍ  µ½Ù•A…É…É…Á èœ€¬¤ìô°Ñ½±•½±±…ÁÍ”è…Ñ¥½¸ ½±±…ÁÍ”œ¤°(€¥¹Í•ÉÑ%µ…”è…Ñ¥½¸ ¥¹Í•ÉÑ%µ…”œ¤°¥¹Í•ÉÑY¥‘•¼è…Ñ¥½¸ ¥¹Í•ÉÑY¥‘•¼œ¤°¥¹Í•ÉÑÕ‘¥¼è€¡Ü¤€ôøì…±±Ì¹ÁÕÍ  …Õ‘¥¼èœ€¬Ü¤ìô°(€¥µÁ½ÉÑÍÍ•Ğè…Ñ¥½¸ ¥µÁ½ÉĞœ¤°…ÁÁ±åÍÍ•Ğè€¡Ğ¤€ôøì…±±Ì¹ÁÕÍ  …ÁÁ±äèœ€¬Ğ¤ìô°(€½ÁåÍÍ•Ğè…Ñ¥½¸ ½ÁåÍÍ•Ğœ¤°Á…ÍÑ•ÍÍ•Ğè…Ñ¥½¸ Á…ÍÑ•ÍÍ•Ğœ¤°É•µ½Ù•ÍÍ•Ğè…Ñ¥½¸ É•µ½Ù•ÍÍ•Ğœ¤°(€±…å•Éhè€¡¤€ôøì…±±Ì¹ÁÕÍ  ±…å•Éhèœ€¬¤ìô°Ñ½±•1…å•É1½¬è…Ñ¥½¸ ±½¬œ¤°(€‘ÕÁ±¥…Ñ•1…å•Èè…Ñ¥½¸ ‘ÕÁ1…å•Èœ¤°É•µ½Ù•1…å•Èè…Ñ¥½¸ É•µ½Ù•1…å•Èœ¤°)ôì()™Õ¹Ñ¥½¸™…ÑÌ¡½Ù•ÉÉ¥‘•Ì€ôíô¤ì(€É•ÑÕÉ¸ì(€€€…¹U¹‘¼èÑÉÕ”°…¹I•‘¼èÑÉÕ”°¡…ÍQ•áÑM•±•Ñ¥½¸è™…±Í”°Á…É…É…Á¡%¹‘•àè€À°Á…É…É…Á¡½Õ¹Ğè€Ì°(€€€É½ÕÁ½Õ¹Ğè€À°½±±…ÁÍ•è™…±Í”°¥¹É½ÕÀè™…±Í”°µ½‘”è¹Õ±°°¡…ÍMÁ•…­•Èè™…±Í”°(€€€±…å•É1½­•è™…±Í”°±…å•ÉÑQ½Àè™…±Í”°±…å•ÉÑ	½ÑÑ½´è™…±Í”°(€€€…ÍÍ•Ñ-¥¹è¹Õ±°°…ÍÍ•ÑI•™•É•¹•è™…±Í”°…¹A…ÍÑ”èÑÉÕ”°(€€€€¸¸¹½Ù•ÉÉ¥‘•Ì°(€ôì)ô)½¹ÍĞÑ…É•Ğ€ô€¡½Ù•ÉÉ¥‘•Ì€ôíô¤€ôø€¡ì­¥¹è€Á…É…É…Á œ°ÁÉ½©•Ñ%è€ÀÄœ°¡…ÁÑ•É%è€ŒÄœ°Á…É…É…Á¡%è€Á…É„´Äœ°€¸¸¹½Ù•ÉÉ¥‘•Ìô¤ì)½¹ÍĞ¥‘Ì€ô€¡µ•¹Ô¤€ôøµ•¹Ô¹µ…À ¡Œ¤€ôøŒ¹¥¤ì)½¹ÍĞ™¥¹€ô€¡µ•¹Ô°¥¤€ôøµ•¹Ô¹™¥¹ ¡Œ¤€ôøŒ¹¥€ôôô¥¤ì)½¹ÍĞ™±…Ğ€ô€¡µ•¹Ô¤€ôøµ•¹Ô¹™±…Ñ5…À ¡Œ¤€ôømŒ°€¸¸¸¡Œ¹¡¥±‘É•¸€üümt¥t¤ì()Ñ•ÍĞ Ÿš¶šZšº×¢B÷¢>s–6W–>«š>C’úor–º{–>¿R£j–~ë†’â;–¾ç¢Æ‡šN7’öpœ°€ ¤€ôøì(€½¹ÍĞµ•¹Ô€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ ¤°™…ÑÌ ¤°Q%=9L°mt¤ì(€…ÍÍ•ÉĞ¹½¬¡¥‘Ì¡µ•¹Ô¤¹¥¹±Õ‘•Ì Õ¹‘¼œ¤¤ì(€…ÍÍ•ÉĞ¹½¬¡¥‘Ì¡µ•¹Ô¤¹¥¹±Õ‘•Ì ‘•±•Ñ”œ¤°€Ÿšº×¢B÷¢>s–6W–ş¦†ïšr$‹–"ƒ¦f“š¶“šºÔˆœ¤ì(€…ÍÍ•ÉĞ¹½¬ …¥‘Ì¡µ•¹Ô¤¹¥¹±Õ‘•Ì ‘•±•Ñ”µÍ•±•Ñ¥½¸œ¤°€Ÿš^ƒ¦'–2ëš^Û’â7–êS–ë:À‹–"ƒ¦f“¦'’â·šZ–¶\ˆœ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡µ•¹ÕQ¥Ñ±”¡Ñ…É•Ğ ¤°™…ÑÌ ¤¤°€Ÿ²°€ÄƒšºÔœ¤ì)ô¤ì()Ñ•ÍĞ Ÿšr'šZ–¶_¦'–2ëš^ÛšRç’âëšN7’ös¦'–2ë¾ò3’âS’â7–7š>C’úo–"ƒ¦f“š¶“šºÔœ°€ ¤€ôøì(€½¹ÍĞµ•¹Ô€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ¡ì­¥¹è€Ñ•áĞœô¤°™…ÑÌ¡ì¡…ÍQ•áÑM•±•Ñ¥½¸èÑÉÕ”ô¤°Q%=9L°mt¤ì(€…ÍÍ•ÉĞ¹½¬¡¥‘Ì¡µ•¹Ô¤¹¥¹±Õ‘•Ì ‘•±•Ñ”µÍ•±•Ñ¥½¸œ¤¤ì(€…ÍÍ•ÉĞ¹½¬ …¥‘Ì¡µ•¹Ô¤¹¥¹±Õ‘•Ì ‘•±•Ñ”œ¤¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡™¥¹¡µ•¹Ô°€ÕĞœ¤¹±…‰•°°€Ÿ–&«–"¦'’â·šZ–¶\œ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡™¥¹¡µ•¹Ô°€½Áäœ¤¹±…‰•°°€Ÿ–’7–"Û¦'’â·šZ–¶\œ¤ì)ô¤ì()Ñ•ÍĞ Ÿ®ƒ¢*¦š[–Âûšº×¢B÷jš:K–ê?¢úçV3šR£–æÛîg–ë–ß’öO–:–n€œ°€ ¤€ôøì(€½¹ÍĞ™¥ÉÍĞ€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ¡ìÁ…É…É…Á¡%è€Á…É„´Äœô¤°™…ÑÌ¡ìÁ…É…É…Á¡%¹‘•àè€À°Á…É…É…Á¡½Õ¹Ğè€Ìô¤°Q%=9L°mt¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥¹¡™¥ÉÍĞ°€µ½Ù”µÕÀœ¤¹É•…Í½¸°€¿²³’âšºÔ¼¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡™¥¹¡™¥ÉÍĞ°€µ½Ù”µ‘½İ¸œ¤¹É•…Í½¸°Õ¹‘•™¥¹•¤ì(€½¹ÍĞ±…ÍĞ€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ¡ìÁ…É…É…Á¡%è€Á…É„´Ìœô¤°™…ÑÌ¡ìÁ…É…É…Á¡%¹‘•àè€È°Á…É…É…Á¡½Õ¹Ğè€Ìô¤°Q%=9L°mt¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥¹¡±…ÍĞ°€µ½Ù”µ‘½İ¸œ¤¹É•…Í½¸°€¿šr–B;’âšºÔ¼¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡™¥¹¡±…ÍĞ°€µ½Ù”µÕÀœ¤¹É•…Í½¸°Õ¹‘•™¥¹•¤ì)ô¤ì()Ñ•ÍĞ ŸšÊ‡šr'–ŞËšr'îš^Ø‹–*ƒ–—–ŞËšr'î‹šR£–æÛ¢¾Óšb;–:–nƒ¾òošr'îš^Û¦Cî–"_–èœ°€ ¤€ôøì(€½¹ÍĞ¹½¹”€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ ¤°™…ÑÌ ¤°Q%=9L°mt¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥¹¡¹½¹”°€µ½Ù”µÑ¼µÉ½ÕÀœ¤¹É•…Í½¸°€¿¢şcšÊ‡šr'šº×¢B÷î¼¤ì(€½¹ÍĞÍ½µ”€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ¡ìÉ½ÕÁ%è€œÄœô¤°™…ÑÌ¡ì¥¹É½ÕÀèÑÉÕ”ô¤°Q%=9L°mì¥è€œÄœ°¹…µ”è€Ÿš^—–âàœô°ì¥è€œÈœ°¹…µ”è€Ÿ–n{–şœõt¤ì(€½¹ÍĞÍÕ‰µ•¹Ô€ô™¥¹¡Í½µ”°€µ½Ù”µÑ¼µÉ½ÕÀœ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡ÍÕ‰µ•¹Ô¹É•…Í½¸°Õ¹‘•™¥¹•¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡ÍÕ‰µ•¹Ô¹¡¥±‘É•¸¹µ…À ¡Œ¤€ôøŒ¹±…‰•°¤°lŸ²°€Äƒîƒ
-Üƒš^—–âàœ°€Ÿ²°€Èƒîƒ
-Üƒ–n{–şt¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡ÍÕ‰µ•¹Ô¹¡¥±‘É•¹lÁt¹É•…Í½¸°€¿–ŞË–r£¢¾—î¼¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡ÍÕ‰µ•¹Ô¹¡¥±‘É•¹lÅt¹É•…Í½¸°Õ¹‘•™¥¹•¤ì)ô¤ì()Ñ•ÍĞ Ÿ–*ƒ–—–ŞËšr'î–>«’ösR£’ê;–>Ï¦R»¢şg’âšº×¾ò3’â7–â›–—–’k¦$œ°€ ¤€ôøì(€½¹ÍĞµ•¹Ô€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ¡ìÁ…É…É…Á¡%è€½¹±äµÑ¡¥Ìœô¤°™…ÑÌ ¤°Q%=9L°mì¥è€œäœ°¹…µ”è€Ÿn»š‚îœõt¤ì(€…±±Ì¹±•¹Ñ €ô€Àì(€™¥¹¡µ•¹Ô°€µ½Ù”µÑ¼µÉ½ÕÀœ¤¹¡¥±‘É•¹lÁt¹ÉÕ¸ ¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡…±±Ì°lµ½Ù”éœät¤ì)ô¤ì()Ñ•ÍĞ Ÿšr«–*ƒ–—îš^Û¢3šf¿¦~Ï’æC–—–>šR£¾ò3š>C’ë–#–*ƒ–—îœ°€ ¤€ôøì(€½¹ÍĞ½ÕÑÍ¥‘”€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ ¤°™…ÑÌ¡ì¥¹É½ÕÀè™…±Í”ô¤°Q%=9L°mt¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥¹¡™±…Ğ¡½ÕÑÍ¥‘”¤°€¥¹Í•ÉĞµ…Õ‘¥¼µ‰´œ¤¹É•…Í½¸°€¿–#–*ƒ–—î¼¤ì(€½¹ÍĞ¥¹Í¥‘”€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ¡ìÉ½ÕÁ%è€œÄœô¤°™…ÑÌ¡ì¥¹É½ÕÀèÑÉÕ”ô¤°Q%=9L°mt¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡™¥¹¡™±…Ğ¡¥¹Í¥‘”¤°€¥¹Í•ÉĞµ…Õ‘¥¼µ‰´œ¤¹É•…Í½¸°Õ¹‘•™¥¹•¤ì)ô¤ì()Ñ•ÍĞ Ÿš*c–>ƒšZš†#¢Ş¦j?–öO–&7š*c–>ƒ*Ûšœ°€ ¤€ôøì(€½¹ÍĞ½Á•¸€ô‰Õ¥±‘]½É¬V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅç76TÖVçR‡F&vWB‡²w&÷W–C¢vsrÒ’Âf7G2‡²6öÆÆ6VC¢fÇ6RÒ’Â5D”ôå2ÂµÒ“°¢76W'BæWVÂ†f–æB†÷VâÂwFövvÆRÖ6öÆÆ6Rr’æÆ&VÂÂ~h©XújÚN{¸Br“°¢6öç7B6‡WBÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²w&÷W–C¢vsrÒ’Âf7G2‡²6öÆÆ6VC¢G'VRÒ’Â5D”ôå2ÂµÒ“°¢76W'BæWVÂ†f–æB‡6‡WBÂwFövvÆRÖ6öÆÆ6Rr’æÆ&VÂÂ~[^[ÈjÚN{¸Br“°§Ò“° §FW7B‚~{JiÙˆùÎXÙ^hÈ{JiÙ{¾Yè¾{¹X{®yÉşZéîzhyJXéşYºrÂ‚’Óâ°¢6öç7BVF–òÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²¶–æC¢v76WBrÂ76WD–C¢vrÒ’Âf7G2‡²76WD¶–æC¢vVF–òrÒ’Â5D”ôå2ÂµÒ“°¢76W'BæÖF6‚†f–æB†VF–òÂv76WBÖ&6¶w&÷VæBr’ç&V6öâÂşXú®iÈY»îx˜rò“°¢76W'BæÖF6‚†f–æB†VF–òÂv76WBÖÆ–W"r’ç&V6öâÂşXú®iÈY»îx˜~h‰nŠxnš)ò“°¢76W'BæWVÂ†f–æB†VF–òÂv76WBÖVF–òr’ç&V6öâÂVæFVf–æVB“°¢6öç7B–ÖvRÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²¶–æC¢v76WBrÂ76WD–C¢v"rÒ’Âf7G2‡²76WD¶–æC¢v–ÖvRrÒ’Â5D”ôå2ÂµÒ“°¢76W'BæWVÂ†f–æB†–ÖvRÂv76WBÖ&6¶w&÷VæBr’ç&V6öâÂVæFVf–æVB“°¢76W'BæÖF6‚†f–æB†–ÖvRÂv76WBÖ'F–6ÆRr’ç&V6öâÂşih~zºò“°§Ò“° §FW7B‚~Š*¾[É^yJy¨N{JiÙKˆŞˆ;Şy»Nhê^z{¾™šBrÂ‚’Óâ°¢6öç7Bg&VRÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²¶–æC¢v76WBrÂ76WD–C¢vrÒ’Âf7G2‡²76WD¶–æC¢vVF–òrÒ’Â5D”ôå2ÂµÒ“°¢76W'BæWVÂ†f–æB†g&VRÂw&VÖ÷fRÖ76WBr’ç&V6öâÂVæFVf–æVB“°¢6öç7BW6VBÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²¶–æC¢v76WBrÂ76WD–C¢vrÒ’Âf7G2‡²76WD¶–æC¢vVF–òrÂ76WE&VfW&Væ6VC¢G'VRÒ’Â5D”ôå2ÂµÒ“°¢76W'BæÖF6‚†f–æB‡W6VBÂw&VÖ÷fRÖ76WBr’ç&V6öâÂşK¸ŞŠ*¾Xš~h8^[É^yJ‚ò“°§Ò“° §FW7B‚~Y»î[.ˆùÎXÙ^YÊ™HZé®Kˆî[.{ª~‹ëyXÎZHNzhyJûÈÎ[›nŠûNiˆîKˆŞXúşyJXéşYºrÂ‚’Óâ°¢6öç7BÆö6¶VBÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²¶–æC¢vÆ–W"rÂÆ–W$–C¢vÃrÒ’Âf7G2‡²Æ–W$Æö6¶VC¢G'VRÂÆ–W$EF÷¢G'VRÂÆ–W$D&÷GFöÓ¢G'VRÒ’Â5D”ôå2ÂµÒ“°¢76W'BæWVÂ†f–æB†Æö6¶VBÂvÆ–W"ÖÆö6²r’æÆ&VÂÂ~Šz>™HY»î["r“°¢76W'BæÖF6‚†f–æB†Æö6¶VBÂw&VÖ÷fRÖÆ–W"r’ç&V6öâÂş[{.™HZé¢ò“°¢76W'BæÖF6‚†f–æB†Æö6¶VBÂvÆ–W"Ög&öçBr’ç&V6öâÂşiÈšn["ò“°¢76W'BæÖF6‚†f–æB†Æö6¶VBÂvÆ–W"Ö&6²r’ç&V6öâÂşiÈ[©^["ò“°¢6öç7Bg&VRÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²¶–æC¢vÆ–W"rÂÆ–W$–C¢vÃrÒ’Âf7G2‚’Â5D”ôå2ÂµÒ“°¢76W'BæWVÂ†f–æB†g&VRÂw&VÖ÷fRÖÆ–W"r’ç&V6öâÂVæFVf–æVB“°¢76W'BæWVÂ†f–æB†g&VRÂvÆ–W"Ög&öçBr’ç&V6öâÂVæFVf–æVB“°§Ò“° §FW7B‚tB™JîXú®YÊjë^‰ŞXû>™JîˆùÎXÙ^h™>[Èi{niŠ[NX‹XŠ™šNjÚNjëRrÂ‚’Óâ°¢6öç7B6öçFW‡BÒ²¶–æC¢w&w&‚rÂ&ö¦V7D–C¢wrÂ6†FW$–C¢v3rÂFö3¢çVÆÂÂfö7W3¢çVÆÂÓ°¢6öç7BÖVçRÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‚’Âf7G2‚’Â5D”ôå2ÂµÒ“°¢6öç7B¶W’Ò†÷fW"Ò·Ò’Óâ‡²¶W“¢vBrÂ7G&Ä¶W“¢fÇ6RÂÖWF¶W“¢fÇ6RÂÇD¶W“¢fÇ6RÂ6†–gD¶W“¢fÇ6RÂ—46ö×÷6–æs¢fÇ6RÂââæ÷fW"Ò“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â¶W’‚’Â6öçFW‡BÂG'VR“òæ–BÂvFVÆWFRrÂ~ˆùÎXÙ^h™>[Èi{n[©NYŞKŠŞXŠ™šBr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â¶W’‚’Â6öçFW‡BÂfÇ6R’ÂçVÆÂÂ~ˆùÎXÙ^iÊ®h™>[Èi{bBKˆŞ[é~XŠ™šNi[NjëRr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â¶W’‡²6†–gD¶W“¢G'VRÒ’Â6öçFW‡BÂG'VR’ÂçVÆÂÂu6†–gB´BKˆŞ[é~ŠznXùr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â¶W’‡²—46ö×÷6–æs¢G'VRÒ’Â6öçFW‡BÂG'VR’ÂçVÆÂÂ~‹é>XZ^k9^{¸NYKŠŞKˆŞ[é~ŠznXùr“°¢6öç7BFW‡DÖVçRÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‡²¶–æC¢wFW‡BrÒ’Âf7G2‡²†5FW‡E6VÆV7F–öã¢G'VRÒ’Â5D”ôå2ÂµÒ“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB‡FW‡DÖVçR’Â¶W’‚’Â²ââæ6öçFW‡BÂ¶–æC¢wFW‡BrÒÂG'VR’ÂçVÆÂÂ~ih~ZÙ~˜hºˆùÎXÙ^KˆŞ[é~XŠi[NjëRr“°§Ò“° §FW7B‚~ˆùÎXÙ^Kˆî[ú¾hÛ~™JîX[yJYÎKˆK»ŞYŞKºNZé®K˜’rÂ‚’Óâ°¢6öç7BÖVçRÒ'V–ÆEv÷&·76TÖVçR‡F&vWB‚’Âf7G2‚’Â5D”ôå2ÂµÒ“°¢6öç7B6öçFW‡BÒ²¶–æC¢w&w&‚rÂ&ö¦V7D–C¢wrÂ6†FW$–C¢v3rÂFö3¢çVÆÂÂfö7W3¢çVÆÂÓ°¢6öç7B7G&ÂÒ†²’Óâ‡²¶W“¢²Â7G&Ä¶W“¢G'VRÂÖWF¶W“¢fÇ6RÂÇD¶W“¢fÇ6RÂ6†–gD¶W“¢fÇ6RÂ—46ö×÷6–æs¢fÇ6RÒ“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â7G&Â‚v2r’Â6öçFW‡BÂfÇ6R“òæ–BÂv6÷’r“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â7G&Â‚w‚r’Â6öçFW‡BÂfÇ6R“òæ–BÂv7WBr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â7G&Â‚wbr’Â6öçFW‡BÂfÇ6R“òæ–BÂw7FRr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â7G&Â‚w¢r’Â6öçFW‡BÂfÇ6R“òæ–BÂwVæFòr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â7G&Â‚w¢rÂ’Â²ââæ6öçFW‡BÒÂfÇ6R“òæ–BÂwVæFòr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â²ââæ7G&Â‚w¢r’Â6†–gD¶W“¢G'VRÒÂ6öçFW‡BÂfÇ6R“òæ–BÂw&VFòr“°¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â7G&Â‚w’r’Â6öçFW‡BÂfÇ6R“òæ–BÂw&VFòr“°¢òòˆùÎXÙ^˜xÎy¨NhÈ™*îY(Î[ú¾hÛ~™JîYŞKŠŞy¨NiŠşYÎKˆKŠ®Zû‹¢76W'BæWVÂ†6öÖÖæDf÷$¶W’†fÆB†ÖVçR’Â7G&Â‚v2r’Â6öçFW‡BÂfÇ6R’Âf–æB†ÖVçRÂv6÷’r’“°§Ò“° §FW7B‚~ˆùÎXÙ^YÊz©~Xú>‹ë{É˜şŠêûÈÎKˆŞKÉ®kª.X{®ŠxnXú2rÂ‚’Óâ°¢6öç7BæV"Òf—DÖVçRƒS“Â““Â#ƒÂ3#ÂcÂ“°¢76W'Bæö²†æV"æÆVgB²#ƒÃÒcbbæV"çF÷²3#ÃÒ“°¢76W'Bæö²†æV"æÆVgBãÒ‚bbæV"çF÷ãÒ‚“°¢6öç7BF÷ÆVgBÒf—DÖVçRƒ"Â2Â#ƒÂ3#ÂcÂ“°¢76W'BæWVÂ‡F÷ÆVgBæÆVgBÂ‚“°¢76W'BæWVÂ‡F÷ÆVgBçF÷Â‚“°§Ò“° ¢ò¢)H)HXš®‹KNiÛò)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H)H¢ğ ¦6öç7BÆ–W"Ò†–BÂ76WD–B’Óâ‡²–BÂ76WD–BÂƒ¢Â“¢ƒÂv–GFƒ¢cCÂ†V–v‡C¢3cÂZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{›ÜXÚ]NˆK’[™^ˆJNÂ˜ÛÛœİİYHH
-Y^˜HHßJHOˆ
-È\Nˆ	ØİYIËYÙ][™ÜÎˆÈ[ÙNˆ	ÙX[ÙİYIËÜXZÙ\ˆ	ùå,‰ËÛÛÜˆ	ÈÙ™Œ	Ë]Y[ÒYˆ	Ø]YLIËØÙ[™S^Y\œÎˆÛ^Y\Š	Û^Y\‹[Û	Ë	Ú[YËLIÊWK‹‹™^˜HKÚ[™[ˆŞÈ\Nˆ	İ^	Ë^ˆ	ùcì:+ãIËÛÛÜˆ	ÈÌ™Œ	ÈWHJNÂ˜ÛÛœİ›ØÚÈH
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { buildWorkspaceMenu, menuTitle } from '../src/ui/workspace-menu.ts';
+import { commandForKey, deferToNativeMenu, fitMenu } from '../src/ui/context-menu-model.ts';
+import { checkClipboardReferences, duplicateParagraph, duplicateSlice, validateClipboard } from '../src/editor/context-clipboard.ts';
 
-HOˆ
-È\Nˆ	Ü\˜YÜ˜\	ËYˆ	Ü[Û	ËÜ›İ\Yˆ	ÙËLIËÚ[™[ˆØİYJ	ØË[Û	ÊWHJNÂ‚\İ
-	ùbjº--9§oú/oz#mú(ªùk£9¥m9¨(zj£;ï#:gg¹¬åyîäù§¡9¦#¹èk¹¢ä¹îçIË
+const calls = [];
+const action = (name) => () => { calls.push(name); };
+const ACTIONS = {
+  undo: action('undo'), redo: action('redo'), cut: action('cut'), copy: action('copy'), paste: action('paste'),
+  deleteSelection: action('deleteSelection'), deleteParagraph: action('deleteParagraph'),
+  convert: () => { calls.push('convert'); }, moveToGroup: (id) => { calls.push('move:' + id); },
+  moveParagraph: (d) => { calls.push('moveParagraph:' + d); }, toggleCollapse: action('collapse'),
+  insertImage: action('insertImage'), insertVideo: action('insertVideo'), insertAudio: (w) => { calls.push('audio:' + w); },
+  importAsset: action('import'), applyAsset: (t) => { calls.push('apply:' + t); },
+  copyAsset: action('copyAsset'), pasteAsset: action('pasteAsset'), removeAsset: action('removeAsset'),
+  layerZ: (d) => { calls.push('layerZ:' + d); }, toggleLayerLock: action('lock'),
+  duplicateLayer: action('dupLayer'), removeLayer: action('removeLayer'),
+};
 
-HOˆÂˆ\ÜÙ\›İÜÊ
+function facts(overrides = {}) {
+  return {
+    canUndo: true, canRedo: true, hasTextSelection: false, paragraphIndex: 0, paragraphCount: 3,
+    groupCount: 0, collapsed: false, inGroup: false, mode: null, hasSpeaker: false,
+    layerLocked: false, layerAtTop: false, layerAtBottom: false,
+    assetKind: null, assetReferenced: false, canPaste: true,
+    ...overrides,
+  };
+}
+const target = (overrides = {}) => ({ kind: 'paragraph', projectId: 'p1', chapterId: 'c1', paragraphId: 'para-1', ...overrides });
+const ids = (menu) => menu.map((c) => c.id);
+const find = (menu, id) => menu.find((c) => c.id === id);
+const flat = (menu) => menu.flatMap((c) => [c, ...(c.children ?? [])]);
 
-HOˆ˜[Y]PÛ\›Ø\™
-[
-Kùbjº--9§oùbiù áy¥l9£k¹¥è9¥bÊNÂˆ\ÜÙ\›İÜÊ
+test('æ­£æ–‡æ®µè½èœå•åªæä¾›çœŸå®å¯ç”¨çš„åŸºç¡€ä¸å¯¹è±¡æ“ä½œ', () => {
+  const menu = buildWorkspaceMenu(target(), facts(), ACTIONS, []);
+  assert.ok(ids(menu).includes('undo'));
+  assert.ok(ids(menu).includes('delete'), 'æ®µè½èœå•å¿…é¡»æœ‰"åˆ é™¤æ­¤æ®µ"');
+  assert.ok(!ids(menu).includes('delete-selection'), 'æ— é€‰åŒºæ—¶ä¸åº”å‡ºç°"åˆ é™¤é€‰ä¸­æ–‡å­—"');
+  assert.equal(menuTitle(target(), facts()), 'ç¬¬ 1 æ®µ');
+});
 
-HOˆ˜[Y]PÛ\›Ø\™
-È™\œÚ[Ûˆ‹›Ú™XİYˆ	Ü	ËÚ[™ˆ	İ^	ÈJKùbjº--9§oùbiù áy¥l9£k¹¥è9¥bÊNÂˆ\ÜÙ\›İÜÊ
+test('æœ‰æ–‡å­—é€‰åŒºæ—¶æ”¹ä¸ºæ“ä½œé€‰åŒºï¼Œä¸”ä¸å†æä¾›åˆ é™¤æ­¤æ®µ', () => {
+  const menu = buildWorkspaceMenu(target({ kind: 'text' }), facts({ hasTextSelection: true }), ACTIONS, []);
+  assert.ok(ids(menu).includes('delete-selection'));
+  assert.ok(!ids(menu).includes('delete'));
+  assert.equal(find(menu, 'cut').label, 'å‰ªåˆ‡é€‰ä¸­æ–‡å­—');
+  assert.equal(find(menu, 'copy').label, 'å¤åˆ¶é€‰ä¸­æ–‡å­—');
+});
 
-HOˆ˜[Y]PÛ\›Ø\™
-È™\œÚ[ÛˆK›Ú™XİYˆ	Ü	ËÚ[™ˆ	İ^	Ë˜[YNˆßHJKùbjº--9§où¥¡ùkeùîäù§¡9¥è9¥bÊNÂˆ\ÜÙ\›İÜÊ
+test('ç« èŠ‚é¦–å°¾æ®µè½çš„æ’åºè¾¹ç•Œç¦ç”¨å¹¶ç»™å‡ºå…·ä½“åŸå› ', () => {
+  const first = buildWorkspaceMenu(target({ paragraphId: 'para-1' }), facts({ paragraphIndex: 0, paragraphCount: 3 }), ACTIONS, []);
+  assert.match(find(first, 'move-up').reason, /ç¬¬ä¸€æ®µ/);
+  assert.equal(find(first, 'move-down').reason, undefined);
+  const last = buildWorkspaceMenu(target({ paragraphId: 'para-3' }), facts({ paragraphIndex: 2, paragraphCount: 3 }), ACTIONS, []);
+  assert.match(find(last, 'move-down').reason, /æœ€åä¸€æ®µ/);
+  assert.equal(find(last, 'move-up').reason, undefined);
+});
 
-HOˆ˜[Y]PÛ\›Ø\™
-È™\œÚ[ÛˆK›Ú™XİYˆ	Ü	ËÚ[™ˆ	Ø\ÜÙ]	Ë˜[YNˆßHJKùbjº--9§oùí(9§d9¥è9¥bÊNÂˆ\ÜÙ\›İÜÊ
+test('æ²¡æœ‰å·²æœ‰ç»„æ—¶"åŠ å…¥å·²æœ‰ç»„"ç¦ç”¨å¹¶è¯´æ˜åŸå› ï¼›æœ‰ç»„æ—¶é€ç»„åˆ—å‡º', () => {
+  const none = buildWorkspaceMenu(target(), facts(), ACTIONS, []);
+  assert.match(find(none, 'move-to-group').reason, /è¿˜æ²¡æœ‰æ®µè½ç»„/);
+  const some = buildWorkspaceMenu(target({ groupId: 'g1' }), facts({ inGroup: true }), ACTIONS, [{ id: 'g1', name: 'æ—¥å¸¸' }, { id: 'g2', name: 'å›å¿†' }]);
+  const submenu = find(some, 'move-to-group');
+  assert.equal(submenu.reason, undefined);
+  assert.deepEqual(submenu.children.map((c) => c.label), ['ç¬¬ 1 ç»„ Â· æ—¥å¸¸', 'ç¬¬ 2 ç»„ Â· å›å¿†']);
+  assert.match(submenu.children[0].reason, /å·²åœ¨è¯¥ç»„/);
+  assert.equal(submenu.children[1].reason, undefined);
+});
 
-HOˆ˜[Y]PÛ\›Ø\™
-È™\œÚ[ÛˆK›Ú™XİYˆ	Ü	ËÚ[™ˆ	Ø›Ùİ\ÉË˜[YNˆßHJKùbjº--9§oùbiù áy¥l9£k¹¥è9¥bÊNÂˆÛÛœİÚÈH˜[Y]PÛ\›Ø\™
-È™\œÚ[ÛˆK›Ú™XİYˆ	Ü	ËÚ[™ˆ	Ü\˜YÜ˜\	Ë˜[YNˆ›ØÚÊ
-HJNÂˆ\ÜÙ\™\]X[
-ÚËšÚ[™	Ü\˜YÜ˜\	ÊNÂŸJNÂ‚\İ
-	ùí(9§d9.#¹o%yå*:-ê9méyê"ù¢%¹ï.¹i,y¥í¹¦#¹èk¹¢ä¹îçIË
+test('åŠ å…¥å·²æœ‰ç»„åªä½œç”¨äºå³é”®è¿™ä¸€æ®µï¼Œä¸å¸¦å…¥å¤šé€‰', () => {
+  const menu = buildWorkspaceMenu(target({ paragraphId: 'only-this' }), facts(), ACTIONS, [{ id: 'g9', name: 'ç›®æ ‡ç»„' }]);
+  calls.length = 0;
+  find(menu, 'move-to-group').children[0].run();
+  assert.deepEqual(calls, ['move:g9']);
+});
 
-HOˆÂˆÛÛœİ›Ú™XİHÈYˆ	ÜIË\ÜÙ]ÎˆŞÈYˆ	Ú[YËLIËÚ[™ˆ	Ú[XYÙIÈKÈYˆ	Ø]YLIËÚ[™ˆ	Ø]Y[ÉÈWHNÂˆÛÛœİİ\ˆHÈYˆ	Ü‰Ë\ÜÙ]ÎˆŞÈYˆ	Ú[YËLIËÚ[™ˆ	Ú[XYÙIÈWHNÂˆÛÛœİ\ÜÙ]Û\H
-›Ú™XİY
-HOˆ
-È™\œÚ[ÛˆK›Ú™XİYÚ[™ˆ	Ø\ÜÙ]	Ë˜[YNˆÈ\ÜÙ]Yˆ	Ú[YËLIÈHJNÂˆ\ÜÙ\›İÜÊ
+test('æœªåŠ å…¥ç»„æ—¶èƒŒæ™¯éŸ³ä¹å…¥å£ç¦ç”¨ï¼Œæç¤ºå…ˆåŠ å…¥ç»„', () => {
+  const outside = buildWorkspaceMenu(target(), facts({ inGroup: false }), ACTIONS, []);
+  assert.match(find(flat(outside), 'insert-audio-bgm').reason, /å…ˆåŠ å…¥ç»„/);
+  const inside = buildWorkspaceMenu(target({ groupId: 'g1' }), facts({ inGroup: true }), ACTIONS, []);
+  assert.equal(find(flat(inside), 'insert-audio-bgm').reason, undefined);
+});
 
-HOˆÚXÚĞÛ\›Ø\™™Y™\™[˜Ù\Ê\ÜÙ]Û\
-	Ü‰ÊK›Ú™Xİ
-Kù.áz ïyg*9c§ùméyê"ùì¦:--ÊNÂˆ\ÜÙ\›İÜÊ
+test('æŠ˜å æ–‡æ¡ˆè·Ÿéšå½“å‰æŠ˜å çŠ¶æ€', () => {
+  const open = buildWorkspaceMenu(target({ groupId: 'g1' }), facts({ collapsed: false }), ACTIONS, []);
+  assert.equal(find(open, 'toggle-collapse').label, 'æŠ˜å æ­¤ç»„');
+  const shut = buildWorkspaceMenu(target({ groupId: 'g1' }), facts({ collapsed: true }), ACTIONS, []);
+  assert.equal(find(shut, 'toggle-collapse').label, 'å±•å¼€æ­¤ç»„');
+});
 
-HOˆÚXÚĞÛ\›Ø\™™Y™\™[˜Ù\Ê\ÜÙ]Û\
-	ÜIÊKİ\ŠKù.áz ïyg*9c§ùméyê"ùì¦:--ÊNÂˆÛÛœİ\˜HHÈ™\œÚ[ÛˆK›Ú™XİYˆ	ÜIËÚ[™ˆ	Ü\˜YÜ˜\	Ë˜[YNˆ›ØÚÊ
-HNÂˆ\ÜÙ\™Ù\Ó›İ›İÊ
+test('ç´ æèœå•æŒ‰ç´ æç±»å‹ç»™å‡ºçœŸå®ç¦ç”¨åŸå› ', () => {
+  const audio = buildWorkspaceMenu(target({ kind: 'asset', assetId: 'a1' }), facts({ assetKind: 'audio' }), ACTIONS, []);
+  assert.match(find(audio, 'asset-background').reason, /åªæœ‰å›¾ç‰‡/);
+  assert.match(find(audio, 'asset-layer').reason, /åªæœ‰å›¾ç‰‡æˆ–è§†é¢‘/);
+  assert.equal(find(audio, 'asset-audio').reason, undefined);
+  const image = buildWorkspaceMenu(target({ kind: 'asset', assetId: 'a2' }), facts({ assetKind: 'image' }), ACTIONS, []);
+  assert.equal(find(image, 'asset-background').reason, undefined);
+  assert.match(find(image, 'asset-article').reason, /æ–‡ç« /);
+});
 
-HOˆÚXÚĞÛ\›Ø\™™Y™\™[˜Ù\Ê\˜K›Ú™Xİ
-JNÂˆÛÛœİœ›ÚÙ[ˆHÈ™\œÚ[ÛˆK›Ú™XİYˆ	ÜIËÚ[™ˆ	Ü\˜YÜ˜\	Ë˜[YNˆÈ\Nˆ	Ü\˜YÜ˜\	ËYˆ	Ş	ËÚ[™[ˆØİYJ	ØÉËÈ]Y[ÒYˆ	ÛZ\ÜÚ[™ËX]Y[ÉÈJWHHNÂˆ\ÜÙ\›İÜÊ
+test('è¢«å¼•ç”¨çš„ç´ æä¸èƒ½ç›´æ¥ç§»é™¤', () => {
+  const free = buildWorkspaceMenu(target({ kind: 'asset', assetId: 'a1' }), facts({ assetKind: 'audio' }), ACTIONS, []);
+  assert.equal(find(free, 'remove-asset').reason, undefined);
+  const used = buildWorkspaceMenu(target({ kind: 'asset', assetId: 'a1' }), facts({ assetKind: 'audio', assetReferenced: true }), ACTIONS, []);
+  assert.match(find(used, 'remove-asset').reason, /ä»è¢«å‰§æƒ…å¼•ç”¨/);
+});
 
-HOˆÚXÚĞÛ\›Ø\™™Y™\™[˜Ù\Êœ›ÚÙ[‹›Ú™Xİ
-Kùï.¹i,y¢%¹ìnùg¢ù.#yë)‹ÊNÂŸJNÂ‚\İ
-	ùi#yb-¹¥m9«­zaãynî¹«­z$/xà ycéyd£9fï¹l`ˆQ;ï#9nm¹/çyåfzh§:"l¹.#¹¯%9aî¹/èy kÉË
+test('å›¾å±‚èœå•åœ¨é”å®šä¸å±‚çº§è¾¹ç•Œå¤„ç¦ç”¨ï¼Œå¹¶è¯´æ˜ä¸å¯ç”¨åŸå› ', () => {
+  const locked = buildWorkspaceMenu(target({ kind: 'layer', layerId: 'l1' }), facts({ layerLocked: true, layerAtTop: true, layerAtBottom: true }), ACTIONS, []);
+  assert.equal(find(locked, 'layer-lock').label, 'è§£é”å›¾å±‚');
+  assert.match(find(locked, 'remove-layer').reason, /å·²é”å®š/);
+  assert.match(find(locked, 'layer-front').reason, /æœ€é¡¶å±‚/);
+  assert.match(find(locked, 'layer-back').reason, /æœ€åº•å±‚/);
+  const free = buildWorkspaceMenu(target({ kind: 'layer', layerId: 'l1' }), facts(), ACTIONS, []);
+  assert.equal(find(free, 'remove-layer').reason, undefined);
+  assert.equal(find(free, 'layer-front').reason, undefined);
+});
 
-HOˆÂˆÛÛœİÛİ\˜ÙHH›ØÚÊ
-NÂˆÛÛœİ™Y›Ü™HH”ÓÓ‹œİš[™ÚYJÛİ\˜ÙJNÂˆÛÛœİÛÜHH\XØ]T\˜YÜ˜\
-Ûİ\˜ÙK	ÙËL‰ËÈYˆ	ÛLIË\ÜÙ]Yˆ	Ø]YLIÈJNÂˆ\ÜÙ\››İ\]X[
-ÛÜKšYÛİ\˜ÙKšY	ù«­z$/HQ9oázhnúaãynî‰ÊNÂˆ\ÜÙ\™\]X[
-ÛÜK™Ü›İ\Y	ÙËL‰ÊNÂˆ\ÜÙ\™Y\\]X[
-ÛÜK›]\ÚXÔ˜[™ÙKÈYˆ	ÛLIË\ÜÙ]Yˆ	Ø]YLIÈJNÂˆÛÛœİÛÜPİYHHÛÜK˜Ú[™[–ÌNÂˆ\ÜÙ\››İ\]X[
-ÛÜPİYKšY	ØË[Û	Ë	ùcéHQ9oázhnúaãynî‰ÊNÂˆ\ÜÙ\™\]X[
-ÛÜPİYKœÙ][™ÜË˜ÛÛÜ‹	ÈÙ™Œ	Ë	úh§:"l¹oázhnù/çyåfIÊNÂˆ\ÜÙ\™\]X[
-ÛÜPİYKœÙ][™ÜË˜]Y[ÒY	Ø]YLIË	úgìù¥b9o%yå*9oázhnù/çyåfIÊNÂˆ\ÜÙ\››İ\]X[
-ÛÜPİYKœÙ][™ÜËœØÙ[™S^Y\œÖÌKšY	Û^Y\‹[Û	Ë	ùfï¹l`ˆQ9oázhnúaãynî‰ÊNÂˆ\ÜÙ\™\]X[
-ÛÜPİYKœÙ][™ÜËœØÙ[™S^Y\œÖÌK˜\ÜÙ]Y	Ú[YËLIË	ùí(9§d9o%yå*9oázhnù/çyåfIÊNÂˆ\ÜÙ\™\]X[
-ÛÜPİYK˜Ú[™[–ÌK˜ÛÛÜ‹	ÈÌ™Œ	Ë	ùl`:`ê:h§:"l¹oázhnù/çyåfIÊNÂˆ\ÜÙ\™\]X[
-”ÓÓ‹œİš[™ÚYJÛİ\˜ÙJK™Y›Ü™K	ùc§ùkîz,hy.#yo¥ú(ªù/ë¹¥.IÊNÂŸJNÂ‚\İ
-	ùi#yb-º`"yc.¹¥í¹d#9. 9céyæ¡9b!º(àˆX\šÈ9.ãyaly.ªùd#9. 9.*¹¥¬Q	Ë
+test('D é”®åªåœ¨æ®µè½å³é”®èœå•æ‰“å¼€æ—¶æ˜ å°„åˆ°åˆ é™¤æ­¤æ®µ', () => {
+  const context = { kind: 'paragraph', projectId: 'p1', chapterId: 'c1', doc: null, focus: null };
+  const menu = buildWorkspaceMenu(target(), facts(), ACTIONS, []);
+  const key = (over = {}) => ({ key: 'd', ctrlKey: false, metaKey: false, altKey: false, shiftKey: false, isComposing: false, ...over });
+  assert.equal(commandForKey(flat(menu), key(), context, true)?.id, 'delete', 'èœå•æ‰“å¼€æ—¶åº”å‘½ä¸­åˆ é™¤');
+  assert.equal(commandForKey(flat(menu), key(), context, false), null, 'èœå•æœªæ‰“å¼€æ—¶ D ä¸å¾—åˆ é™¤æ•´æ®µ');
+  assert.equal(commandForKey(flat(menu), key({ shiftKey: true }), context, true), null, 'Shift+D ä¸å¾—è§¦å‘');
+  assert.equal(commandForKey(flat(menu), key({ isComposing: true }), context, true), null, 'è¾“å…¥æ³•ç»„åˆä¸­ä¸å¾—è§¦å‘');
+  const textMenu = buildWorkspaceMenu(target({ kind: 'text' }), facts({ hasTextSelection: true }), ACTIONS, []);
+  assert.equal(commandForKey(flat(textMenu), key(), { ...context, kind: 'text' }, true), null, 'æ–‡å­—é€‰æ‹©èœå•ä¸å¾—åˆ æ•´æ®µ');
+});
 
-HOˆÂˆÛÛœİX\šÈH
-İYRY
-HOˆ
-È\Nˆ	ØİYIË]œÎˆÈİYRYİYSY]Nˆ”ÓÓ‹œİš[™ÚYJÈ[ÙNˆ	ÙX[ÙİYIÈJHHJNÂˆÛÛœİÛXÙHHÂˆÛÛ[ˆŞÂˆ\Nˆ	Ü\˜YÜ˜\	Ëˆ]œÎˆÈ\˜YÜ˜\Yˆ	Ü[Û	ËÜ›İ\Yˆ	ÙËLIÈKˆÛÛ[ˆÂˆÈ\Nˆ	İ^	Ë^ˆ	ùå,‰ËX\šÜÎˆÛX\šÊ	ÜØ[YIÊWHKˆÈ\Nˆ	İ^	Ë^ˆ	ù.fIËX\šÜÎˆÛX\šÊ	ÜØ[YIÊKÈ\Nˆ	Ø›Û	ÈWHKˆÈ\Nˆ	İ^	Ë^ˆ	ù.&IËX\šÜÎˆÛX\šÊ	Ûİ\‰ÊWHKˆKˆWKˆNÂˆÛÛœİİ]H\XØ]TÛXÙJÛXÙK	ÙËL‰Ë[
-NÂˆ\ÜÙ\››İ\]X[
-İ]˜ÛÛ[ÌK˜]œËœ\˜YÜ˜\Y	Ü[Û	Ë	ù«­z$/HQ9oázhnúaãynî‰ÊNÂˆ\ÜÙ\™\]X[
-İ]˜ÛÛ[ÌK˜]œË™Ü›İ\Y	ÙËL‰ÊNÂˆÛÛœİš\œİHİ]˜ÛÛ[ÌK˜ÛÛ[Âˆ\ÜÙ\™\]X[
-š\œİÌK›X\šÜÖÌK˜]œË˜İYRYš\œİÌWK›X\šÜÖÌK˜]œË˜İYRY	ùd#9. 9céyæ¡9b!º(àˆX\šÈ9oázhnùîçù. Q	ÊNÂˆ\ÜÙ\››İ\]X[
-š\œİÌK›X\šÜÖÌK˜]œË˜İYRY	ÜØ[YIË	ÒQ9oázhnúaãynî‰ÊNÂˆ\ÜÙ\››İ\]X[
-š\œİÌ—K›X\šÜÖÌK˜]œË˜İYRYš\œİÌK›X\šÜÖÌK˜]œË˜İYRY	ù.#yd#9céyoázhnùo¥ùb,9.#yd#Q	ÊNÂŸJNÂ‚‹Êˆ8¥ 8¥ È9c.¹«hù¥¡ùcìúe+¹aiycèÈ8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ ˆ9fç¹od¹ï.ºfmûï&¹«hù¥¡ùk®yfj›ÜÙSZ\œ›Üˆ:!êº.ªùl,y¦+ÈÛÛ[Y]X›OHYH»ï#ˆ9c§ùk§¹ã¬9cê¹£"HÛÜÙ\İ
-	ÖØÛÛ[Y]X›OHYH—IÊH9b)9¥«{ï#9kï:!íÈ9c.‚ˆ9.îù¡#ù/cyïk¹cìúe+º`ïy£ä9bcH™]\›»ï#9cìúe+º#ç9ceyg*9«hù¥¡úaã9¬.:/ç9.#yo.xà ˆ
-‹Â‚‹ÊŠˆ:`(9. 9.*º--:/äyç'ùk§ˆÓH9æ¡9¨j{ï&¹ï%º/¤yfj9a¡z`ê9æ¡9a`ùí(;ï#9amˆÛÜÙ\İ: ïyd$y."¹doy.+yï%º/¤yfj8à ˆ
-‹Â™[˜İ[ÛˆY]Ü”İXŠ
-HÂˆÛÛœİY]Ü”›ŞHHÈYÓ˜[YNˆ	ÑU‰Ë\ÑY]ÜˆYHNÂˆÛÛœİ[œ]Ù[ˆHÈYÓ˜[YNˆ	ÒS”U	ÈNÂˆÛÛœİ[‘Y]ÜˆHÈ[œÚYNˆYKÛÜÙ\İˆ
-Ù[XİÜŠHOˆ
-Ù[XİÜ‹š[˜ÛY\Ê	ÖØÛÛ[Y]j)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^able="true"]') ? editorProxy : null) };
+test('èœå•ä¸å¿«æ·é”®å…±ç”¨åŒä¸€ä»½å‘½ä»¤å®šä¹‰', () => {
+  const menu = buildWorkspaceMenu(target(), facts(), ACTIONS, []);
+  const context = { kind: 'paragraph', projectId: 'p1', chapterId: 'c1', doc: null, focus: null };
+  const ctrl = (k) => ({ key: k, ctrlKey: true, metaKey: false, altKey: false, shiftKey: false, isComposing: false });
+  assert.equal(commandForKey(flat(menu), ctrl('c'), context, false)?.id, 'copy');
+  assert.equal(commandForKey(flat(menu), ctrl('x'), context, false)?.id, 'cut');
+  assert.equal(commandForKey(flat(menu), ctrl('v'), context, false)?.id, 'paste');
+  assert.equal(commandForKey(flat(menu), ctrl('z'), context, false)?.id, 'undo');
+  assert.equal(commandForKey(flat(menu), ctrl('z', ), { ...context }, false)?.id, 'undo');
+  assert.equal(commandForKey(flat(menu), { ...ctrl('z'), shiftKey: true }, context, false)?.id, 'redo');
+  assert.equal(commandForKey(flat(menu), ctrl('y'), context, false)?.id, 'redo');
+  // èœå•é‡Œçš„æŒ‰é’®å’Œå¿«æ·é”®å‘½ä¸­çš„æ˜¯åŒä¸€ä¸ªå¯¹è±¡
+  assert.equal(commandForKey(flat(menu), ctrl('c'), context, false), find(menu, 'copy'));
+});
+
+test('èœå•åœ¨çª—å£è¾¹ç¼˜é¿è®©ï¼Œä¸ä¼šæº¢å‡ºè§†å£', () => {
+  const near = fitMenu(1590, 990, 280, 320, 1600, 1000);
+  assert.ok(near.left + 280 <= 1600 && near.top + 320 <= 1000);
+  assert.ok(near.left >= 8 && near.top >= 8);
+  const topLeft = fitMenu(2, 3, 280, 320, 1600, 1000);
+  assert.equal(topLeft.left, 8);
+  assert.equal(topLeft.top, 8);
+});
+
+/* â”€â”€ å‰ªè´´æ¿ â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€ */
+
+const layer = (id, assetId) => ({ id, assetId, x: 100, y: 80, width: 640, height: 360, opacity: 1, zIndex: 0 });
+const cue = (id, extra = {}) => ({ type: 'cue', id, settings: { mode: 'dialogue', speaker: 'ç”²', color: '#ff0000', audioId: 'aud-1', sceneLayers: [layer('layer-old', 'img-1')], ...extra }, children: [{ type: 'text', text: 'å°è¯', color: '#00ff00' }] });
+const block = () => ({ type: 'paragraph', id: 'p-old', groupId: 'g-1', children: [cue('c-old')] });
+
+test('å‰ªè´´æ¿è½½è·è¢«å®Œæ•´æ ¡éªŒï¼Œéæ³•ç»“æ„æ˜ç¡®æ‹’ç»', () => {
+  assert.throws(() => validateClipboard(null), /å‰ªè´´æ¿å‰§æƒ…æ•°æ®æ— æ•ˆ/);
+  assert.throws(() => validateClipboard({ version: 2, projectId: 'p', kind: 'text' }), /å‰ªè´´æ¿å‰§æƒ…æ•°æ®æ— æ•ˆ/);
+  assert.throws(() => validateClipboard({ version: 1, projectId: 'p', kind: 'text', value: {} }), /å‰ªè´´æ¿æ–‡å­—ç»“æ„æ— æ•ˆ/);
+  assert.throws(() => validateClipboard({ version: 1, projectId: 'p', kind: 'asset', value: {} }), /å‰ªè´´æ¿ç´ ææ— æ•ˆ/);
+  assert.throws(() => validateClipboard({ version: 1, projectId: 'p', kind: 'bogus', value: {} }), /å‰ªè´´æ¿å‰§æƒ…æ•°æ®æ— æ•ˆ/);
+  const ok = validateClipboard({ version: 1, projectId: 'p', kind: 'paragraph', value: block() });
+  assert.equal(ok.kind, 'paragraph');
+});
+
+test('ç´ æä¸å¼•ç”¨è·¨å·¥ç¨‹æˆ–ç¼ºå¤±æ—¶æ˜ç¡®æ‹’ç»', () => {
+  const project = { id: 'p1', assets: [{ id: 'img-1', kind: 'image' }, { id: 'aud-1', kind: 'audio' }] };
+  const other = { id: 'p2', assets: [{ id: 'img-1', kind: 'image' }] };
+  const assetClip = (projectId) => ({ version: 1, projectId, kind: 'asset', value: { assetId: 'img-1' } });
+  assert.throws(() => checkClipboardReferences(assetClip('p2'), project), /ä»…èƒ½åœ¨åŸå·¥ç¨‹ç²˜è´´/);
+  assert.throws(() => checkClipboardReferences(assetClip('p1'), other), /ä»…èƒ½åœ¨åŸå·¥ç¨‹ç²˜è´´/);
+  const para = { version: 1, projectId: 'p1', kind: 'paragraph', value: block() };
+  assert.doesNotThrow(() => checkClipboardReferences(para, project));
+  const broken = { version: 1, projectId: 'p1', kind: 'paragraph', value: { type: 'paragraph', id: 'x', children: [cue('c', { audioId: 'missing-audio' })] } };
+  assert.throws(() => checkClipboardReferences(broken, project), /ç¼ºå¤±æˆ–ç±»å‹ä¸ç¬¦/);
+});
+
+test('å¤åˆ¶æ•´æ®µé‡å»ºæ®µè½ã€å¥å’Œå›¾å±‚ IDï¼Œå¹¶ä¿ç•™é¢œè‰²ä¸æ¼”å‡ºä¿¡æ¯', () => {
+  const source = block();
+  const before = JSON.stringify(source);
+  const copy = duplicateParagraph(source, 'g-2', { id: 'm1', assetId: 'aud-1' });
+  assert.notEqual(copy.id, source.id, 'æ®µè½ ID å¿…é¡»é‡å»º');
+  assert.equal(copy.groupId, 'g-2');
+  assert.deepEqual(copy.musicRange, { id: 'm1', assetId: 'aud-1' });
+  const copyCue = copy.children[0];
+  assert.notEqual(copyCue.id, 'c-old', 'å¥ ID å¿…é¡»é‡å»º');
+  assert.equal(copyCue.settings.color, '#ff0000', 'é¢œè‰²å¿…é¡»ä¿ç•™');
+  assert.equal(copyCue.settings.audioId, 'aud-1', 'éŸ³æ•ˆå¼•ç”¨å¿…é¡»ä¿ç•™');
+  assert.notEqual(copyCue.settings.sceneLayers[0].id, 'layer-old', 'å›¾å±‚ ID å¿…é¡»é‡å»º');
+  assert.equal(copyCue.settings.sceneLayers[0].assetId, 'img-1', 'ç´ æå¼•ç”¨å¿…é¡»ä¿ç•™');
+  assert.equal(copyCue.children[0].color, '#00ff00', 'å±€éƒ¨é¢œè‰²å¿…é¡»ä¿ç•™');
+  assert.equal(JSON.stringify(source), before, 'åŸå¯¹è±¡ä¸å¾—è¢«ä¿®æ”¹');
+});
+
+test('å¤åˆ¶é€‰åŒºæ—¶åŒä¸€å¥çš„åˆ†è£‚ mark ä»å…±äº«åŒä¸€ä¸ªæ–° ID', () => {
+  const mark = (cueId) => ({ type: 'cue', attrs: { cueId, cueMeta: JSON.stringify({ mode: 'dialogue' }) } });
+  const slice = {
+    content: [{
+      type: 'paragraph',
+      attrs: { paragraphId: 'p-old', groupId: 'g-1' },
+      content: [
+        { type: 'text', text: 'ç”²', marks: [mark('same')] },
+        { type: 'text', text: 'ä¹™', marks: [mark('same'), { type: 'bold' }] },
+        { type: 'text', text: 'ä¸™', marks: [mark('other')] },
+      ],
+    }],
+  };
+  const out = duplicateSlice(slice, 'g-2', null);
+  assert.notEqual(out.content[0].attrs.paragraphId, 'p-old', 'æ®µè½ ID å¿…é¡»é‡å»º');
+  assert.equal(out.content[0].attrs.groupId, 'g-2');
+  const first = out.content[0].content;
+  assert.equal(first[0].marks[0].attrs.cueId, first[1].marks[0].attrs.cueId, 'åŒä¸€å¥çš„åˆ†è£‚ mark å¿…é¡»ç»Ÿä¸€ ID');
+  assert.notEqual(first[0].marks[0].attrs.cueId, 'same', 'ID å¿…é¡»é‡å»º');
+  assert.notEqual(first[2].marks[0].attrs.cueId, first[0].marks[0].attrs.cueId, 'ä¸åŒå¥å¿…é¡»å¾—åˆ°ä¸åŒ ID');
+});
+
+/* â”€â”€ C åŒºæ­£æ–‡å³é”®å…¥å£ â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€
+   å›å½’ç¼ºé™·ï¼šæ­£æ–‡å®¹å™¨ ProseMirror è‡ªèº«å°±æ˜¯ contenteditable="true"ï¼Œ
+   åŸå®ç°åªæŒ‰ closest('[contenteditable="true"]') åˆ¤æ–­ï¼Œå¯¼è‡´ C åŒº
+   ä»»æ„ä½ç½®å³é”®éƒ½æå‰ returnï¼Œå³é”®èœå•åœ¨æ­£æ–‡é‡Œæ°¸è¿œä¸å¼¹ã€‚ */
+
+/** é€ ä¸€ä¸ªè´´è¿‘çœŸå® DOM çš„æ¡©ï¼šç¼–è¾‘å™¨å†…éƒ¨çš„å…ƒç´ ï¼Œå…¶ closest èƒ½å‘ä¸Šå‘½ä¸­ç¼–è¾‘å™¨ã€‚ */
+function editorStub() {
+  const editorProxy = { tagName: 'DIV', isEditor: true };
+  const inputSelf = { tagName: 'INPUT' };
+  const inEditor = { inside: true, closest: (selector) => (selector.includes('[contenteditable="true"]') ? editorProxy : null) };
   const editorDom = { contains: (node) => node?.inside === true };
   return {
     editorDom,

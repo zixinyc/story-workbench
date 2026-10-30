@@ -1,96 +1,229 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐì•ÑM¡•µ„ô™É½´€Ñ¥ÁÑ…À½½É”œì)¥µÁ½ÉÐMÑ…ÉÑ•É-¥Ð™É½´€Ñ¥ÁÑ…À½ÍÑ…ÉÑ•Èµ­¥Ðœì)¥µÁ½ÉÐU¹¥ÅÕ•%™É½´€Ñ¥ÁÑ…À½•áÑ•¹Í¥½¸µÕ¹¥ÅÕ”µ¥œì)¥µÁ½ÉÐì‘¥Ñ½ÉMÑ…Ñ”°Q•áÑM•±•Ñ¥½¸ô™É½´€Ñ¥ÁÑ…À½Á´½ÍÑ…Ñ”œì)¥µÁ½ÉÐì¡¥ÍÑ½Éä°É•‘¼°Õ¹‘¼ô™É½´€Ñ¥ÁÑ…À½Á´½¡¥ÍÑ½Éäœì)¥µÁ½ÉÐìÕ•5…É¬°MÑ½ÉåÑÑÉ¥‰ÕÑ•Ì°…ÁÁ±åÕ•A…Ñ °…ÁÁ±å5½‘”°µ½Ù•‘¥Ñ½ÉA…É…É…Á¡Ì°É•Á±…•‘¥Ñ½É½Õµ•¹Ð°Í•±•Ñ•‘MÑ½Éå%°Ñ½‘¥Ñ½É½¹Ñ•¹Ðô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½ÍÑ½Éäµ•‘¥Ñ½È¹ÑÌœì)¥µÁ½ÉÐì‘•™…Õ±ÑM•ÑÑ¥¹Ìô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ð¹µ©Ìœì()½¹ÍÐÍ¡•µ„€ô•ÑM¡•µ„¡mMÑ…ÉÑ•É-¥Ð°Õ•5…É­t¤ì)½¹ÍÐÕ•5…É¬€ô€¡¥¤€ôøÍ¡•µ„¹µ…É­Ì¹Õ”¹É•…Ñ”¡ìÕ•%è¥°Õ•5•Ñ„è)M=8¹ÍÑÉ¥¹¥™ä¡‘•™…Õ±ÑM•ÑÑ¥¹Ì ¤¤ô¤ì()™Õ¹Ñ¥½¸…ÁÁ±åMÑ½ÉåI•Á…¥ÉA±Õ¥¸¡‘½Œ¤ì(€½¹ÍÐÁ±Õ¥¸€ôMÑ½ÉåÑÑÉ¥‰ÕÑ•Ì¹½¹™¥œ¹…‘‘AÉ½Í•5¥ÉÉ½ÉA±Õ¥¹Ì ¥lÁtì(€½¹ÍÐÍÑ…Ñ”€ô‘¥Ñ½ÉMÑ…Ñ”¹É•…Ñ”¡ìÍ¡•µ„°Á±Õ¥¹ÌèmÁ±Õ¥¹tô¤ì(€É•ÑÕÉ¸ÍÑ…Ñ”¹…ÁÁ±åQÉ…¹Í…Ñ¥½¸¡ÍÑ…Ñ”¹ÑÈ¹É•Á±…•]¥Ñ  À°€À°‘½Œ¹½¹Ñ•¹Ð¤¤¹ÍÑ…Ñ”¹‘½Œì)ô()™Õ¹Ñ¥½¸Õ•%‘Ì¡‘½Œ¤ì(€½¹ÍÐ¥‘Ì€ômtì(€‘½Œ¹‘•Í•¹‘…¹ÑÌ ¡¹½‘”¤€ôøì(€€€½¹ÍÐµ…É¬€ô¹½‘”¹µ…É­Ì¹™¥¹ ¡¥Ñ•´¤€ôø¥Ñ•´¹ÑåÁ”¹¹…µ”€ôôô€Õ”œ¤ì(€€€¥˜€¡µ…É¬¤¥‘Ì¹ÁÕÍ ¡µ…É¬¹…ÑÑÉÌ¹Õ•%¤ì(€ô¤ì(€É•ÑÕÉ¸¥‘Ìì)ô()Ñ•ÍÐ AÉ½Í•5¥ÉÉ½ÈÉ•Á…¥ÈÍ•Á…É…Ñ•Ì‘ÕÁ±¥…Ñ”Õ”%Ì…É½ÍÌÁ…É…É…Á¡Ì‰ÕÐÁÉ•Í•ÉÙ•Ì¥¹±¥¹”ÍÁ±¥ÑÌœ°€ ¤€ôøì(€½¹ÍÐµ…É­•€ôÕ•5…É¬ Í…µ”µÕ”œ¤ì(€½¹ÍÐ‘ÕÁ±¥…Ñ•€ôÍ¡•µ„¹¹½‘” ‘½Œœ°¹Õ±°°l(€€€Í¡•µ„¹¹½‘” Á…É…É…Á œ°¹Õ±°°mÍ¡•µ„¹Ñ•áÐ ŸžRÈœ°mµ…É­•‘t¤°Í¡•µ„¹Ñ•áÐ Ÿ’ædœ°mµ…É­•°Í¡•µ„¹µ…É­Ì¹‰½±¹É•…Ñ” ¥t¥t¤°(€€€Í¡•µ„¹¹½‘” Á…É…É…Á œ°¹Õ±°°Í¡•µ„¹Ñ•áÐ Ÿ’âdœ°mµ…É­•‘t¤¤°(€t¤ì(€½¹ÍÐÉ•Á…¥É•€ô…ÁÁ±åMÑ½ÉåI•Á…¥ÉA±Õ¥¸¡‘ÕÁ±¥…Ñ•¤ì(€½¹ÍÐ¥‘Ì€ôÕ•%‘Ì¡É•Á…¥É•¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡¥‘ÍlÁt°¥‘ÍlÅt¤ì(€…ÍÍ•ÉÐ¹¹½ÑÅÕ…°¡¥‘ÍlÅt°¥‘ÍlÉt¤ì((€½¹ÍÐ¡…É‘	É•…­IÕ¸€ôÍ¡•µ„¹¹½‘” ‘½Œœ°¹Õ±°°mÍ¡•µ„¹¹½‘” Á…É…É…Á œ°¹Õ±°°l(€€€Í¡•µ„¹Ñ•áÐ ŸžRÈœ°mµ…É­•‘t¤°Í¡•µ„¹¹½‘•Ì¹¡…É‘	É•…¬¹É•…Ñ”¡¹Õ±°°¹Õ±°°mµ…É­•‘t¤°Í¡•µ„¹Ñ•áÐ Ÿ’ædœ°mµ…É­•‘t¤°(€t¥t¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡Õ•%‘Ì¡…ÁÁ±åMÑ½ÉåI•Á…¥ÉA±Õ¥¸¡¡…É‘	É•…­IÕ¸¤¤°lÍ…µ”µÕ”œ°€Í…µ”µÕ”œ°€Í…µ”µÕ”t¤ì)ô¤ì()Ñ•ÍÐ Ÿ¢Þ£šº×–"š6‹šòS–ë’òk¢Š¯š.Kžîw¾ò1AÉ½Í•5¥ÉÉ½Èƒš¶šZ–º3–£’â7–>`œ°€ ¤€ôøì(€½¹ÍÐ‘½Œ€ôÍ¡•µ„¹¹½‘” ‘½Œœ°¹Õ±°°mÍ¡•µ„¹¹½‘” Á…É…É…Á œ°¹Õ±°°Í¡•µ„¹Ñ•áÐ Ÿž²³’âšºÔœ¤¤°Í¡•µ„¹¹½‘” Á…É…É…Á œ°¹Õ±°°Í¡•µ„¹Ñ•áÐ Ÿž²³’ê3šºÔœ¤¥t¤ì(€½¹ÍÐÍ•±•Ñ¥½¸€ôQ•áÑM•±•Ñ¥½¸¹É•…Ñ”¡‘½Œ°€Ä°€à¤ì(€±•Ð½µµ…¹‘UÍ•€ô™…±Í”ì(€½¹ÍÐ•‘¥Ñ½È€ôìÍÑ…Ñ”èì‘½Œ°Í•±•Ñ¥½¸°Í¡•µ„ô°¡…¥¸ ¤ì½µµ…¹‘UÍ•€ôÑÉÕ”ìÑ¡É½Ü¹•ÜÉÉ½È Ÿ’â7–êS–"o–îëšòS–ë’ê/–*„œ¤ìôôì(€½¹ÍÐÉ•ÍÕ±Ð€ô…ÁÁ±å5½‘”¡•‘¥Ñ½È°¹Õ±°°‘•™…Õ±ÑM•ÑÑ¥¹Ì ¤°€™É•”œ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡É•ÍÕ±Ð¹½¬°™…±Í”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡½µµ…¹‘UÍ•°™…±Í”¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡‘½Œ¹Ñ½)M=8 ¤°ìÑåÁ”è€‘½Œœ°½¹Ñ•¹ÐèmìÑåÁ”è€Á…É…É…Á œ°½¹Ñ•¹ÐèmìÑåÁ”è€Ñ•áÐœ°Ñ•áÐè€Ÿž²³’âšºÔœõtô°ìÑåÁ”è€Á…É…É…Á œ°½¹Ñ•¹ÐèmìÑåÁ”è€Ñ•áÐœ°Ñ•áÐè€Ÿž²³’ê3šºÔœõtõtô¤ì)ô¤ì()Ñ•ÍÐ Ÿ–B3’âšº×¢B÷¦'š.§–B;’â’â«šòS–ë–6W–š^Û¾ò3š¶–BG–J3–>7–BG¦'š.§¦÷¢þS–n{–ØÕ”%œ°€ ¤€ôøì(€½¹ÍÐ‘½Œ€ôÍ¡•µ„¹¹½‘” ‘½Œœ°¹Õ±°°mÍ¡•µ„¹¹½‘” Á…É…É…Á œ°¹Õ±°°l(€€€Í¡•µ„¹Ñ•áÐ œ°mÕ•5…É¬ Õ”µ„œ¥t¤°(€€€Í¡•µ„¹Ñ•áÐ 		œ°mÕ•5…É¬ Õ”µˆœ¥t¤°(€t¥t¤ì(€™½È€¡½¹ÍÐm™É½´°Ñ½t½˜mlÐ°€Ýt°lÜ°€Ñut¤ì(€€€½¹ÍÐÍÑ…Ñ”€ô‘¥Ñ½ÉMÑ…Ñ”¹É•…Ñ”¡ìÍ¡•µ„°‘½Œ°Í•±•Ñ¥½¸èQ•áÑM•±•Ñ¥½¸¹É•…Ñ”¡‘½Œ°™É½´°Ñ¼¤ô¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡Í•±•Ñ•‘MÑ½Éå%¡ìÍÑ…Ñ”ô¤°€Õ”µˆœ¤ì(€ô)ô¤ì()Ñ•ÍÐ Ÿšº×¢B÷š.[šRû’ös’âë’â’â«–>¿šJ“¦R’ê/–*‡¾ò3šJ“¦R¦7–k–B3š^Û¢þc–:¦†ë–ê?–J3žî%œ°€ ¤€ôøì(€½¹ÍÐ™Õ±±M¡•µ„€ô•ÑM¡•µ„¡mMÑ…ÉÑ•É-¥Ð°U¹¥ÅÕ•%¹½¹™¥ÕÉ”¡ìÑåÁ•ÌèlÁ…É…É…Á t°…ÑÑÉ¥‰ÕÑ•9…µ”è€Á…É…É…Á¡%œô¤°Õ•5…É¬°MÑ½ÉåÑÑÉ¥‰ÕÑ•Ít¤ì(€½¹ÍÐ‘½Œ€ô™Õ±±M¡•µ„¹¹½‘” ‘½Œœ°¹Õ±°°l(€€€™Õ±±M¡•µ„¹¹½‘” Á…É…É…Á œ°ìÁ…É…É…Á¡%è€Àµ„œ°É½ÕÁ%è€É½ÕÀµ„œô°™Õ±±M¡•µ„¹Ñ•áÐ ŸžRÈœ¤¤°(€€€™Õ±±M¡•µ„¹¹½‘” Á…É…É…Á œ°ìÁ…É…É…Á¡%è€Àµˆœ°É½ÕÁ%è¹Õ±°ô°™Õ±±M¡•µ„¹Ñ•áÐ Ÿ’ædœ¤¤°(€t¤ì(€±•ÐÍÑ…Ñ”€ô‘¥Ñ½ÉMÑ…Ñ”¹É•…Ñ”¡ìÍ¡•µ„è™Õ±±M¡•µ„°‘½Œ°Á±Õ¥¹Ìèm¡¥ÍÑ½Éä ¥tô¤ì(€½¹ÍÐ•‘¥Ñ½È€ôì(€€€•ÐÍÑ…Ñ” ¤ìÉ•ÑÕÉ¸ÍÑ…Ñ”ìô°(€€€Í¡•µ„è™Õ±±M¡•µ„°(€€€Ù¥•Üèì‘¥ÍÁ…Ñ ¡ÑÉ…¹Í…Ñ¥½¸¤ìÍÑ…Ñ”€ôÍÑ…Ñ”¹…ÁÁ±ä¡ÑÉ…¹Í…Ñ¥½¸¤ìôô°(€ôì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡µ½Ù•‘¥Ñ½ÉA…É…É…Á¡Ì¡•‘¥Ñ½È°mì¥è€Àµˆœ°É½ÕÁ%è€É½ÕÀµ„œô°ì¥è€Àµ„œ°É½ÕÁ%è¹Õ±°õt¤°ÑÉÕ”¤ì(€½¹ÍÐÍ¹…ÁÍ¡½Ð€ô€ ¤€ôøÍÑ…Ñ”¹‘½Œ¹½¹Ñ•¹Ð¹½¹Ñ•¹Ð¹µ…À ¡¹½‘”¤€ôøm¹½‘”¹…ÑÑÉÌ¹Á…É…É…Á¡%°¹½‘”¹…ÑÑÉÌ¹É½ÕÁ%°¹½‘”¹Ñ•áÑ½¹Ñ•¹Ñt¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡Í¹…ÁÍ¡½Ð ¤°mlÀµˆœ°€É½ÕÀµ„œ°€Ÿ’ædt°lÀµ„œ°¹Õ±°°€ŸžRÈut¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Õ¹‘¼¡ÍÑ…Ñ”°€¡ÑÉ…¹Í…Ñ¥½¸¤€ôøìÍÑ…Ñ”€ôÍÑ…Ñ”¹…ÁÁ±ä¡ÑÉ…¹Í…Ñ¥½¸¤ìô¤°ÑÉÕ”¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡Í¹…ÁÍ¡½Ð ¤°mlÀµ„œ°€É½ÕÀµ„œ°€ŸžRÈt°lÀµˆœ°¹Õ±°°€Ÿ’ædut¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡É•‘¼¡ÍÑ…Ñ”°€¡ÑÉ…¹Í…Ñ¥½¸¤€ôøìÍÑ…Ñ”€ôÍÑ…Ñ”¹…ÁÁ±ä¡ÑÉ…¹Í…Ñ¥½¸¤ìô¤°ÑÉÕ”¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡Í¹…ÁÍ¡½Ð ¤°mlÀµˆœ°€É½ÕÀµ„œ°€Ÿ’ædt°lÀµ„œ°¹Õ±°°€ŸžRÈut¤ì)ô¤ì()Ñ•ÍÐ $ƒ–îë¢º»šVÓš&çš¶šZ’â;–:–>Ëš‚¢ºÃ’ös’âë’â’â«–>¿šJ“¦R’ê/–*„œ°€ ¤€ôøì(€½¹ÍÐ™Õ±±M¡•µ„€ô•ÑM¡•µ„¡mMÑ…ÉÑ•É-¥Ð°U¹¥ÅÕ•%¹½¹™¥ÕÉ”¡ìÑåÁ•ÌèlÁ…É…É…Á t°…ÑÑÉ¥‰ÕÑ•9…µ”è€Á…É…É…Á¡%œô¤°Õ•5…É¬°MÑ½ÉåÑÑÉ¥ˆV¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅçWFW5Ò“°¢6öç7BöÆBÒ²G—S¢vFö2rÂGG'3¢²&Wf–WuFö¶Vã¢çVÆÂÂ6†FW$–C¢v6†FW"ÖrÒÂ6öçFVçC¢°¢²G—S¢w&w&‚rÂGG'3¢²&w&„–C¢wÖrÂw&÷W–C¢vw&÷WÖrÂ×W6–5&ævS¢çVÆÂÒÂ6öçFVçC¢·²G—S¢wFW‡BrÂFW‡C¢~iz~jÚ>ihrrÕÒÒÀ¢ÒÓ°¢ÆWB7FFRÒVF—F÷%7FFRæ7&VFR‡²66†VÖ¢gVÆÅ66†VÖÂFö3¢gVÆÅ66†VÖææöFTg&öÔ¥4ôâ†öÆB’ÂÇVv–ç3¢¶†—7F÷'’‚•ÒÒ“°¢6öç7BVF—F÷"Ò²vWB7FFR‚’²&WGW&â7FFS²ÒÂ66†VÖ¢gVÆÅ66†VÖÂf–Ws¢²F—7F6‚‡G&ç67F–öâ’²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²ÒÒÓ°¢6öç7BæW‡DFö7VÖVçBÒ²G—S¢vFö2rÂ&Æö6·3¢·²G—S¢w&w&‚rÂ–C¢wÖrÂ6†–ÆG&Vã¢·²G—S¢wFW‡BrÂFW‡C¢~iKžYîjÚ>ihrrÕÒÕÒÓ°¢&WÆ6TVF—F÷$Fö7VÖVçB†VF—F÷"ÂæW‡DFö7VÖVçBÂ·²–C¢vw&÷WÖrÂ&w&„–G3¢²wÖuÒÕÒÂµÒÂw&Wf–WrÓrÂv6†FW"Ör“°¢76W'BæWVÂ‡7FFRæFö2æGG'2ç&Wf–WuFö¶VâÂw&Wf–WrÓr“°¢76W'BæWVÂ‡7FFRæFö2æGG'2æ6†FW$–BÂv6†FW"Ör“°¢76W'BæWVÂ‡7FFRæFö2çFW‡D6öçFVçBÂ~iKžYîjÚ>ihrr“°¢76W'BæWVÂ‡VæFò‡7FFRÂ‡G&ç67F–öâ’Óâ²76W'BæWVÂ‡G&ç67F–öâævWDÖWF‚v†—7F÷'’Br’ç&VFòÂfÇ6R“²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²Ò’ÂG'VR“°¢76W'BæWVÂ‡7FFRæFö2æGG'2ç&Wf–WuFö¶VâÂçVÆÂ“°¢76W'BæWVÂ‡7FFRæFö2æGG'2æ6†FW$–BÂv6†FW"Ör“°¢76W'BæWVÂ‡7FFRæFö2çFW‡D6öçFVçBÂ~iz~jÚ>ihrr“°¢76W'BæWVÂ‡&VFò‡7FFRÂ‡G&ç67F–öâ’Óâ²76W'BæWVÂ‡G&ç67F–öâævWDÖWF‚v†—7F÷'’Br’ç&VFòÂG'VR“²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²Ò’ÂG'VR“°¢76W'BæWVÂ‡7FFRæFö2æGG'2ç&Wf–WuFö¶VâÂw&Wf–WrÓr“°¢76W'BæWVÂ‡7FFRæFö2çFW‡D6öçFVçBÂ~iKžYîjÚ>ihrr“°§Ò“° §FW7B‚~iKž[îh
-~KˆîkÉNX{®jŠ[ÈþKùÞhÈhù.XZ^x+žûÈÎYî{ºÞz›®jÎXú®hù.XZ^KˆKŠ®ZÙ~zÊbrÂ‚’Óâ°¢6öç7BFö2Ò66†VÖææöFR‚vFö2rÂçVÆÂÂ·66†VÖææöFR‚w&w&‚rÂçVÆÂÂ66†VÖçFW‡B‚~ZèÎi[NjÚ>ihrrÂ¶7VTÖ&²‚w6fRÖ7VRr•Ò’•Ò“°¢f÷"†6öç7B÷W&F–öâöb²wF6‚rÂvÖöFRuÒ’°¢ÆWB7FFRÒVF—F÷%7FFRæ7&VFR‡²66†VÖÂFö2Â6VÆV7F–öã¢FW‡E6VÆV7F–öâæ7&VFR†Fö2Â2’Ò“°¢6öç7BVF—F÷"Ò²vWB7FFR‚’²&WGW&â7FFS²ÒÂ66†VÖÂf–Ws¢²F—7F6‚‡G&ç67F–öâ’²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²ÒÒÓ°¢–b†÷W&F–öâÓÓÒwF6‚r’76W'BæWVÂ†Ç”7VUF6‚†VF—F÷"Âw6fRÖ7VRrÂFVfVÇE6WGF–æw2‚’Â²föçE6—¦S¢s"Ò’ÂG'VR“°¢VÇ6R76W'BæWVÂ†Ç”ÖöFR†VF—F÷"Âw6fRÖ7VRrÂFVfVÇE6WGF–æw2‚’Âvg&VRr’æö²ÂG'VR“°¢76W'BæWVÂ‡7FFRç6VÆV7F–öâæg&öÒÂ2“°¢76W'BæWVÂ‡7FFRç6VÆV7F–öâçFòÂ2“°¢76W'BæWVÂ‡7FFRæFö2çFW‡D6öçFVçBÂ~ZèÎi[NjÚ>ihrr“°¢7FFRÒ7FFRæÇ’‡7FFRçG"æ–ç6W'EFW‡B‚rr’“°¢76W'BæWVÂ‡7FFRæFö2çFW‡D6öçFVçBÂ~ZèÎi[BjÚ>ihrr“°¢76W'BæWVÂ‡7FFRæFö2ææöFTBƒ’æÖ&·2æf–æB‚†Ö&²’ÓâÖ&²çG—RææÖRÓÓÒv7VRr’æGG'2æ7VT–BÂw6fRÖ7VRr“°¢Ð§Ò“°§FW7B‚~[îh
-~KúîiKžKùÞyYži‹î[Èþih~ZÙ~˜žXË®ûÈÎ[›nK‰NKˆÞ[nZI®jë^˜žXË®iKžh‰šinXúRrÂ‚’Óâ°¢6öç7BFö2Ò66†VÖææöFR‚vFö2rÂçVÆÂÂ·66†VÖææöFR‚w&w&‚rÂçVÆÂÂ66†VÖçFW‡B‚~zÊÎKˆjëRrÂ¶7VTÖ&²‚vf—'7Br•Ò’’Â66†VÖææöFR‚w&w&‚rÂçVÆÂÂ66†VÖçFW‡B‚~zÊÎK¨ÎjëRrÂ¶7VTÖ&²‚w6V6öæBr•Ò’•Ò“°¢ÆWB7FFRÒVF—F÷%7FFRæ7&VFR‡²66†VÖÂFö2Â6VÆV7F–öã¢FW‡E6VÆV7F–öâæ7&VFR†Fö2Â"Â‚’Ò“°¢6öç7BVF—F÷"Ò²vWB7FFR‚’²&WGW&â7FFS²ÒÂ66†VÖÂf–Ws¢²F—7F6‚‡G&ç67F–öâ’²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²ÒÒÓ°¢Ç”7VUF6‚†VF—F÷"Âw6V6öæBrÂFVfVÇE6WGF–æw2‚’Â²GW&F–öä×3¢SÒ“°¢76W'BæFVWWVÂ…·7FFRç6VÆV7F–öâæg&öÒÂ7FFRç6VÆV7F–öâçFõÒÂ³"Â…Ò“°¢76W'BæWVÂ‡7FFRæFö2çFW‡D6öçFVçBÂ~zÊÎKˆjë^zÊÎK¨ÎjëRr“°§Ò“°§FW7B‚~‹ùî{ºÒ7VRy¨N[îh
-~KúîiKžKùÞyYžyºîjr”NûÈÎKˆÞh¨®YîXú^j~h‰X˜ÞXúRrÂ‚’Óâ°¢6öç7BFö2Ò66†VÖææöFR‚vFö2rÂçVÆÂÂ·66†VÖææöFR‚w&w&‚rÂçVÆÂÂ·66†VÖçFW‡B‚~yK"rÂ¶7VTÖ&²‚vr•Ò’Â66†VÖçFW‡B‚~K™’rÂ¶7VTÖ&²‚v"r•Ò•Ò•Ò“°¢ÆWB7FFRÒVF—F÷%7FFRæ7&VFR‡²66†VÖÂFö2Â6VÆV7F–öã¢FW‡E6VÆV7F–öâæ7&VFR†Fö2Â"’Ò“°¢6öç7BVF—F÷"Ò²vWB7FFR‚’²&WGW&â7FFS²ÒÂ66†VÖÂf–Ws¢²F—7F6‚‡G&ç67F–öâ’²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²ÒÒÓ°¢Ç”7VUF6‚†VF—F÷"Âv"rÂFVfVÇE6WGF–æw2‚’Â²föçE6—¦S¢cÒ“°¢76W'BæFVWWVÂ†7VT–G2‡7FFRæFö2’Â²vrÂv"uÒ“°§Ò“°§FW7B‚~{¹>ièNi8ÞKÙÎZK‹J^KˆÞXùK¨¾XªûÈÎh‰X©þYîXènXû.j~ŠëKˆî{¸N[Ù.[îKˆ‹[~i*N™HrÂ‚’Óâ°¢6öç7BgVÆÅ66†VÖÒvWE66†VÖ…µ7F'FW$¶—BÂVæ—VT”Bæ6öæf–wW&R‡²G—W3¢²w&w&‚uÒÂGG&–'WFTæÖS¢w&w&„–BrÒ’Â7VTÖ&²Â7F÷'”GG&–'WFW5Ò“°¢6öç7BFö2ÒgVÆÅ66†VÖææöFR‚vFö2rÂ²6†FW$–C¢v6†FW"ÖrÒÂ¶gVÆÅ66†VÖææöFR‚w&w&‚rÂ²&w&„–C¢vrÒÂgVÆÅ66†VÖçFW‡B‚~jÚ>ihrr’•Ò“°¢ÆWB7FFRÒVF—F÷%7FFRæ7&VFR‡²66†VÖ¢gVÆÅ66†VÖÂFö2ÂÇVv–ç3¢¶†—7F÷'’‚•ÒÒ“°¢ÆWBF—7F6†VBÒ°¢6öç7BVF—F÷"Ò²vWB7FFR‚’²&WGW&â7FFS²ÒÂ66†VÖ¢gVÆÅ66†VÖÂf–Ws¢²F—7F6‚‡G&ç67F–öâ’²F—7F6†VB²³²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²ÒÒÓ°¢76W'BæWVÂ†Ö÷fTVF—F÷%&w&‡2†VF—F÷"Â·²–C¢vÖ—76–ærrÕÒÂv&B×Fö¶Vâr’ÂfÇ6R“°¢76W'BæWVÂ†F—7F6†VBÂ“°¢76W'BæWVÂ†Ö÷fTVF—F÷%&w&‡2†VF—F÷"Â·²–C¢vrÂw&÷W–C¢væWrÖw&÷WrÕÒÂw7G'V7GW&R×Fö¶VârÂv6†FW"Ör’ÂG'VR“°¢76W'BæWVÂ‡7FFRæFö2æGG'2ç&Wf–WuFö¶VâÂw7G'V7GW&R×Fö¶Vâr“°¢76W'BæWVÂ‡7FFRæFö2æGG'2æ6†FW$–BÂv6†FW"Ör“°¢VæFò‡7FFRÂ‡G&ç67F–öâ’Óâ²7FFRÒ7FFRæÇ’‡G&ç67F–öâ“²Ò“°¢76W'BæWVÂ‡7FFRæFñZŠW¶‡âÚÞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{˜Ë˜]œËœ™]šY]ÕÚÙ[‹[
-NÂˆ\ÜÙ\™\]X[
-Ý]K™ØË™š\œÝÚ[˜]œË™Ü›Ý\Y[
-NÂˆ™YÊÝ]K
-˜[œØXÝ[ÛŠHOˆÈÝ]HHÝ]K˜\J˜[œØXÝ[ÛŠNÈJNÂˆ\ÜÙ\™\]X[
-Ý]K™ØË˜]œËœ™]šY]ÕÚÙ[‹	ÜÝXÝ\™K]ÚÙ[‰ÊNÂˆ\ÜÙ\™\]X[
-Ý]K™ØË˜]œË˜Ú\\’Y	ØÚ\\‹XIÊNÂˆ\ÜÙ\™\]X[
-Ý]K™ØË™š\œÝÚ[˜]œË™Ü›Ý\Y	Û™]ËYÜ›Ý\	ÊNÂŸJNÃB‚\Ý
-	ú`"yc.¹.¢ùb¨yi#yå*9«­z$/z(ázil;ï#:/¤ùaiKù¤©:e ùîäù§¡9cæ9c%¹¢czaãynî»ï#9.#y®!yên¹mì¹¢¥yolyîá9¨!úh¦	Ë
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { getSchema } from '@tiptap/core';
+import StarterKit from '@tiptap/starter-kit';
+import UniqueID from '@tiptap/extension-unique-id';
+import { EditorState, TextSelection } from '@tiptap/pm/state';
+import { history, redo, undo } from '@tiptap/pm/history';
+import { CueMark, StoryAttributes, applyCuePatch, applyMode, moveEditorParagraphs, replaceEditorDocument, selectedStoryId, toEditorContent } from '../src/editor/story-editor.ts';
+import { defaultSettings } from '../src/domain/model/document.mjs';
 
-HOˆÂˆÛÛœÝ[ØÚ[XHHÙ]ØÚ[XJÔÝ\\’Ú][š\]YRQ˜ÛÛ™šYÝ\™JÈ\\ÎˆÉÜ\˜YÜ˜\	×K]šX]S˜[YNˆ	Ü\˜YÜ˜\Y	ÈJKÝYSX\šËÝÜžP]šX]\×JNÂˆÛÛœÝYÚ[ˆHÝÜžP]šX]\Ë˜ÛÛ™šYË˜Y›ÜÙSZ\œ›Ü”YÚ[œÊ
-VÌWNÂˆÛÛœÝØÈH[ØÚ[XK››ÙJ	ÙØÉË[Âˆ[ØÚ[XK››ÙJ	Ü\˜YÜ˜\	ËÈ\˜YÜ˜\Yˆ	ÜXIËÜ›Ý\Yˆ	ÙËXIÈK[ØÚ[XK^
-	ùå,¹.fIÊJKˆ[ØÚ[XK››ÙJ	Ü\˜YÜ˜\	ËÈ\˜YÜ˜\Yˆ	ÜX‰ËÜ›Ý\Yˆ	ÙËXIÈK[ØÚ[XK^
-	ù.&y. IÊJKˆJNÂˆ]Ý]HHY]Ü”Ý]K˜Ü™X]JÈØÚ[XNˆ[ØÚ[XKØËYÚ[œÎˆÜYÚ[‹\ÝÜžJ
-WHJNÂˆÛÛœÝ[š]X[HYÚ[‹™Ù]Ý]JÝ]JNÂˆ\ÜÙ\™\]X[
-YÚ[‹œ›ÜË™XÛÜ˜][ÛœÊÝ]JK[š]X[
-NÂˆ\ÜÙ\™\]X[
-[š]X[™š[™
+const schema = getSchema([StarterKit, CueMark]);
+const cueMark = (id) => schema.marks.cue.create({ cueId: id, cueMeta: JSON.stringify(defaultSettings()) });
 
-K›[™ÝÊNÂˆÛÛœÝÜšYÚ[˜[ØÝ[Y[HÛØ˜[\Ë™ØÝ[Y[Âˆ]Ü™X]YHÂˆÛØ˜[\Ë™ØÝ[Y[HÈÜ™X]Q[[Y[ˆ
+function applyStoryRepairPlugin(doc) {
+  const plugin = StoryAttributes.config.addProseMirrorPlugins()[0];
+  const state = EditorState.create({ schema, plugins: [plugin] });
+  return state.applyTransaction(state.tr.replaceWith(0, 0, doc.content)).state.doc;
+}
 
-HOˆÂˆÜ™X]Y
-ÊÎÂˆ™]\›ˆÈ]\Ù]ˆßKÚ[™[Žˆ×K^ÛÛ[ˆ	ÉË\[™
-‹‹››Ù\ÊHÈ\Ë˜Ú[™[‹œ\Ú
-‹‹››Ù\ÊNÈK\[™Ú[
-›ÙJHÈ\Ë˜Ú[™[‹œ\Ú
-›ÙJNÈKY]™[\Ý[™\Š
-HßKÙ]]šX]J
-HßHNÂˆHNÂˆžHÂˆÛÛœÝXY\ˆH[š]X[™š[™
+function cueIds(doc) {
+  const ids = [];
+  doc.descendants((node) => {
+    const mark = node.marks.find((item) => item.type.name === 'cue');
+    if (mark) ids.push(mark.attrs.cueId);
+  });
+  return ids;
+}
 
-K™š[™
+test('ProseMirror repair separates duplicate cue IDs across paragraphs but preserves inline splits', () => {
+  const marked = cueMark('same-cue');
+  const duplicated = schema.node('doc', null, [
+    schema.node('paragraph', null, [schema.text('ç”²', [marked]), schema.text('ä¹™', [marked, schema.marks.bold.create()])]),
+    schema.node('paragraph', null, schema.text('ä¸™', [marked])),
+  ]);
+  const repaired = applyStoryRepairPlugin(duplicated);
+  const ids = cueIds(repaired);
+  assert.equal(ids[0], ids[1]);
+  assert.notEqual(ids[1], ids[2]);
 
-XÛÜ˜][ÛŠHOˆXÛÜ˜][Û‹œÜXËšÙ^KœÝ\ÕÚ]
-	Ü\˜YÜ˜\YÜ›Ý\ZXY\Ž‰ÊJK\KÑÓJ
-NÂˆÛÛœÝÛÛ›ÛÈH[š]X[™š[™
+  const hardBreakRun = schema.node('doc', null, [schema.node('paragraph', null, [
+    schema.text('ç”²', [marked]), schema.nodes.hardBreak.create(null, null, [marked]), schema.text('ä¹™', [marked]),
+  ])]);
+  assert.deepEqual(cueIds(applyStoryRepairPlugin(hardBreakRun)), ['same-cue', 'same-cue', 'same-cue']);
+});
 
-K™š[™
+test('è·¨æ®µåˆ‡æ¢æ¼”å‡ºä¼šè¢«æ‹’ç»ï¼ŒProseMirror æ­£æ–‡å®Œå…¨ä¸å˜', () => {
+  const doc = schema.node('doc', null, [schema.node('paragraph', null, schema.text('ç¬¬ä¸€æ®µ')), schema.node('paragraph', null, schema.text('ç¬¬äºŒæ®µ'))]);
+  const selection = TextSelection.create(doc, 1, 8);
+  let commandUsed = false;
+  const editor = { state: { doc, selection, schema }, chain() { commandUsed = true; throw new Error('ä¸åº”åˆ›å»ºæ¼”å‡ºäº‹åŠ¡'); } };
+  const result = applyMode(editor, null, defaultSettings(), 'free');
+  assert.equal(result.ok, false);
+  assert.equal(commandUsed, false);
+  assert.deepEqual(doc.toJSON(), { type: 'doc', content: [{ type: 'paragraph', content: [{ type: 'text', text: 'ç¬¬ä¸€æ®µ' }] }, { type: 'paragraph', content: [{ type: 'text', text: 'ç¬¬äºŒæ®µ' }] }] });
+});
 
-XÛÜ˜][ÛŠHOˆXÛÜ˜][Û‹œÜXËšÙ^HOOH	Ü\˜YÜ˜\XÛÛ›ÛÎœXIÊK\KÑÓJ
-NÂˆXY\‹˜Ú[™[–ÌK^ÛÛ[H	ùë+H9îá0­È9¥éyn.	ÎÂˆXY\‹˜Ú[™[–ÌWK^ÛÛ[H	ø¦jÈ9d"9¢$:acy.dØ]‰ÎÂˆÛÛ›ÛË˜Ú[™[‹˜]
-LJK^ÛÛ[H	ùë+H9îá0­È9¥éyn.	ÎÂˆÛÛœÝÛÝ[HÜ™X]YÂˆ›Üˆ
-ÛÛœÝÜÚ][ÛˆÙˆÌ‹‹WJHÂˆÝ]HHÝ]K˜\JÝ]K‹œÙ]Ù[XÝ[ÛŠ^Ù[XÝ[Û‹˜Ü™X]JÝ]K™ØËÜÚ][ÛŠJJNÂˆ\ÜÙ\™\]X[
-YÚ[‹™Ù]Ý]JÝ]JK[š]X[
-NÂˆ\ÜÙ\™\]X[
-YÚ[‹œ›ÜË™XÛÜ˜][ÛœÊÝ]JK[š]X[
-NÂˆBˆÝ]HHÝ]K˜\JÝ]K‹œÙ]Y]J	Ü\˜YÜ˜\\Ù[XÝ[Û‰ËÉÜXI×JJNÂˆ\ÜÙ\™\]X[
-YÚ[‹™Ù]Ý]JÝ]JK[š]X[
-NÂˆ\ÜÙ\™\]X[
-Ü™X]YÛÝ[
-NÂˆ\ÜÙ\™\]X[
-XY\‹˜Ú[™[–ÌK^ÛÛ[	ùë+H9îá0­È9¥éyn.	ÊNÂˆ\ÜÙ\™\]X[
-XY\‹˜Ú[™[–ÌWK^ÛÛ[	ø¦jÈ9d"9¢$:acy.dØ]‰ÊNÂˆ\ÜÙ\™\]X[
-ÛÛ›ÛË˜Ú[™[‹˜]
-LJK^ÛÛ[	ùë+H9îá0­È9¥éyn.	ÊNÂˆÝ]HHÝ]K˜\JÝ]K‹š[œÙ\^
-	ù¥¬	ËŠJNÂˆ\ÜÙ\››Ý\]X[
-YÚ[‹™Ù]Ý]JÝ]JK[š]X[
-NÂˆ\ÜÙ\™\]X[
-Ü™X]YÛÝ[	úaãynî¹.áz+¨yë¥ú(ázil;ï#Óyg*:)á¹fï¹ç'ù«húg :) y¥í¹b&ùnî‰ÊNÂˆ]\ÝHYÚ[‹™Ù]Ý]JÝ]JNÂˆ[™ÊÝ]K
-˜[œØXÝ[ÛŠHOˆÈÝ]HHÝ]K˜\J˜[œØXÝ[ÛŠNÈJNÂˆ\ÜÙ\››Ý\]X[
-YÚ[‹™Ù]Ý]JÝ]JK\Ý
-NÂˆ\ÝHYÚ[‹™Ù]Ý]JÝ]JNÂˆ™YÊÝ]K
-˜[œØXÝ[ÛŠHOˆÈÝ]HHÝ]K˜\J˜[œØXÝ[ÛŠNÈJNÂˆ\ÜÙ\››Ý\]X[
-YÚ[‹™Ù]Ý]JÝ]JK\Ý
-NÂˆÝ]HHÝ]K˜\JÝ]K‹œÙ]›ÙSX\šÝ\
-[™Yš[™YÈ‹‹œÝ]K™ØË™š\œÝÚ[˜]œËÜ›Ý\Yˆ	ÙË[™]ÉÈJJNÂˆ\ÜÙ\›ÚÊYÚ[‹™Ù]Ý]JÝ]JK™š[™
+test('åŒä¸€æ®µè½é€‰æ‹©åŽä¸€ä¸ªæ¼”å‡ºå•å…ƒæ—¶ï¼Œæ­£å‘å’Œåå‘é€‰æ‹©éƒ½è¿”å›žå…¶ cue ID', () => {
+  const doc = schema.node('doc', null, [schema.node('paragraph', null, [
+    schema.text('AAA', [cueMark('cue-a')]),
+    schema.text('BBB', [cueMark('cue-b')]),
+  ])]);
+  for (const [from, to] of [[4, 7], [7, 4]]) {
+    const state = EditorState.create({ schema, doc, selection: TextSelection.create(doc, from, to) });
+    assert.equal(selectedStoryId({ state }), 'cue-b');
+  }
+});
 
-KœÛÛYJ
-XÛÜ˜][ÛŠHOˆXÛÜ˜][Û‹œÜXËšÙ^HOOH	Ü\˜YÜ˜\YÜ›Ý\ZXY\Ž™Ë[™]ÎœXIÊJNÂˆ\ÜÙ\™\]X[
-Ý]K™ØË^ÛÛ[	ùå,¹¥¬9.fy.&y. IÊNÂˆHš[˜[HÂˆYˆ
-ÜšYÚ[˜[ØÝ[Y[OOH[™Yš[™Y
-H[]HÛØ˜[\Ë™ØÝ[Y[È[ÙHÛØ˜[\Ë™ØÝ[Y[HÜšYÚ[˜[ØÝ[Y[ÂˆBŸJNÂ‚\Ý
-	ùîäù§¡9éîùbª9£"y«­z$/HQ9d£9«­ya¡y/cyïk¹ h¹i#y«hùcãyd$z`"yc.»ï#9.#z-ìùb,9§*ù«­IË
+test('æ®µè½æ‹–æ”¾ä½œä¸ºä¸€ä¸ªå¯æ’¤é”€äº‹åŠ¡ï¼Œæ’¤é”€é‡åšåŒæ—¶è¿˜åŽŸé¡ºåºå’Œç»„ ID', () => {
+  const fullSchema = getSchema([StarterKit, UniqueID.configure({ types: ['paragraph'], attributeName: 'paragraphId' }), CueMark, StoryAttributes]);
+  const doc = fullSchema.node('doc', null, [
+    fullSchema.node('paragraph', { paragraphId: 'p-a', groupId: 'group-a' }, fullSchema.text('ç”²')),
+    fullSchema.node('paragraph', { paragraphId: 'p-b', groupId: null }, fullSchema.text('ä¹™')),
+  ]);
+  let state = EditorState.create({ schema: fullSchema, doc, plugins: [history()] });
+  const editor = {
+    get state() { return state; },
+    schema: fullSchema,
+    view: { dispatch(transaction) { state = state.apply(transaction); } },
+  };
+  assert.equal(moveEditorParagraphs(editor, [{ id: 'p-b', groupId: 'group-a' }, { id: 'p-a', groupId: null }]), true);
+  const snapshot = () => state.doc.content.content.map((node) => [node.attrs.paragraphId, node.attrs.groupId, node.textContent]);
+  assert.deepEqual(snapshot(), [['p-b', 'group-a', 'ä¹™'], ['p-a', null, 'ç”²']]);
+  assert.equal(undo(state, (transaction) => { state = state.apply(transaction); }), true);
+  assert.deepEqual(snapshot(), [['p-a', 'group-a', 'ç”²'], ['p-b', null, 'ä¹™']]);
+  assert.equal(redo(state, (transaction) => { state = state.apply(transaction); }), true);
+  assert.deepEqual(snapshot(), [['p-b', 'group-a', 'ä¹™'], ['p-a', null, 'ç”²']]);
+});
 
-HOˆÂˆÛÛœÝ[ØÚ[XOYÙ]ØÚ[XJÔÝ\\’Ú][š\]YRQ˜ÛÛ™šYÝ\™JÝ\\Î–ÉÜ\˜YÜ˜\	×K]šX]S˜[YN‰Ü\˜YÜ˜\Y	ßJKÝYSX\šËÝÜžP]šX]\×JNÂˆÛÛœÝØÏY[ØÚ[XK››ÙJ	ÙØÉË[ÉÜXIË	ÜX‰Ë	ÜXÉ×K›X\
-YO™[ØÚ[XK››ÙJ	Ü\˜YÜ˜\	ËÜ\˜YÜ˜\YšYK[ØÚ[XK^
-	ù«hù¥¡ÐPÉÊJJJNÂˆ›ÜŠÛÛœÝØ[˜ÚÜ‹XYHÙˆÖÎKWKÎK×KÌËWWJHÂˆ]Ý]OQY]Ü”Ý]K˜Ü™X]JÜØÚ[XN™[ØÚ[XKØËÙ[XÝ[ÛŽ•^Ù[XÝ[Û‹˜Ü™X]JØË[˜ÚÜ‹XY
-_JNÂˆÛÛœÝÜšYÚ[˜[VÜÝ]KœÙ[XÝ[Û‹‰[˜ÚÜ‹Ý]KœÙ[XÝ[Û‹‰XYK›X\
-ÜÏO–ÜÜËœ\™[˜]œËœ\˜YÜ˜\YÜËœ\™[Ù™œÙ]JNÂˆÛÛœÝY]Ü^ÙÙ]Ý]J
-^Ü™]\›ˆÝ]NßKØÚ[XN™[ØÚ[XKšY]ÎžÙ\Ü]Ú
-Š^ÜÝ]O\Ý]K˜\JŠNß__NÂˆ\ÜÙ\™\]X[
-[Ý™QY]Ü”\˜YÜ˜\ÊY]Ü‹ÞÚY‰ÜXÉßKÚY‰ÜX‰ËÜ›Ý\Y‰ÙË[™]ÉßKÚY‰ÜXIßWJKYJNÂˆ\ÜÙ\™Y\\]X[
-ÜÝ]KœÙ[XÝ[Û‹‰[˜ÚÜ‹Ý]KœÙ[XÝ[Û‹‰XYK›X\
-ÜÏO–ÜÜËœ\™[˜]œËœ\˜YÜ˜\YÜËœ\™[Ù™œÙ]JKÜšYÚ[˜[
-NÂˆBŸJNÂ‚\Ý
-	ÐRy¥m9êè9¦ïù£h¹/çyåfyodùbcy«­z$/Kù«hùcãyd$z`"yc.»ï#9«hù¥¡ùcæ9çëzd¬ùb-¹`cùéîù.%9¤©:e :aãy`f¹ê,ùk¦‰Ë
+test('AI å»ºè®®æ•´æ‰¹æ­£æ–‡ä¸ŽåŽ†å²æ ‡è®°ä½œä¸ºä¸€ä¸ªå¯æ’¤é”€äº‹åŠ¡', () => {
+  const fullSchema = getSchema([StarterKit, UniqueID.configure({ types: ['paragraph'], attributeName: 'paragraphId' }), CueMark, StoryAttributes]);
+  const old = { type: 'doc', attrs: { reviewToken: null, chapterId: 'chapter-a' }, content: [
+    { type: 'paragraph', attrs: { paragraphId: 'p-a', groupId: 'group-a', musicRange: null }, content: [{ type: 'text', text: 'æ—§æ­£æ–‡' }] },
+  ] };
+  let state = EditorState.create({ schema: fullSchema, doc: fullSchema.nodeFromJSON(old), plugins: [history()] });
+  const editor = { get state() { return state; }, schema: fullSchema, view: { dispatch(transaction) { state = state.apply(transaction); } } };
+  const nextDocument = { type: 'doc', blocks: [{ type: 'paragraph', id: 'p-a', children: [{ type: 'text', text: 'æ”¹åŽæ­£æ–‡' }] }] };
+  replaceEditorDocument(editor, nextDocument, [{ id: 'group-a', paragraphIds: ['p-a'] }], [], 'review-1', 'chapter-a');
+  assert.equal(state.doc.attrs.reviewToken, 'review-1');
+  assert.equal(state.doc.attrs.chapterId, 'chapter-a');
+  assert.equal(state.doc.textContent, 'æ”¹åŽæ­£æ–‡');
+  assert.equal(undo(state, (transaction) => { assert.equal(transaction.getMeta('history$').redo, false); state = state.apply(transaction); }), true);
+  assert.equal(state.doc.attrs.reviewToken, null);
+  assert.equal(state.doc.attrs.chapterId, 'chapter-a');
+  assert.equal(state.doc.textContent, 'æ—§æ­£æ–‡');
+  assert.equal(redo(state, (transaction) => { assert.equal(transaction.getMeta('history$').redo, true); state = state.apply(transaction); }), true);
+  assert.equal(state.doc.attrs.reviewToken, 'review-1');
+  assert.equal(state.doc.textContent, 'æ”¹åŽæ­£æ–‡');
+});
 
-HOˆÂˆÛÛœÝ[ØÚ[XOYÙ]ØÚ[XJÔÝ\\’Ú][š\]YRQ˜ÛÛ™šYÝ\™JÝ\\Î–ÉÜ\˜YÜ˜\	×K]šX]S˜[YN‰Ü\˜YÜ˜\Y	ßJKÝYSX\šËÝÜžP]šX]\×JNÂˆÛÛœÝØÝ[Y[^Ý\N‰ÙØÉË›ØÚÜÎ–ÉØIË	Ø‰Ë	ØÉË	Ù	×K›X\
-YOŠÝ\N‰Ü\˜YÜ˜\	ËY‰ÜIÊÚYÚ[™[Ž–ÞÝ\N‰Ý^	Ë^‰ùc§ùiâù«hù¥¡ÐPÑj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^E'}]}))};
+test('æ”¹å±žæ€§ä¸Žæ¼”å‡ºæ¨¡å¼ä¿æŒæ’å…¥ç‚¹ï¼ŒåŽç»­ç©ºæ ¼åªæ’å…¥ä¸€ä¸ªå­—ç¬¦', () => {
+  const doc = schema.node('doc', null, [schema.node('paragraph', null, schema.text('å®Œæ•´æ­£æ–‡', [cueMark('safe-cue')]))]);
+  for (const operation of ['patch', 'mode']) {
+    let state = EditorState.create({ schema, doc, selection: TextSelection.create(doc, 3) });
+    const editor = { get state() { return state; }, schema, view: { dispatch(transaction) { state = state.apply(transaction); } } };
+    if (operation === 'patch') assert.equal(applyCuePatch(editor, 'safe-cue', defaultSettings(), { fontSize: 72 }), true);
+    else assert.equal(applyMode(editor, 'safe-cue', defaultSettings(), 'free').ok, true);
+    assert.equal(state.selection.from, 3);
+    assert.equal(state.selection.to, 3);
+    assert.equal(state.doc.textContent, 'å®Œæ•´æ­£æ–‡');
+    state = state.apply(state.tr.insertText(' '));
+    assert.equal(state.doc.textContent, 'å®Œæ•´ æ­£æ–‡');
+    assert.equal(state.doc.nodeAt(1).marks.find((mark) => mark.type.name === 'cue').attrs.cueId, 'safe-cue');
+  }
+});
+test('å±žæ€§ä¿®æ”¹ä¿ç•™æ˜¾å¼æ–‡å­—é€‰åŒºï¼Œå¹¶ä¸”ä¸å°†å¤šæ®µé€‰åŒºæ”¹æˆé¦–å¥', () => {
+  const doc = schema.node('doc', null, [schema.node('paragraph', null, schema.text('ç¬¬ä¸€æ®µ', [cueMark('first')])), schema.node('paragraph', null, schema.text('ç¬¬äºŒæ®µ', [cueMark('second')]))]);
+  let state = EditorState.create({ schema, doc, selection: TextSelection.create(doc, 2, 8) });
+  const editor = { get state() { return state; }, schema, view: { dispatch(transaction) { state = state.apply(transaction); } } };
+  applyCuePatch(editor, 'second', defaultSettings(), { durationMs: 5000 });
+  assert.deepEqual([state.selection.from, state.selection.to], [2, 8]);
+  assert.equal(state.doc.textContent, 'ç¬¬ä¸€æ®µç¬¬äºŒæ®µ');
+});
+test('è¿žç»­ cue çš„å±žæ€§ä¿®æ”¹ä¿ç•™ç›®æ ‡ IDï¼Œä¸æŠŠåŽå¥æ ‡æˆå‰å¥', () => {
+  const doc = schema.node('doc', null, [schema.node('paragraph', null, [schema.text('ç”²', [cueMark('a')]), schema.text('ä¹™', [cueMark('b')])])]);
+  let state = EditorState.create({ schema, doc, selection: TextSelection.create(doc, 2) });
+  const editor = { get state() { return state; }, schema, view: { dispatch(transaction) { state = state.apply(transaction); } } };
+  applyCuePatch(editor, 'b', defaultSettings(), { fontSize: 60 });
+  assert.deepEqual(cueIds(state.doc), ['a', 'b']);
+});
+test('ç»“æž„æ“ä½œå¤±è´¥ä¸å‘äº‹åŠ¡ï¼ŒæˆåŠŸåŽåŽ†å²æ ‡è®°ä¸Žç»„å½’å±žä¸€èµ·æ’¤é”€', () => {
+  const fullSchema = getSchema([StarterKit, UniqueID.configure({ types: ['paragraph'], attributeName: 'paragraphId' }), CueMark, StoryAttributes]);
+  const doc = fullSchema.node('doc', { chapterId: 'chapter-a' }, [fullSchema.node('paragraph', { paragraphId: 'a' }, fullSchema.text('æ­£æ–‡'))]);
+  let state = EditorState.create({ schema: fullSchema, doc, plugins: [history()] });
+  let dispatched = 0;
+  const editor = { get state() { return state; }, schema: fullSchema, view: { dispatch(transaction) { dispatched++; state = state.apply(transaction); } } };
+  assert.equal(moveEditorParagraphs(editor, [{ id: 'missing' }], 'bad-token'), false);
+  assert.equal(dispatched, 0);
+  assert.equal(moveEditorParagraphs(editor, [{ id: 'a', groupId: 'new-group' }], 'structure-token', 'chapter-a'), true);
+  assert.equal(state.doc.attrs.reviewToken, 'structure-token');
+  assert.equal(state.doc.attrs.chapterId, 'chapter-a');
+  undo(state, (transaction) => { state = state.apply(transaction); });
+  assert.equal(state.doc.attrs.reviewToken, null);
+  assert.equal(state.doc.firstChild.attrs.groupId, null);
+  redo(state, (transaction) => { state = state.apply(transaction); });
+  assert.equal(state.doc.attrs.reviewToken, 'structure-token');
+  assert.equal(state.doc.attrs.chapterId, 'chapter-a');
+  assert.equal(state.doc.firstChild.attrs.groupId, 'new-group');
+});
+
+test('é€‰åŒºäº‹åŠ¡å¤ç”¨æ®µè½è£…é¥°ï¼Œè¾“å…¥/æ’¤é”€/ç»“æž„å˜åŒ–æ‰é‡å»ºï¼Œä¸æ¸…ç©ºå·²æŠ•å½±ç»„æ ‡é¢˜', () => {
+  const fullSchema = getSchema([StarterKit, UniqueID.configure({ types: ['paragraph'], attributeName: 'paragraphId' }), CueMark, StoryAttributes]);
+  const plugin = StoryAttributes.config.addProseMirrorPlugins()[1];
+  const doc = fullSchema.node('doc', null, [
+    fullSchema.node('paragraph', { paragraphId: 'p-a', groupId: 'g-a' }, fullSchema.text('ç”²ä¹™')),
+    fullSchema.node('paragraph', { paragraphId: 'p-b', groupId: 'g-a' }, fullSchema.text('ä¸™ä¸')),
+  ]);
+  let state = EditorState.create({ schema: fullSchema, doc, plugins: [plugin, history()] });
+  const initial = plugin.getState(state);
+  assert.equal(plugin.props.decorations(state), initial);
+  assert.equal(initial.find().length, 3);
+  const originalDocument = globalThis.document;
+  let created = 0;
+  globalThis.document = { createElement: () => {
+    created++;
+    return { dataset: {}, children: [], textContent: '', append(...nodes) { this.children.push(...nodes); }, appendChild(node) { this.children.push(node); }, addEventListener() {}, setAttribute() {} };
+  } };
+  try {
+    const header = initial.find().find((decoration) => decoration.spec.key.startsWith('paragraph-group-header:')).type.toDOM();
+    const controls = initial.find().find((decoration) => decoration.spec.key === 'paragraph-controls:p-a').type.toDOM();
+    header.children[0].textContent = 'ç¬¬ 1 ç»„ Â· æ—¥å¸¸';
+    header.children[1].textContent = 'â™« åˆæˆé…ä¹.wav';
+    controls.children.at(-1).textContent = 'ç¬¬ 1 ç»„ Â· æ—¥å¸¸';
+    const count = created;
+    for (const position of [2, 6, 1]) {
+      state = state.apply(state.tr.setSelection(TextSelection.create(state.doc, position)));
+      assert.equal(plugin.getState(state), initial);
+      assert.equal(plugin.props.decorations(state), initial);
+    }
+    state = state.apply(state.tr.setMeta('paragraph-selection', ['p-a']));
+    assert.equal(plugin.getState(state), initial);
+    assert.equal(created, count);
+    assert.equal(header.children[0].textContent, 'ç¬¬ 1 ç»„ Â· æ—¥å¸¸');
+    assert.equal(header.children[1].textContent, 'â™« åˆæˆé…ä¹.wav');
+    assert.equal(controls.children.at(-1).textContent, 'ç¬¬ 1 ç»„ Â· æ—¥å¸¸');
+    state = state.apply(state.tr.insertText('æ–°', 2));
+    assert.notEqual(plugin.getState(state), initial);
+    assert.equal(created, count, 'é‡å»ºä»…è®¡ç®—è£…é¥°ï¼ŒDOMåœ¨è§†å›¾çœŸæ­£éœ€è¦æ—¶åˆ›å»º');
+    let last = plugin.getState(state);
+    undo(state, (transaction) => { state = state.apply(transaction); });
+    assert.notEqual(plugin.getState(state), last);
+    last = plugin.getState(state);
+    redo(state, (transaction) => { state = state.apply(transaction); });
+    assert.notEqual(plugin.getState(state), last);
+    state = state.apply(state.tr.setNodeMarkup(0, undefined, { ...state.doc.firstChild.attrs, groupId: 'g-new' }));
+    assert.ok(plugin.getState(state).find().some((decoration) => decoration.spec.key === 'paragraph-group-header:g-new:p-a'));
+    assert.equal(state.doc.textContent, 'ç”²æ–°ä¹™ä¸™ä¸');
+  } finally {
+    if (originalDocument === undefined) delete globalThis.document; else globalThis.document = originalDocument;
+  }
+});
+
+test('ç»“æž„ç§»åŠ¨æŒ‰æ®µè½ ID å’Œæ®µå†…ä½ç½®æ¢å¤æ­£åå‘é€‰åŒºï¼Œä¸è·³åˆ°æœ«æ®µ', () => {
+  const fullSchema=getSchema([StarterKit, UniqueID.configure({types:['paragraph'],attributeName:'paragraphId'}), CueMark,StoryAttributes]);
+  const doc=fullSchema.node('doc',null,['p-a','p-b','p-c'].map(id=>fullSchema.node('paragraph',{paragraphId:id},fullSchema.text('æ­£æ–‡ABC'))));
+  for(const [anchor,head] of [[9,9],[9,3],[3,9]]) {
+    let state=EditorState.create({schema:fullSchema,doc,selection:TextSelection.create(doc,anchor,head)});
+    const original=[state.selection.$anchor,state.selection.$head].map(pos=>[pos.parent.attrs.paragraphId,pos.parentOffset]);
+    const editor={get state(){return state;},schema:fullSchema,view:{dispatch(tr){state=state.apply(tr);}}};
+    assert.equal(moveEditorParagraphs(editor,[{id:'p-c'},{id:'p-b',groupId:'g-new'},{id:'p-a'}]),true);
+    assert.deepEqual([state.selection.$anchor,state.selection.$head].map(pos=>[pos.parent.attrs.paragraphId,pos.parentOffset]),original);
+  }
+});
+
+test('AIæ•´ç« æ›¿æ¢ä¿ç•™å½“å‰æ®µè½/æ­£åå‘é€‰åŒºï¼Œæ­£æ–‡å˜çŸ­é’³åˆ¶åç§»ä¸”æ’¤é”€é‡åšç¨³å®š', () => {
+  const fullSchema=getSchema([StarterKit,UniqueID.configure({types:['paragraph'],attributeName:'paragraphId'}),CueMark,StoryAttributes]);
+  const document={type:'doc',blocks:['a','b','c','d'].map(id=>({type:'paragraph',id:'p-'+id,children:[{type:'text',text:'åŽŸå§‹æ­£æ–‡ABCDE'}]}))};
   const doc=fullSchema.nodeFromJSON(toEditorContent(document));
   const positions=new Map();
   doc.forEach((node,pos)=>positions.set(node.attrs.paragraphId,pos+1));

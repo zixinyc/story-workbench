@@ -1,91 +1,244 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞI•…Ğ°ìÕÍ•…±±‰…¬°ÕÍ•™™•Ğ°ÕÍ•5•µ¼°ÕÍ•I•˜°ÕÍ•MÑ…Ñ”°ÕÍ•Må¹áÑ•É¹…±MÑ½É”ô™É½´€É•…Ğœì4)¥µÁ½ÉĞìÉ•…Ñ•I½½Ğô™É½´€É•…Ğµ‘½´½±¥•¹Ğœì4)¥µÁ½ÉĞì‘¥Ñ½É½¹Ñ•¹Ğ°ÕÍ•‘¥Ñ½Èô™É½´€Ñ¥ÁÑ…À½É•…Ğœì4)¥µÁ½ÉĞìQ•áÑM•±•Ñ¥½¸ô™É½´€Ñ¥ÁÑ…À½Á´½ÍÑ…Ñ”œì4)¥µÁ½ÉĞMÑ…ÉÑ•É-¥Ğ™É½´€Ñ¥ÁÑ…À½ÍÑ…ÉÑ•Èµ­¥Ğœì4)¥µÁ½ÉĞ½±½È™É½´€Ñ¥ÁÑ…À½•áÑ•¹Í¥½¸µ½±½Èœì4)¥µÁ½ÉĞìQ•áÑMÑå±”ô™É½´€Ñ¥ÁÑ…À½•áÑ•¹Í¥½¸µÑ•áĞµÍÑå±”œì4)¥µÁ½ÉĞA±…•¡½±‘•È™É½´€Ñ¥ÁÑ…À½•áÑ•¹Í¥½¸µÁ±…•¡½±‘•Èœì4)¥µÁ½ÉĞU¹¥ÅÕ•%™É½´€Ñ¥ÁÑ…À½•áÑ•¹Í¥½¸µÕ¹¥ÅÕ”µ¥œì4)¥µÁ½ÉĞ)Mi¥À™É½´€©Íé¥Àœì4)¥µÁ½ÉĞìÉ•…Ñ•	±…¹­AÉ½©•Ğ°É•…Ñ••µ½AÉ½©•Ğ°¹½Éµ…±¥é•AÉ½©•Ñ9…µ”°É•¹…µ•AÉ½©•Ğ°Ù…±¥‘…Ñ•AÉ½©•Ğô™É½´€œ¸½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ğ¹µ©Ìœì4)¥µÁ½ÉĞì…Ñ¥Ù•¡…ÁÑ•È°…‘‘¡…ÁÑ•È°É•…Ñ•µÁÑåA…É…É…Á¡É½ÕÀ°É•…Ñ•A…É…É…Á¡É½ÕÀ°µ½Ù•A…É…É…Á¡É½ÕÀ°µ½Ù•A…É…É…Á¡Ì°µÕÍ¥I…¹•Ğ°µÕÍ¥I…¹•A…É…É…Á¡%‘Ì°¹½Éµ…±¥é•¡…ÁÑ•É9…µ”°¹½Éµ…±¥é•A…É…É…Á¡É½ÕÁ9…µ”°É•½¹¥±•¡…ÁÑ•É½Õµ•¹Ğ°É•µ½Ù•¡…ÁÑ•È°É•µ½Ù•5ÕÍ¥I…¹”°É•µ½Ù•A…É…É…Á¡É½ÕÀ°É•¹…µ•¡…ÁÑ•È°É•¹…µ•A…É…É…Á¡É½ÕÀ°É•½É‘•É¡…ÁÑ•È°É•Á±…•5ÕÍ¥I…¹”°Í•ÑÉ½ÕÁ½±±…ÁÍ•°Í•Ñ5ÕÍ¥I…¹”°ÕÁ‘…Ñ•¡…ÁÑ•Èô™É½´€œ¸½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì4)¥µÁ½ÉĞì½µÁ¥±•½Õµ•¹Ğ°‘•™…Õ±ÑM•ÑÑ¥¹Ì°µ…­•%°Á±…¥¹Q•áĞ°É•Í½±Ù•MÑ…Ñ”°Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ìô™É½´€œ¸½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ğ¹µ©Ìœì4)¥µÁ½ÉĞìÉ•…Ñ•A±…å•È°Á±…å‰…­MÑ…ÉÑ%¹‘•àô™É½´€œ¸½ÉÕ¹Ñ¥µ”½Á±…å•È¹µ©Ìœì4)¥µÁ½ÉĞìÉ•…Ñ•¡…ÁÑ•É5•‘¥…½¹ÑÉ½±±•Èô™É½´€œ¸½ÉÕ¹Ñ¥µ”½¡…ÁÑ•Èµµ•‘¥„µ½¹ÑÉ½±±•È¹µ©Ìœì4)¥µÁ½ÉĞì½‰©•ÑUÉ°°É•½É‘ÍÉ½µ¥±•Ì°É•Ù½­•U¹ÕÍ•‘UÉ±Ì°‘¥ÍÁ½Í•UÉ±Ìô™É½´€œ¸½…ÍÍ•ÑÌ½µ…¹…•È¹µ©Ìœì4)¥µÁ½ÉĞìÉ•…Ñ•AÉ½©•ÑÉ¡¥Ù”°É•…‘AÉ½©•ÑÉ¡¥Ù”ô™É½´€œ¸½Á•ÉÍ¥ÍÑ•¹”½…É¡¥Ù”¹µ©Ìœì4)¥µÁ½ÉĞìÉ•½Ù•É5¥ÍÍ¥¹]½É­ÍÁ…”ô™É½´€œ¸½Á•ÉÍ¥ÍÑ•¹”½ÍÑ…ÉÑÕÀµÉ•½Ù•Éä¹µ©Ìœì4)¥µÁ½ÉĞì…ÁÁ•¹‘‘¥Ñ½ÉA…É…É…Á¡Ì°…ÁÁ±åÕ•A…Ñ °…ÁÁ±å5½‘”°Õ•5…É¬°™É½µ‘¥Ñ½É½¹Ñ•¹Ğ°™¥¹‘Õ•I…¹”°µ½Ù•‘¥Ñ½ÉA…É…É…Á¡Ì°ÁÉ½©•ÑA…É…É…Á¡•½É…Ñ¥½¹Ì°É•Á±…•‘¥Ñ½É½Õµ•¹Ğ°Í•±•Ñ•‘MÑ½Éå%°Í•±•Ñ•‘A…É…É…Á¡%‘Ì…ÌÉ•…‘M•±•Ñ•‘A…É…É…Á¡%‘Ì°MÑ½ÉåÑÑÉ¥‰ÕÑ•Ì°Ñ½‘¥Ñ½É½¹Ñ•¹Ğ°ÑåÁ”Õ•M•ÑÑ¥¹Ìô™É½´€œ¸½•‘¥Ñ½È½ÍÑ½Éäµ•‘¥Ñ½Èœì4)¥µÁ½ÉĞìÉ•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğô™É½´€œ¸½•‘¥Ñ½È½Á…É…É…Á µ‘É½ÀµÑ…É•Ğ¹ÑÌœì4)¥µÁ½ÉĞìÉ•Í¥é•1…å•Èô™É½´€œ¸½•‘¥Ñ½È½±…å•ÈµÉ•Í¥é”¹µ©Ìœì4)¥µÁ½ÉĞì‰¥¹‘‘¥Ñ½ÉY¥•İ1¥ÍÑ•¹•ÉÌ°•‘¥Ñ½ÉY¥•İ½´°¥Í‘¥Ñ½ÉY¥•İI•…‘ä°½¹‘¥Ñ½ÉY¥•İ5½Õ¹Ğô™É½´€œ¸½•‘¥Ñ½È½•‘¥Ñ½ÈµÙ¥•Ü¹µ©Ìœì4)¥µÁ½ÉĞìÉ•…Ñ•A…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹I•…‘•Èô™É½´€œ¸½•‘¥Ñ½È½Á…É…É…Á µÁÉ•Í•¹Ñ…Ñ¥½¸¹µ©Ìœì4)¥µÁ½ÉĞì5•‘¥…M•ÍÍ¥½¸ô™É½´€œ¸½µ•‘¥„½µ•‘¥„µÍ•ÍÍ¥½¸œì4)¥µÁ½ÉĞìÉ•…Ñ•!Ñµ±Õ‘¥½	…­•¹ô™É½´€œ¸½µ•‘¥„½¡Ñµ°µ…Õ‘¥¼µ‰…­•¹œì4)¥µÁ½ÉĞì•áÑÉ…ÑÕ‘¥½É½µY¥‘•¼ô™É½´€œ¸½µ•‘¥„½µÀĞµ…Õ‘¥¼µ•áÑÉ…Ğœì4)¥µÁ½ÉĞì5=Q%=9}AIMQL°‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì°µ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸ô™É½´€œ¸½µ½Ñ¥½¸½•™™•ÑÌ¹µ©Ìœì4)¥µÁ½ÉĞìÕ•5½Ñ¥½¹Q•áĞô™É½´€œ¸½µ½Ñ¥½¸½Õ•5½Ñ¥½¹Q•áĞœì4)¥µÁ½ÉĞì…ÁÁ±åI•Ù¥•İ¡…¹•Ì°É•…Ñ•I•Ù¥•İÉ¡¥Ù”°É•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ°É•Ù•ÉÍ•I•Ù¥•İ¡…¹•Ì°É•Ù¥•İ!…Í °Ù…±¥‘…Ñ•I•Ù¥•İ¡…¹•Ìô™É½´€œ¸½…¤µÉ•Ù¥•Ü½É•Ù¥•ÜµÁ…­…”¹µ©Ìœì4)¥µÁ½ÉĞìÉ•…Ñ•]½É­•ÍÉ¥ÁÑ¥½¸ô™É½´€œ¸½…¤µÉ•Ù¥•Ü½İ½É¬µ‘•ÍÉ¥ÁÑ¥½¸¹µ©Ìœì4)¥µÁ½ÉĞìÁ…ÉÍ•ÉÑ¥±•Q•áĞô™É½´€œ¸½‘½µ…¥¸½µ½‘•°½…ÉÑ¥±”µ¥µÁ½ÉĞ¹µ©Ìœì4)¥µÁ½ÉĞì…ÍÍ•ÑUÍ…•Ìô™É½´€œ¸½…ÍÍ•ÑÌ½ÕÍ…”¹µ©Ìœì4)¥µÁ½ÉĞì¡…ÁÑ•ÉQ•áÑ½Õ¹ÑÌ°¥Í1…É•Q•áÑ•±•Ñ¥½¸ô™É½´€œ¸½Á•ÉÍ¥ÍÑ•¹”½Í…Ù”µÍ…™•Ñä¹µ©Ìœì4)¥µÁ½ÉĞìÙ¥‘•½A½Í¥Ñ¥½¹M•½¹‘Ìô™É½´€œ¸½ÉÕ¹Ñ¥µ”½Ù¥‘•¼µÁ½Í¥Ñ¥½¸¹µ©Ìœì4)¥µÁ½ÉĞìÍ¡½Õ±‘!…¹‘±•A±…å‰…­MÁ…”ô™É½´€œ¸½ÉÕ¹Ñ¥µ”½¡½Ñ­•åÌ¹µ©Ìœì4)¥µÁ½ÉĞìµ•É•¡…ÁÑ•É!¥ÍÑ½ÉåM¹…ÁÍ¡½Ğô™É½´€œ¸½ÉÕ¹Ñ¥µ”½¡…ÁÑ•Èµ¡¥ÍÑ½Éä¹µ©Ìœì4)¥µÁ½ÉĞì½¹Ñ•áÑ5•¹Ôô™É½´€œ¸½Õ¤½½¹Ñ•áÑ5•¹Ôœì4)¥µÁ½ÉĞì½µµ…¹‘½É-•ä°‘•™•ÉQ½9…Ñ¥Ù•5•¹Ô°•á•ÕÑ•5•¹Õ½µµ…¹°ÑåÁ”5•¹Õ½µµ…¹°ÑåÁ”5•¹Õ½¹Ñ•áĞô™É½´€œ¸½Õ¤½½¹Ñ•áĞµµ•¹Ôµµ½‘•°œì4)¥µÁ½ÉĞì‰Õ¥±‘]½É­ÍÁ…•5•¹Ô°µ•¹ÕQ¥Ñ±”°ÑåÁ”5•¹ÕÑ¥½¹Ì°ÑåÁ”5•¹Õ…ÑÌ°ÑåÁ”5•¹ÕQ…É•Ğô™É½´€œ¸½Õ¤½İ½É­ÍÁ…”µµ•¹Ôœì4)¥µÁ½ÉĞì¡•­±¥Á‰½…É‘I•™•É•¹•Ì°±¥Á‰½…É‘Q•áĞ°‘•±•Ñ•‘¥Ñ½ÉA…É…É…Á °Á…É…É…Á¡A½Í¥Ñ¥½¸°Á…ÍÑ•‘¥Ñ½É±¥Á‰½…É°Ù…±¥‘…Ñ•±¥Á‰½…É°ÑåÁ”MÑ½Éå±¥Á‰½…Éô™É½´€œ¸½•‘¥Ñ½È½½¹Ñ•áĞµ±¥Á‰½…Éœì4)¥µÁ½ÉĞ€œ¸½…ÁÀ¹ÍÌœì4(4(¡±½‰…±Q¡¥Ì…Ì…¹ä¤¹)Mi¥À€ô)Mi¥Àì4(4)ÑåÁ”I•ÍÑ½É•Y•ÉÍ¥½¸€ôì¥èÍÑÉ¥¹œìÍ…Ù•‘ĞèÍÑÉ¥¹œì‰åÑ•Ìè¹Õµ‰•ÈìÉ•…Í½¸èÍÑÉ¥¹œôì4(¼¨¨ƒšr³–rÃ–Ş—¢/–êO¦3j’âšv‡–Ş—¢/¢ºÃ–öW¾òk–>«šr'n»–öW–šVÃš6»¾ò3––ºç–>›–¶c–r£–B¢«n»–öW’â´€¨¼4)ÑåÁ”1¥‰É…Éå¹ÑÉä€ôì­•äèÍÑÉ¥¹œìÁÉ½©•Ñ%èÍÑÉ¥¹œì¹…µ”èÍÑÉ¥¹œìÉ•…Ñ•‘ĞèÍÑÉ¥¹œìÕÁ‘…Ñ•‘ĞèÍÑÉ¥¹œôì4(¼¨¨ƒ–¾ó–—š^Û–>G:Ã–êO¦3–ŞËšr'–B3’â’î÷’ös–N¾ò3–#¢º§R£š"ß–Ï–ºkš;’æ#–’B€¨¼4)ÑåÁ”%µÁ½ÉÑ…¹‘¥‘…Ñ•MÑ…Ñ”€ôì¹…µ”èÍÑÉ¥¹œì‰åÑ•ÌèU¥¹ĞáÉÉ…äìÁÉ½©•Ğè…¹äì…ÍÍ•ÑÌèÍÍ•ÑI•½É‘mtì•á¥ÍÑ¥¹œè1¥‰É…Éå¹ÑÉäôì4(¼¨¨ƒ–Ş›’úŸn»–öWj’âš²‡–ºk’ö7¾òk¢Ş£®ƒš^Û¶'ò[¢úG–f£–ÂÇî«–B;–7š&Ÿ¢†0€¨¼4)ÑåÁ”A•¹‘¥¹1½…Ñ”€ôì¡…ÁÑ•É%èÍÑÉ¥¹œì­¥¹è€É½ÕÀœğ€Á…É…É…Á œì¥èÍÑÉ¥¹œìÑ½­•¸è¹Õµ‰•Èôì4)ÑåÁ”A•¹‘¥¹5ÕÍ¥Œ€ôì¡…ÁÑ•É%èÍÑÉ¥¹œì…ÍÍ•Ñ%èÍÑÉ¥¹œìÁ…É…É…Á¡%‘ÌèÍÑÉ¥¹mtì‰…Í”è…¹äôì4)½¹ÍĞAIIA!}I€ô€…ÁÁ±¥…Ñ¥½¸½àµÍÑ½Éäµİ½É­‰•¹ µÁ…É…É…Á¡Ìœì4)½¹ÍĞU%=}I€ô€…ÁÁ±¥…Ñ¥½¸½àµÍÑ½Éäµİ½É­‰•¹ µ…Õ‘¥¼œì4)™Õ¹Ñ¥½¸Á…É…É…Á¡Q…É•Ğ¡•±•µ•¹ĞèÙ•¹ÑQ…É•Ğğ¹Õ±°¤ì4(€½¹ÍĞ¹½‘”€ô•±•µ•¹Ğ¥¹ÍÑ…¹•½˜±•µ•¹Ğ€ü•±•µ•¹Ğ¹±½Í•ÍĞñ!Q51V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅæÆVÖVçCâ‚u¶FF×&w&‚Ö–EÒÅ¶FF×&w&†–EÒr’¢çVÆÃ°Ğ¢&WGW&âæöFRò²æöFRÂ–C¢æöFRævWDGG&–'WFR‚vFF×&w&‚Ö–Br’óòæöFRævWDGG&–'WFR‚vFF×&w&†–Br’Ò¢çVÆÃ°Ğ§ĞĞ¦gVæ7F–öâVF—F÷$6öçFVçB†6†FW#¢ç’’°Ğ¢&WGW&â²ââçFôVF—F÷$6öçFVçB†6†FW"æFö7VÖVçBÂ6†FW"æw&÷W2Â6†FW"æ×W6–5&ævW2’ÂGG'3¢²6†FW$–C¢6†FW"æ–BÂ&Wf–WuFö¶Vã¢çVÆÂÒÓ°Ğ§ĞĞ§G—R76WE&V6÷&BÒ²–C¢7G&–æs²æÖS¢7G&–æs²¶–æC¢7G&–æs²Ö–ÖS¢7G&–æs²6—¦S¢çVÖ&W#²&Æö#¢&Æö#²v–GFƒó¢çVÖ&W#²†V–v‡Có¢çVÖ&W"Ó°Ğ§G—RÆöFVBÒ²&ö¦V7C¢ç“²76WG3¢76WE&V6÷&EµÓ²ÖW76vSó¢7G&–æs²Æ–'&'”¶W“¢7G&–ærÓ°Ğ¢ò¢¢‰9Ş›¹ò‰9Şy›ŞX[yJYÎKˆZY~š^™Ú.ûÈÎXú®hÚ.ŠúŞK˜ˆ›.ûÉ¾ˆ‰îXûyK¾™Ú.KˆŞ™¨şK‹¾š)XùXÉb¢ğĞ§G—RF†VÖTæÖRÒv–æ²rÂwW"s°Ğ¦6öç7BD„TÔUô´U’Òw7F÷'’×v÷&¶&Væ6‚×F†VÖRs°Ğ¦gVæ7F–öâ&VEF†VÖR‚“¢F†VÖTæÖR°Ğ¢G'’²&WGW&âv–æF÷ræÆö6Å7F÷&vRævWD—FVÒ…D„TÔUô´U’’ÓÓÒwW"ròwW"r¢v–æ²s²Ò6F6‚²&WGW&âv–æ²s²ĞĞ§ĞĞ¦gVæ7F–öâÇ•F†VÖR‡F†VÖS¢F†VÖTæÖR’°Ğ¢Fö7VÖVçBæFö7VÖVçDVÆVÖVçBæFF6WBçF†VÖRÒF†VÖS°Ğ¢G'’²v–æF÷ræÆö6Å7F÷&vRç6WD—FVÒ…D„TÔUô´U’ÂF†VÖR“²Ò6F6‚²ò¢Šë[Ù^ZK‹J^KˆŞ[ÛY8ŞKÛşyJ‚¢òĞĞ§ĞĞ§G—RÆ–W%6æ6†÷BÒ²7FGW3¢w7F÷VBrÂwÆ––ærrÂwW6VBs²–æFWƒ¢çVÖ&W#²7VS¢ç“²VÆ6VD×3¢çVÖ&W#²GW&F–öä×3¢çVÖ&W#²'VäÖöFS¢7G&–ærÂçVÆÂÓ°Ğ§G—RÆ–&6´6Æö6²Ò²6æ6†÷C¢Æ–W%6æ6†÷C²Æ—7FVæW'3¢6WCÂ‚’Óâfö–CâÓ°Ğ§G—RæÖTF–Æöu7FFRÒ²F—FÆS¢7G&–æs²f–VÆDÆ&VÃ¢7G&–æs²6öæf—&ÔÆ&VÃ¢7G&–æs²–æ—F–ÅfÇVS¢7G&–æs²FW67&—F–öãó¢7G&–æs²æ÷&ÖÆ—¦S¢‡fÇVS¢7G&–ær’Óâ7G&–æs²öä6öæf—&Ó¢‡fÇVS¢7G&–ær’Óâ7G&–ærÂVæFVf–æVBÓ°Ğ§G—R•&Wf–Wu7FFRÒ²ÖöFS¢vW‡÷'Bs²66÷UG—S¢w&ö¦V7BrÂv6†FW"rÂvw&÷W2s²–æ6ÇVFTÖVF–¢&ööÆVã²vöÃ¢7G&–ærÒÂ²ÖöFS¢v–×÷'Bs²f–ÆTæÖS¢7G&–æs²&uFW‡C¢7G&–æs²&÷÷6Ã¢ç“²6†V6¶VC¢&ööÆVåµÒÒÂ²ÖöFS¢w&ö×Bs²f–ÆUFƒ¢7G&–æs²&ö×C¢7G&–ærÓ°Ğ Ğ¦7–æ2gVæ7F–öâÖV7W&T76WG2†76WG3¢76WE&V6÷&EµÒ’°Ğ¢&WGW&â&öÖ—6RæÆÂ†76WG2æÖ†7–æ2†76WB’Óâ°Ğ¢–b†76WBæ¶–æBÓÒv–ÖvRrÇÂG—Vöb7&VFT–ÖvT&—FÖÓÒvgVæ7F–öâr’&WGW&â76WC°Ğ¢G'’°Ğ¢6öç7B&—FÖÒv—B7&VFT–ÖvT&—FÖ†76WBæ&Æö"“°Ğ¢6öç7BÖV7W&VBÒ²ââæ76WBÂv–GFƒ¢&—FÖçv–GF‚Â†V–v‡C¢&—FÖæ†V–v‡BÓ°Ğ¢&—FÖæ6Æ÷6R‚“°Ğ¢&WGW&âÖV7W&VC°Ğ¢Ò6F6‚²&WGW&â76WC²ĞĞ¢Ò’“°Ğ§ĞĞ Ğ¦7–æ2gVæ7F–öâ6´'—FW2‡&ö¦V7C¢ç’Â76WG3¢76WE&V6÷&EµÒ’°Ğ¢6öç7B&Æö"Òv—B7&VFU&ö¦V7D&6†—fR‡&ö¦V7BÂ76WG2“°Ğ¢&WGW&âæWrV–çC„'&’†v—B&Æö"æ'&”'VffW"‚’“°Ğ§ĞĞ Ğ¦7–æ2gVæ7F–öâ&VE6²†'—FW3¢V–çC„'&’ÂæÖS¢7G&–ær“¢&öÖ—6SÄöÖ—CÄÆöFVBÂvÆ–'&'”¶W’sãâ°Ğ¢6öç7B&W7VÇBÒv—B&VE&ö¦V7D&6†—fR†æWr&Æö"…¶'—FW2ç6Æ–6R‚’æ'VffW%ÒÂ²G—S¢vÆ–6F–öâ÷¦—rÒ’“°Ğ¢&WGW&â²&ö¦V7C¢&W7VÇBç&ö¦V7BÂ76WG3¢&W7VÇBæ76WG2ÂÖW76vS¢G¶æÖWÒ[{.˜	®‹ø~j
-š¨Î8&Ó°Ğ§ĞĞ Ğ¢ò¢¢h™>KˆŞ[È[z^zˆ¾i{nŠhŠëKØşiŠşY:®KˆKŠ®[z^zˆ¾ûÈÎh.ZHŞš^h˜Şyú^˜>[èY:®h.ZHÒ¢ğĞ¦6Æ72Æ–'&'”÷VäW'&÷"W‡FVæG2W'&÷"°Ğ¢Æ–'&'”¶W“¢7G&–ærÂçVÆÃ°Ğ¢6öç7G'V7F÷"†ÖW76vS¢7G&–ærÂÆ–'&'”¶W“¢7G&–ærÂçVÆÂ’°Ğ¢7WW"†ÖW76vR“°Ğ¢F†—2æÆ–'&'”¶W’ÒÆ–'&'”¶W“°Ğ¢ĞĞ§ĞĞ Ğ¢ò¢ Ğ¢¢h™>[È[z^zˆ¾[©>˜xÎy¨NKˆK»Ş[z^zˆ¾8 Ğ¢¢Xh^ZëŠû¾KˆŞX{®iÚ^i{nKéŞjÊ[	ŞŠù^ûÉ®‹ùKˆK»Ş[z^zˆ¾ˆz®[{y¨Nh.ZHŞx+’(i"h.ZHŞXènXû"şZûÎXZ^X˜ŞZH~K»Ş8 Ğ¢¢XZ˜:Šû¾KˆŞX{®iÚ^[h©¾™IûÈÎ{¹ŞKˆŞ™Ù›¹hÚ.h‰zK®Kè¾[z^zˆ¾h‰nz›®y›Ş[z^zˆ¾8 Ğ¢¢ğĞ¦7–æ2gVæ7F–öâ÷VäÆ–'&'•&ö¦V7B†¶W“¢7G&–ær“¢&öÖ—6SÄÆöFVCâ°Ğ¢6öç7B'&–FvRÒv–æF÷rç7F÷'•v÷&¶&Væ6‚æÆ–'&'“°Ğ¢6öç7B'—FW2Òv—B'&–FvRæÆöB†¶W’“°Ğ¢–b†'—FW2’°Ğ¢G'’°Ğ¢6öç7BFFÒv—B&VE6²†'—FW2Â~iÊÎiË®[z^zˆ²r“°Ğ¢&WGW&â²ââæFFÂÆ–'&'”¶W“¢¶W’Ó°Ğ¢Ò6F6‚†W'&÷"’°Ğ¢6öç7B&W7F÷&RÒv—B'&–FvRç&W7F÷&Uö–çB†¶W’“°Ğ¢–b‡&W7F÷&R’°Ğ¢6öç7BFFÒv—B&VE6²‡&W7F÷&RÂ~h.ZHŞx+’r“°Ğ¢v—B'&–FvRç&W7F÷&TÇ’†¶W’Â&W7F÷&R“°Ğ¢FFæÖW76vRÒ~j8kX¾X‹[z^zˆ¾XÈ^iziXûÈÎ[{.K¸îxºÎz¸¾h.ZHŞx+h.ZHŞ8"s°Ğ¢&WGW&â²ââæFFÂÆ–'&'”¶W“¢¶W’Ó°Ğ¢ĞĞ¢F‡&÷ræWrÆ–'&'”÷VäW'&÷"†W'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~[z^zˆ¾XÈ^izk9^Šû¾Xùn8"rÂ¶W’“°Ğ¢ĞĞ¢ĞĞ¢ò¢[Ù>X˜Ş[z^zˆ¾ih~K»n{Ë®ZKûÉ®XXXŠNijŞiŠşKˆŞiŠşšinjÊKÛşyJ8 Ğ¢iÈh.ZHŞŠøhÚî[h›îY¹îXúşyJ[z^zˆ¾ûÈÎKˆŞˆ;Şy»Nhê^ik[»®zK®Kè¾[z^zˆ¾ûÈÎY
-nX‰yJh‹~KÉ®Kº^K‹®ˆz®[{y¨N[z^zˆ¾k*KùŞZÙ‹ø~8"¢ğĞ¢6öç7B66÷VBÒ°Ğ¢ÆöE&W7F÷&S¢‚’Óâ'&–FvRç&W7F÷&Uö–çB†¶W’’ÀĞ¢ÆöD–×÷'D&6·W¢‚’Óâ'&–FvRæ–×÷'D&6·W†¶W’’ÀĞ¢Æ—7E&W7F÷&UfW'6–öç3¢‚’Óâ'&–FvRæ†—7F÷'”Æ—7B†¶W’’ÀĞ¢ÆöE&W7F÷&UfW'6–öã¢†–C¢7G&–ær’Óâ'&–FvRæ†—7F÷'”ÆöB†¶W’Â–B’ÀĞ¢Ó°Ğ¢ÆWB&V6÷fW&VC¢ç’ÒçVÆÃ°Ğ¢G'’²&V6÷fW&VBÒv—B&V6÷fW$Ö—76–æuv÷&·76R‡66÷VBÂ&VE6²“²ĞĞ¢6F6‚†W'&÷"’²F‡&÷ræWrÆ–'&'”÷VäW'&÷"†W'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~iÊÎiË®[z^zˆ¾Šû¾XùnZK‹J^8"rÂ¶W’“²ĞĞ¢–b‡&V6÷fW&VB’°Ğ¢–b‡&V6÷fW&VBç6÷W&6T'—FW2’°Ğ¢G'’²v—B'&–FvRç&W7F÷&TÇ’†¶W’Â&V6÷fW&VBç6÷W&6T'—FW2“²ĞĞ¢6F6‚²ò¢XiY¹îZK‹J^KˆŞ™‹¾Zîh™>[ÈûÈÎyJh‹~Kˆ¾jÊKùŞZÙKÉ®˜xŞik‰Şy¹‚¢òĞĞ¢ĞĞ¢ò¢iÈiÚ^k©Šû¾KˆŞX‹i{nKZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{£z ïya£y¢oú+îˆ¹c¡¹cì¹âb9§+9.ãycëùîéùîëy¢o¹fçˆ»ï#:`¨ù¦+ù.#yk§¹æ¡:+çxà ˆ
-‹ÃBˆÛÛœİ[œ™XYX›S›İHH™XÛİ™\™Y[œ™XYX›OË›[™İBˆÈ9cé¹§"H	Ü™XÛİ™\™Y[œ™XYX›K›[™İH9.*¹ h¹i#y§iy®¤:+îù.#yb,;ï&‰Ü™XÛİ™\™Y[œ™XYX›Kš›Ú[Š	ûï&ÉÊ_xà ˜Bˆˆ	ùc§ù¥¡ù.í¹§*¹b(:fi;ï#9c¡¹cì¹âb9§+9.ãycëùîéùîëy¢o¹fç¸à ‰ÎÃBˆ™]\›ˆÈ‹‹œ™XÛİ™\™YXœ˜\RÙ^NˆÙ^KY\ÜØYÙNˆ9odùbcyméyê"ù¥¡ù.í¹ï.¹i,{ï#9mì¹.ã‰Ü™XÛİ™\™Yœ™XÛİ™\™Yœ›Û_y h¹i#xà ‰İ[œ™XYX›S›İ_XNÃBˆCBˆ›İÈ™]ÈXœ˜\SÜ[‘\œ›ÜŠ	ú/æy.*¹méyê"ùg*9§+9§.¹¬¨y§"ycëú+îùcå¹æ¡9a¡yk®xà ‰ËÙ^JNÃBŸCBƒB‹ÊŠƒBˆ
-ˆ9d+ùbª;ï&¹ab9¢¢¹¥éùâb9ceyméyê"ùî¬ùaiyméyê"ùn¤ûï#9a£y¢dùo 9odùbcyméyê"øà ƒBˆ
-ˆ:/àyéîùcê¹i#yb-¹.#yb(:fi;ï&ù¥éù¥¡ù.íº+îù.#yaî¹§iy¥í¹¢¦úe&{ï#9.#y/&º(ªùodù¢$ºi¥¹«(y/oùå*¸à ƒBˆ
-‹ÃB˜\Ş[˜È[˜İ[ÛˆÜ[“Xœ˜\Q[J
-Nˆ›ÛZ\ÙOØYYˆÃBˆÛÛœİœšYÙHHÚ[™İËœİÜUÛÜšØ™[˜Ú›Xœ˜\NÃBˆ]İ]HH]ØZ]œšYÙK›\İ
+import React, { useCallback, useEffect, useMemo, useRef, useState, useSyncExternalStore } from 'react';
+import { createRoot } from 'react-dom/client';
+import { EditorContent, useEditor } from '@tiptap/react';
+import { TextSelection } from '@tiptap/pm/state';
+import StarterKit from '@tiptap/starter-kit';
+import Color from '@tiptap/extension-color';
+import { TextStyle } from '@tiptap/extension-text-style';
+import Placeholder from '@tiptap/extension-placeholder';
+import UniqueID from '@tiptap/extension-unique-id';
+import JSZip from 'jszip';
+import { createBlankProject, createDemoProject, normalizeProjectName, renameProject, validateProject } from './domain/model/project.mjs';
+import { activeChapter, addChapter, createEmptyParagraphGroup, createParagraphGroup, moveParagraphGroup, moveParagraphs, musicRangeAt, musicRangeParagraphIds, normalizeChapterName, normalizeParagraphGroupName, reconcileChapterDocument, removeChapter, removeMusicRange, removeParagraphGroup, renameChapter, renameParagraphGroup, reorderChapter, replaceMusicRange, setGroupCollapsed, setMusicRange, updateChapter } from './domain/model/chapters.mjs';
+import { compileDocument, defaultSettings, makeId, plainText, resolveState, validateCueSettings } from './domain/model/document.mjs';
+import { createPlayer, playbackStartIndex } from './runtime/player.mjs';
+import { createChapterMediaController } from './runtime/chapter-media-controller.mjs';
+import { objectUrl, recordsFromFiles, revokeUnusedUrls, disposeUrls } from './assets/manager.mjs';
+import { createProjectArchive, readProjectArchive } from './persistence/archive.mjs';
+import { recoverMissingWorkspace } from './persistence/startup-recovery.mjs';
+import { appendEditorParagraphs, applyCuePatch, applyMode, CueMark, fromEditorContent, findCueRange, moveEditorParagraphs, projectParagraphDecorations, replaceEditorDocument, selectedStoryId, selectedParagraphIds as readSelectedParagraphIds, StoryAttributes, toEditorContent, type CueSettings } from './editor/story-editor';
+import { resolveParagraphDropTarget } from './editor/paragraph-drop-target.ts';
+import { resizeLayer } from './editor/layer-resize.mjs';
+import { bindEditorViewListeners, editorViewDom, isEditorViewReady, onEditorViewMount } from './editor/editor-view.mjs';
+import { createParagraphPresentationReader } from './editor/paragraph-presentation.mjs';
+import { MediaSession } from './media/media-session';
+import { createHtmlAudioBackend } from './media/html-audio-backend';
+import { extractAudioFromVideo } from './media/mp4-audio-extract';
+import { MOTION_PRESETS, defaultMotionSettings, minimumMotionDuration } from './motion/effects.mjs';
+import { CueMotionText } from './motion/CueMotionText';
+import { applyReviewChanges, createReviewArchive, createReviewSnapshot, reverseReviewChanges, reviewHash, validateReviewChanges } from './ai-review/review-package.mjs';
+import { createWorkDescription } from './ai-review/work-description.mjs';
+import { parseArticleText } from './domain/model/article-import.mjs';
+import { assetUsages } from './assets/usage.mjs';
+import { chapterTextCounts, isLargeTextDeletion } from './persistence/save-safety.mjs';
+import { videoPositionSeconds } from './runtime/video-position.mjs';
+import { shouldHandlePlaybackSpace } from './runtime/hotkeys.mjs';
+import { mergeChapterHistorySnapshot } from './runtime/chapter-history.mjs';
+import { ContextMenu } from './ui/ContextMenu';
+import { commandForKey, deferToNativeMenu, executeMenuCommand, type MenuCommand, type MenuContext } from './ui/context-menu-model';
+import { buildWorkspaceMenu, menuTitle, type MenuActions, type MenuFacts, type MenuTarget } from './ui/workspace-menu';
+import { checkClipboardReferences, clipboardText, deleteEditorParagraph, paragraphPosition, pasteEditorClipboard, validateClipboard, type StoryClipboard } from './editor/context-clipboard';
+import './app.css';
 
-NÃBˆ]›İHH	ÉÎÃBˆYˆ
-İ]K›YØXŞT[™[™ÊHÃBˆÛÛœİYØXŞP]\ÈH]ØZ]œšYÙK›ØYYØXŞJ
-NÃBˆYˆ
-YØXŞP]\ÊHÃBˆÛÛœİZYÜ˜]YH]ØZ]™XYXÚÊYØXŞP]\Ë	ù¥éùâb9§+:!ê¹bª9/çykf9méyê"ÉÊNÃBˆ]ØZ]œšYÙK˜YÜYØXŞJYØXŞP]\ËÈ˜[YNˆZYÜ˜]Yœ›Ú™Xİ›˜[YK›Ú™XİYˆZYÜ˜]Yœ›Ú™XİšYJNÃBˆİ]HH]ØZ]œšYÙK›\İ
+(globalThis as any).JSZip = JSZip;
 
-NÃBˆ›İHH	ù¥éùâb:!ê¹bª9/çykf9méyê"ùmì¹î¬ùaiy§+9g,9méyê"ùn¤ûï#9c§ù¥¡ù.í¹.ãy/çyåfyg*9¥l9£k¹æë¹oexà ‰ÎÃBˆCBˆCBˆ]Ù^HHİ]K˜Xİ]™RÙ^NÃBˆYˆ
-ZÙ^JHÃBˆÛÛœİ[[ÈHÜ™X]Q[[Ô›Ú™Xİ
+type RestoreVersion = { id: string; savedAt: string; bytes: number; reason: string };
+/** æœ¬åœ°å·¥ç¨‹åº“é‡Œçš„ä¸€æ¡å·¥ç¨‹è®°å½•ï¼šåªæœ‰ç›®å½•å…ƒæ•°æ®ï¼Œå†…å®¹å¦å­˜åœ¨å„è‡ªç›®å½•ä¸­ */
+type LibraryEntry = { key: string; projectId: string; name: string; createdAt: string; updatedAt: string };
+/** å¯¼å…¥æ—¶å‘ç°åº“é‡Œå·²æœ‰åŒä¸€ä»½ä½œå“ï¼Œå…ˆè®©ç”¨æˆ·å†³å®šæ€ä¹ˆå¤„ç† */
+type ImportCandidateState = { name: string; bytes: Uint8Array; project: any; assets: AssetRecord[]; existing: LibraryEntry };
+/** å·¦ä¾§ç›®å½•çš„ä¸€æ¬¡å®šä½ï¼šè·¨ç« æ—¶ç­‰ç¼–è¾‘å™¨å°±ç»ªåå†æ‰§è¡Œ */
+type PendingLocate = { chapterId: string; kind: 'group' | 'paragraph'; id: string; token: number };
+type PendingMusic = { chapterId: string; assetId: string; paragraphIds: string[]; base: any };
+const PARAGRAPH_DRAG = 'application/x-story-workbench-paragraphs';
+const AUDIO_DRAG = 'application/x-story-workbench-audio';
+function paragraphTarget(element: EventTarget | null) {
+  const node = element instanceof Element ? element.closest<HTMLElement>('[data-paragraph-id],[data-paragraphid]') : null;
+  return node ? { node, id: node.getAttribute('data-paragraph-id') ?? node.getAttribute('data-paragraphid') } : null;
+}
+function editorContent(chapter: any) {
+  return { ...toEditorContent(chapter.document, chapter.groups, chapter.musicRanges), attrs: { chapterId: chapter.id, reviewToken: null } };
+}
+type AssetRecord = { id: string; name: string; kind: string; mime: string; size: number; blob: Blob; width?: number; height?: number };
+type Loaded = { project: any; assets: AssetRecord[]; message?: string; libraryKey: string };
+/** è“é»‘ / è“ç™½å…±ç”¨åŒä¸€å¥—é¡µé¢ï¼Œåªæ¢è¯­ä¹‰è‰²ï¼›èˆå°ç”»é¢ä¸éšä¸»é¢˜å˜åŒ– */
+type ThemeName = 'ink' | 'paper';
+const THEME_KEY = 'story-workbench-theme';
+function readTheme(): ThemeName {
+  try { return window.localStorage.getItem(THEME_KEY) === 'paper' ? 'paper' : 'ink'; } catch { return 'ink'; }
+}
+function applyTheme(theme: ThemeName) {
+  document.documentElement.dataset.theme = theme;
+  try { window.localStorage.setItem(THEME_KEY, theme); } catch { /* è®°å½•å¤±è´¥ä¸å½±å“ä½¿ç”¨ */ }
+}
+type PlayerSnapshot = { status: 'stopped' | 'playing' | 'paused'; index: number; cue: any; elapsedMs: number; durationMs: number; runMode: string | null };
+type PlaybackClock = { snapshot: PlayerSnapshot; listeners: Set<() => void> };
+type NameDialogState = { title: string; fieldLabel: string; confirmLabel: string; initialValue: string; description?: string; normalize: (value: string) => string; onConfirm: (value: string) => string | undefined };
+type AiReviewState = { mode: 'export'; scopeType: 'project' | 'chapter' | 'groups'; includeMedia: boolean; goal: string } | { mode: 'import'; fileName: string; rawText: string; proposal: any; checked: boolean[] } | { mode: 'prompt'; filePath: string; prompt: string };
 
-NÃBˆÛÛœİ[HH]ØZ]œšYÙK˜Ü™X]J]ØZ]XÚĞ]\Ê[[Ë×JKÈ˜[YNˆ[[Ë›˜[YK›Ú™XİYˆ[[ËšYJNÃBˆÙ^HH[KšÙ^NÃBˆ›İHH›İH	ùmì¹nî¹êâùé.¹/¢ùméyê"øà ¹.bùd#¹¥¬9nî¹æ¡9méyê"ú`ïy/&¹åfyg*9§+9g,9méyê"ùn¤úaã8à ‰ÎÃBˆCBˆÛÛœİØYYH]ØZ]Ü[“Xœ˜\T›Ú™Xİ
-Ù^JNÃBˆ™]\›ˆÈ‹‹›ØYYY\ÜØYÙNˆ›İHØYY›Y\ÜØYÙHNÃBŸCBƒB™[˜İ[Ûˆ\
+async function measureAssets(assets: AssetRecord[]) {
+  return Promise.all(assets.map(async (asset) => {
+    if (asset.kind !== 'image' || typeof createImageBitmap !== 'function') return asset;
+    try {
+      const bitmap = await createImageBitmap(asset.blob);
+      const measured = { ...asset, width: bitmap.width, height: bitmap.height };
+      bitmap.close();
+      return measured;
+    } catch { return asset; }
+  }));
+}
 
-HÃBˆÛÛœİÛØYYÙ]ØYYHH\ÙTİ]OØYY[Š[
-NÃBˆÛÛœİÜİ\\\œ›Ü‹Ù]İ\\\œ›Ü—HH\ÙTİ]J	ÉÊNÃBˆÛÛœİÙ˜Z[YÙ^KÙ]˜Z[YÙ^WHH\ÙTİ]Oİš[™È[Š[
-NÃBˆÛÛœİÜ™]PÛİ[Ù]™]PÛİ[HH\ÙTİ]J
-NÃBˆÛÛœİİ[YKÙ][YWHH\ÙTİ]O[YS˜[YOŠ™XY[YJNÃBƒBˆ\ÙQY™™Xİ
+async function packBytes(project: any, assets: AssetRecord[]) {
+  const blob = await createProjectArchive(project, assets);
+  return new Uint8Array(await blob.arrayBuffer());
+}
 
+async function readPack(bytes: Uint8Array, name: string): Promise<Omit<Loaded, 'libraryKey'>> {
+  const result = await readProjectArchive(new Blob([bytes.slice().buffer], { type: 'application/zip' }));
+  return { project: result.project, assets: result.assets, message: `${name} å·²é€šè¿‡æ ¡éªŒã€‚` };
+}
 
-HOˆÈ\U[YJ[YJNÈKİ[YWJNÃBƒBˆ\ÙQY™™Xİ
+/** æ‰“ä¸å¼€å·¥ç¨‹æ—¶è¦è®°ä½æ˜¯å“ªä¸€ä¸ªå·¥ç¨‹ï¼Œæ¢å¤é¡µæ‰çŸ¥é“å¾€å“ªæ¢å¤ */
+class LibraryOpenError extends Error {
+  libraryKey: string | null;
+  constructor(message: string, libraryKey: string | null) {
+    super(message);
+    this.libraryKey = libraryKey;
+  }
+}
 
+/**
+ * æ‰“å¼€å·¥ç¨‹åº“é‡Œçš„ä¸€ä»½å·¥ç¨‹ã€‚
+ * å†…å®¹è¯»ä¸å‡ºæ¥æ—¶ä¾æ¬¡å°è¯•ï¼šè¿™ä¸€ä»½å·¥ç¨‹è‡ªå·±çš„æ¢å¤ç‚¹ â†’ æ¢å¤å†å²/å¯¼å…¥å‰å¤‡ä»½ã€‚
+ * å…¨éƒ¨è¯»ä¸å‡ºæ¥å°±æŠ›é”™ï¼Œç»ä¸é™é»˜æ¢æˆç¤ºä¾‹å·¥ç¨‹æˆ–ç©ºç™½å·¥ç¨‹ã€‚
+ */
+async function openLibraryProject(key: string): Promise<Loaded> {
+  const bridge = window.storyWorkbench.library;
+  const bytes = await bridge.load(key);
+  if (bytes) {
+    try {
+      const data = await readPack(bytes, 'æœ¬æœºå·¥ç¨‹');
+      return { ...data, libraryKey: key };
+    } catch (error) {
+      const restore = await bridge.restorePoint(key);
+      if (restore) {
+        const data = await readPack(restore, 'æ¢å¤ç‚¹');
+        await bridge.restoreApply(key, restore);
+        data.message = 'æ£€æµ‹åˆ°å·¥ç¨‹åŒ…æ— æ•ˆï¼Œå·²ä»ç‹¬ç«‹æ¢å¤ç‚¹æ¢å¤ã€‚';
+        return { ...data, libraryKey: key };
+      }
+      throw new LibraryOpenError(error instanceof Error ? error.message : 'å·¥ç¨‹åŒ…æ— æ³•è¯»å–ã€‚', key);
+    }
+  }
+  /* å½“å‰å·¥ç¨‹æ–‡ä»¶ç¼ºå¤±ï¼šå…ˆåˆ¤æ–­æ˜¯ä¸æ˜¯é¦–æ¬¡ä½¿ç”¨ã€‚
+     æœ‰æ¢å¤è¯æ®å°±æ‰¾å›å¯ç”¨å·¥ç¨‹ï¼Œä¸èƒ½ç›´æ¥æ–°å»ºç¤ºä¾‹å·¥ç¨‹ï¼Œå¦åˆ™ç”¨æˆ·ä¼šä»¥ä¸ºè‡ªå·±çš„å·¥ç¨‹æ²¡ä¿å­˜è¿‡ã€‚ */
+  const scoped = {
+    loadRestore: () => bridge.restorePoint(key),
+    loadImportBackup: () => bridge.importBackup(key),
+    listRestoreVersions: () => bridge.historyList(key),
+    loadRestoreVersion: (id: string) => bridge.historyLoad(key, id),
+  };
+  let recovered: any = null;
+  try { recovered = await recoverMissingWorkspace(scoped, readPack); }
+  catch (error) { throw new LibraryOpenError(error instanceof Error ? error.message : 'æœ¬æœºå·¥ç¨‹è¯»å–å¤±è´¥ã€‚', key); }
+  if (recovered) {
+    if (recovered.sourceBytes) {
+      try { await bridge.restoreApply(key, recovered.sourceBytes); }
+      catch { /* å†™å›å¤±è´¥ä¸é˜»å¡æ‰“å¼€ï¼Œç”¨æˆ·ä¸‹æ¬¡ä¿å­˜ä¼šé‡æ–°è½ç›˜ */ }
+    }
+    /* æœ‰æ¥æºè¯»ä¸åˆ°æ—¶ä¸èƒ½å†æ‰¿è¯º"å†å²ç‰ˆæœ¬ä»å¯ç»§ç»­æ‰¾å›"ï¼Œé‚£æ˜¯ä¸å®çš„è¯ã€‚ */
+    const unreadableNote = recovered.unreadable?.length
+      ? `å¦æœ‰ ${recovered.unreadable.length} ä¸ªæ¢å¤æ¥æºè¯»ä¸åˆ°ï¼š${recovered.unreadable.join('ï¼›')}ã€‚`
+      : 'åŸæ–‡ä»¶æœªåˆ é™¤ï¼Œå†å²ç‰ˆæœ¬ä»å¯ç»§ç»­æ‰¾å›ã€‚';
+    return { ...recovered, libraryKey: key, message: `å½“å‰å·¥ç¨‹æ–‡ä»¶ç¼ºå¤±ï¼Œå·²ä»${recovered.recoveredFrom}æ¢å¤ã€‚${unreadableNote}` };
+  }
+  throw new LibraryOpenError('è¿™ä¸ªå·¥ç¨‹åœ¨æœ¬æœºæ²¡æœ‰å¯è¯»å–çš„å†…å®¹ã€‚', key);
+}
 
-HOˆÃBˆ]Xİ]™HHYNÃBˆ
-\Ş[˜È
+/**
+ * å¯åŠ¨ï¼šå…ˆæŠŠæ—§ç‰ˆå•å·¥ç¨‹çº³å…¥å·¥ç¨‹åº“ï¼Œå†æ‰“å¼€å½“å‰å·¥ç¨‹ã€‚
+ * è¿ç§»åªå¤åˆ¶ä¸åˆ é™¤ï¼›æ—§æ–‡ä»¶è¯»ä¸å‡ºæ¥æ—¶æŠ›é”™ï¼Œä¸ä¼šè¢«å½“æˆ"é¦–æ¬¡ä½¿ç”¨"ã€‚
+ */
+async function openLibraryEntry(): Promise<Loaded> {
+  const bridge = window.storyWorkbench.library;
+  let state = await bridge.list();
+  let note = '';
+  if (state.legacyPending) {
+    const legacyBytes = await bridge.loadLegacy();
+    if (legacyBytes) {
+      const migrated = await readPack(legacyBytes, 'æ—§ç‰ˆæœ¬è‡ªåŠ¨ä¿å­˜å·¥ç¨‹');
+      await bridge.adoptLegacy(legacyBytes, { name: migrated.project.name, projectId: migrated.project.id });
+      state = await bridge.list();
+      note = 'æ—§ç‰ˆè‡ªåŠ¨ä¿å­˜å·¥ç¨‹å·²çº³å…¥æœ¬åœ°å·¥ç¨‹åº“ï¼ŒåŸæ–‡ä»¶ä»ä¿ç•™åœ¨æ•°æ®ç›®å½•ã€‚';
+    }
+  }
+  let key = state.activeKey;
+  if (!key) {
+    const demo = createDemoProject();
+    const entry = await bridge.create(await packBytes(demo, []), { name: demo.name, projectId: demo.id });
+    key = entry.key;
+    note = note || 'å·²å»ºç«‹ç¤ºä¾‹å·¥ç¨‹ã€‚ä¹‹åæ–°å»ºçš„å·¥ç¨‹éƒ½ä¼šç•™åœ¨æœ¬åœ°å·¥ç¨‹åº“é‡Œã€‚';
+  }
+  const loaded = await openLibraryProject(key);
+  return { ...loaded, message: note || loaded.message };
+}
 
-HOˆÃBˆHÃBˆYˆ
-]Ú[™İËœİÜUÛÜšØ™[˜Ú
-H›İÈ™]È\œ›ÜŠ	ú+íù.ã¹¨c:gh¹âb9ê"ùn£ùd+ùbª9méy/g9cì8à ¹­cú)â9fj:hmzgh¹.#y£ä9/¦ùèàyææ9/çykf8à ‰ÊNÃBˆÛÛœİ]HH]ØZ]Ü[“Xœ˜\Q[J
-NÃBˆYˆ
-Xİ]™JHÈÙ]ØYY
-]JNÈÙ]˜Z[YÙ^J[
-NÈCBˆHØ]Ú
-\œ›ÜŠHÃBˆYˆ
-XXİ]™JH™]\›ÃBˆÙ]˜Z[YÙ^J\œ›Üˆ[œİ[˜Ù[ÙˆXœ˜\SÜ[‘\œ›ÜˆÈ\œ›Ü‹›Xœ˜\RÙ^Hˆ[
-NÃBˆÙ]İ\\\œ›ÜŠ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	ù§+9§.¹méyê"ú+îùcå¹i,z-)xà ‰ÊNÃBˆCBˆJJ
-NÃBˆ™]\›ˆ
+function App() {
+  const [loaded, setLoaded] = useState<Loaded | null>(null);
+  const [startupError, setStartupError] = useState('');
+  const [failedKey, setFailedKey] = useState<string | null>(null);
+  const [retryCount, setRetryCount] = useState(0);
+  const [theme, setTheme] = useState<ThemeName>(readTheme);
 
-HOˆÈXİ]™HH˜[ÙNÈNÃBˆKÜ™]PÛİ[JNÃBƒBˆYˆ
-İ\\\œ›Üˆ	‰ˆ]Ú[™İËœİÜUÛÜšØ™[˜Ú
-H™]\›ˆXZ[ˆÛ\ÜÓ˜[YOHœ™XÛİ™\K\ØÜ™Y[ˆOº+íùd+ùbª9¨c:gh¹âbÚOÜİ\\\œ›ÜŸOÜÛXZ[ÃBˆYˆ
-İ\\\œ›ÜŠH™]\›ˆ™XÛİ™\TØÜ™Y[ˆ\œ›Ü^Üİ\\\œ›ÜŸHXœ˜\RÙ^O^Ù˜Z[YÙ^_HÛ”™]O^Ê
-HOˆÈÙ]İ\\\œ›ÜŠ	ÉÊNÈÙ]™]PÛİ[
+  useEffect(() => { applyTheme(theme); }, [theme]);
 
-˜[YJHOˆ˜[YH
-ÈJNÈ_HÛ“ØYY^Ê˜[YJHOˆÈÙ]ØYY
-˜[YJNÈÙ]İ\\\œ›ÜŠ	ÉÊNÈÙ]˜Z[YÙ^J[
-NÈ_HÏÃBˆYˆ
-[ØYY
-H™]\›ˆ]ˆÛ\ÜÓ˜[YOHœİ\\[ØY[™È¹biù áyb&ù/g9méy/g9cì0­È9«hùg*9¨à9§éy§+9§.¹méyê"ø )Ù]ÃBˆ™]\›ˆÛÜšÜÜXÙHÙ^O^ÛØYYœ›Ú™XİšYH[š]X[^ÛØYYH[YO^İ[Y_HÛ•ÙÙÛU[YO^Ê
-HOˆÙ][YJ
-İ\œ™[
-HOˆİ\œ™[OOH	Ú[šÉÈÈ	Ü\\‰Èˆ	Ú[šÉÊ_HÏÃBŸCBƒB™[˜İ[Ûˆ™XÛİ™\TØÜ™Y[ŠÈ\œ›Ü‹Xœ˜\RÙ^KÛ”™]KÛ“ØYYNˆÈ\œ›Üˆİš[™ÎÈXœ˜\RÙ^Nˆİš[™È[ÈÛ”™]Nˆ
+  useEffect(() => {
+    let active = true;
+    (async () => {
+      try {
+        if (!window.storyWorkbench) throw new Error('è¯·ä»æ¡Œé¢ç‰ˆç¨‹åºå¯åŠ¨å·¥ä½œå°ã€‚æµè§ˆå™¨é¡µé¢ä¸æä¾›ç£ç›˜ä¿å­˜ã€‚');
+        const data = await openLibraryEntry();
+        if (active) { setLoaded(data); setFailedKey(null); }
+      } catch (error) {
+        if (!active) return;
+        setFailedKey(error instanceof LibraryOpenError ? error.libraryKey : null);
+        setStartupError(error instanceof Error ? error.message : 'æœ¬æœºå·¥ç¨‹è¯»å–å¤±è´¥ã€‚');
+      }
+    })();
+    return () => { active = false; };
+  }, [retryCount]);
 
-HOˆ›ÚYÈÛ“ØYYˆ
-˜[YNˆØYY
-HOˆ›ÚYJHÃBˆÛÛœİØ\ŞKÙ]\ŞWHH\ÙTİ]J˜[ÙJNÃBˆÛÛœİÛY\ÜØYÙKÙ]Y\ÜØYÙWHH\ÙTİ]J	ÉÊNÃBˆÛÛœİ[ˆH\Ş[˜È
-Xİ[Ûˆ
+  if (startupError && !window.storyWorkbench) return <main className="recovery-screen"><h1>è¯·å¯åŠ¨æ¡Œé¢ç‰ˆ</h1><p>{startupError}</p></main>;
+  if (startupError) return <RecoveryScreen error={startupError} libraryKey={failedKey} onRetry={() => { setStartupError(''); setRetryCount((value) => value + 1); }} onLoaded={(value) => { setLoaded(value); setStartupError(''); setFailedKey(null); }} />;
+  if (!loaded) return <div className="startup-loading">å‰§æƒ…åˆ›ä½œå·¥ä½œå° Â· æ­£åœ¨æ£€æŸ¥æœ¬æœºå·¥ç¨‹â€¦</div>;
+  return <Workspace key={loaded.project.id} initial={loaded} theme={theme} onToggleTheme={() => setTheme((current) => current === 'ink' ? 'paper' : 'ink')} />;
+}
 
-HOˆ›ÛZ\ÙO›ÚYŠHOˆÃBˆÙ]\ŞJYJNÃBˆÙ]Y\ÜØYÙJ	ù«hùg*9i!9ä!¸ )‰ÊNÃBˆHÈ]ØZ]Xİ[ÛŠ
-NÈCBˆØ]Ú
-Ø]\ÙJHÈÙ]Y\ÜØYÙJØ]\ÙH[œİ[˜Ù[Ùˆ\œ›ÜˆÈØ]\ÙK›Y\ÜØYÙHˆ	ùi!9ä!¹i,z-)xà ‰ÊNÈCBˆš[˜[HÈÙ]\ŞJ˜[ÙJNÈCBˆNÃBˆÊˆ9 h¹i#ycê¹bª:/æy. 9.ïyméyê"ú!ê¹mìyæ¡9i!ù.ï{ï#9.#y/&¹c®ùa¦yb*ùæ¡9méyê"ùæ¡9i%º`ê9/çykf9/cyïk¸à ˆ
-‹ÃBˆÛÛœİ™\İÜ™R[\Ü˜XÚİ\H
-
-HOˆ[Š\Ş[˜È
-
-HOˆÃBˆYˆ
-[Xœ˜\RÙ^JH›İÈ™]È\œ›ÜŠ	ù¬¨y§"ycëù h¹i#yæ¡9méyê"øà ‰ÊNÃBˆÛÛœİ]\ÈH]ØZ]Ú[™İËœİÜUÛÜšØ™[˜Ú›Xœ˜\Kš[\Ü˜XÚİ\
-Xœ˜\RÙ^JNÃBˆYˆ
-X]\ÊH›İÈ™]È\œ›ÜŠ	ù¬¨y§"ycëùå*9æ¡9kï9aiybcyi!ù.ïxà ‰ÊNÃBˆÛÛœİ™\İÜ™YH]ØZ]™XYXÚÊ]\Ë	ùkï9aiybcyi!ù.ïIÊNÃBˆ]ØZ]Ú[™İËœİÜUÛÜšØ™[˜Ú›Xœ˜\Kš[\Ü˜XÚİ\\JXœ˜\RÙ^K]\ÊNÃBˆÛ“ØYY
-È‹‹œ™\İÜ™YXœ˜\RÙ^HJNÃBˆJNÃBˆÊˆ9¢dùo 9méyê"ùc!HH9kï9aiy¢$9. 9.ïy¥¬9æ¡9méyê"ù§hyæë»ï#9.#z)¡¹æå¹odùbcz/æy.ïyméyê"øà ˆ
-‹ÃBˆÛÛœİ[\Ü˜XÚİ\š[HH
-
-HOˆ[Š\Ş[˜È
-
-HOˆÃBˆÛÛœİÙ[XİYH]ØZ]Ú[™İËœİÜUÛÜšØ™[˜Úš[\Ü›Ú™Xİ
-
-NÃBˆYˆ
-\Ù[XİY
-H™]\›ÃBˆÛÛœİ™\İÜ™YH]ØZ]™XYXÚÊÙ[XİY˜]\ËÙ[XİY›˜[YJNÃBˆÛÛœİ[HH]ØZ]Ú[™İËœİÜUÛÜšØ™[˜Ú›Xœ˜\K˜Ü™X]JÙ[XİY˜]\ËÈ˜[YNˆ™\İÜ™Yj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^.project.name, projectId: restored.project.id });
+function RecoveryScreen({ error, libraryKey, onRetry, onLoaded }: { error: string; libraryKey: string | null; onRetry: () => void; onLoaded: (value: Loaded) => void }) {
+  const [busy, setBusy] = useState(false);
+  const [message, setMessage] = useState('');
+  const run = async (action: () => Promise<void>) => {
+    setBusy(true);
+    setMessage('æ­£åœ¨å¤„ç†â€¦');
+    try { await action(); }
+    catch (cause) { setMessage(cause instanceof Error ? cause.message : 'å¤„ç†å¤±è´¥ã€‚'); }
+    finally { setBusy(false); }
+  };
+  /* æ¢å¤åªåŠ¨è¿™ä¸€ä»½å·¥ç¨‹è‡ªå·±çš„å¤‡ä»½ï¼Œä¸ä¼šå»å†™åˆ«çš„å·¥ç¨‹çš„å¤–éƒ¨ä¿å­˜ä½ç½®ã€‚ */
+  const restoreImportBackup = () => run(async () => {
+    if (!libraryKey) throw new Error('æ²¡æœ‰å¯æ¢å¤çš„å·¥ç¨‹ã€‚');
+    const bytes = await window.storyWorkbench.library.importBackup(libraryKey);
+    if (!bytes) throw new Error('æ²¡æœ‰å¯ç”¨çš„å¯¼å…¥å‰å¤‡ä»½ã€‚');
+    const restored = await readPack(bytes, 'å¯¼å…¥å‰å¤‡ä»½');
+    await window.storyWorkbench.library.importBackupApply(libraryKey, bytes);
+    onLoaded({ ...restored, libraryKey });
+  });
+  /* æ‰“å¼€å·¥ç¨‹åŒ… = å¯¼å…¥æˆä¸€ä»½æ–°çš„å·¥ç¨‹æ¡ç›®ï¼Œä¸è¦†ç›–å½“å‰è¿™ä»½å·¥ç¨‹ã€‚ */
+  const importBackupFile = () => run(async () => {
+    const selected = await window.storyWorkbench.importProject();
+    if (!selected) return;
+    const restored = await readPack(selected.bytes, selected.name);
+    const entry = await window.storyWorkbench.library.create(selected.bytes, { name: restored.project.name, projectId: restored.project.id });
     onLoaded({ ...restored, libraryKey: entry.key, message: 'å·²æŠŠå·¥ç¨‹åŒ…å¯¼å…¥æœ¬åœ°å·¥ç¨‹åº“ï¼›åŸæ¥é‚£ä»½å·¥ç¨‹æ²¡æœ‰è¢«åŠ¨è¿‡ã€‚' });
   });
   /* å»ºç«‹ç©ºç™½å·¥ç¨‹ = æ–°å»ºä¸€ä¸ªå·¥ç¨‹æ¡ç›®ï¼Œä¸è¦†ç›–åŸæ¥é‚£ä»½å·¥ç¨‹ï¼Œä¹Ÿä¸å†™å®ƒçš„å¤–éƒ¨æ–‡ä»¶ã€‚ */
@@ -140,134 +293,262 @@ function Workspace({ initial, theme, onToggleTheme }: { initial: Loaded; theme: 
   const updateSaveLabel = (value: string) => {
     saveLabelRef.current = value;
     setSaveLabel(value);
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±x€ôì4(€½¹ÍĞmÍ…Ù•Q…É•Ğ°Í•ÑM…Ù•Q…É•Ñt€ôÕÍ•MÑ…Ñ”ñÍÑÉ¥¹œğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞm¥µÁ½ÉÑI•Á½ÉĞ°Í•Ñ%µÁ½ÉÑI•Á½ÉÑt€ôÕÍ•MÑ…Ñ”ñÉÉ…äñì¹…µ”èÍÑÉ¥¹œìÍÑ…ÑÕÌè€ÍÕ•ÍÌœğ€•ÉÉ½Èœì‘•Ñ…¥°èÍÑÉ¥¹œôøø¡mt¤ì4(€½¹ÍĞm¹•İÍÍ•Ñ%‘Ì°Í•Ñ9•İÍÍ•Ñ%‘Ít€ôÕÍ•MÑ…Ñ”ñÍÑÉ¥¹mtø¡mt¤ì4(€½¹ÍĞmµ•‘¥…AÉ½É•ÍÌ°Í•Ñ5•‘¥…AÉ½É•ÍÍt€ôÕÍ•MÑ…Ñ” œœ¤ì4(€½¹ÍĞm¹½Ñ¥”°Í•Ñ9½Ñ¥•t€ôÕÍ•MÑ…Ñ”¡¥¹¥Ñ¥…°¹µ•ÍÍ…”€üü€œœ¤ì4(€½¹ÍĞmÁ±…å•ÉMÑ…Ñ”°Í•ÑA±…å•ÉMÑ…Ñ•t€ôÕÍ•MÑ…Ñ”ñA±…å•ÉM¹…ÁÍ¡½Ğø¡ìÍÑ…ÑÕÌè€ÍÑ½ÁÁ•œ°¥¹‘•àè€À°Õ”è¹Õ±°°•±…ÁÍ•‘5Ìè€À°‘ÕÉ…Ñ¥½¹5Ìè€ÌÔÀÀ°ÉÕ¹5½‘”è¹Õ±°ô¤ì4(€½¹ÍĞÁ±…å‰…­±½­I•˜€ôÕÍ•I•˜ñA±…å‰…­±½¬ø¡ìÍ¹…ÁÍ¡½ĞèÁ±…å•ÉMÑ…Ñ”°±¥ÍÑ•¹•ÉÌè¹•ÜM•Ğ ¤ô¤ì4(€½¹ÍĞmÍ••­I•Ù¥Í¥½¸°Í•ÑM••­I•Ù¥Í¥½¹t€ôÕÍ•MÑ…Ñ” À¤ì4(€½¹ÍĞmÁ±…åM•ÍÍ¥½¹I•Ù¥Í¥½¸°Í•ÑA±…åM•ÍÍ¥½¹I•Ù¥Í¥½¹t€ôÕÍ•MÑ…Ñ” À¤ì4(€½¹ÍĞmÁÉ½©•Ñ=Á•É…Ñ¥½¸°Í•ÑAÉ½©•Ñ=Á•É…Ñ¥½¹t€ôÕÍ•MÑ…Ñ”¡™…±Í”¤ì4(€½¹ÍĞm¹…µ•¥…±½œ°Í•Ñ9…µ•¥…±½t€ôÕÍ•MÑ…Ñ”ñ9…µ•¥…±½MÑ…Ñ”ğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞm…¥I•Ù¥•İMÑ…Ñ”°Í•Ñ¥I•Ù¥•İMÑ…Ñ•t€ôÕÍ•MÑ…Ñ”ñ¥I•Ù¥•İMÑ…Ñ”ğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞm…¥I•Ù¥•İ	ÕÍä°Í•Ñ¥I•Ù¥•İ	ÕÍåt€ôÕÍ•MÑ…Ñ”¡™…±Í”¤ì4(€½¹ÍĞ¹…µ•¥…±½QÉ¥•ÉI•˜€ôÕÍ•I•˜ñ!Q51±•µ•¹Ğğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞÁÉ½©•ÑI•˜€ôÕÍ•I•˜¡ÁÉ½©•Ğ¤ì4(€€¼¨¨ƒ–"š6‹–Ş—¢/š^ÛR£–º–k’î“&3¾òk–ş¯¦¢ş{
-ç–>«šr'šr–B;’âš²‡RšV €¨¼4(€½¹ÍĞÍİ¥Ñ¡Q½­•¹I•˜€ôÕÍ•I•˜ À¤ì4(€½¹ÍĞ±¥‰É…Éå-•åI•˜€ôÕÍ•I•˜¡¥¹¥Ñ¥…°¹±¥‰É…Éå-•ä¤ì4(€€¼¨¨ƒn»–öW–ºk’ö7j’î“&3¾òk–ş¯¦
-ç’â7–B3îš^Û¾ò3š^Ÿ–ºk’ö7–n{¢Â¢«–*£–’ÇšV €¨¼4(€½¹ÍĞ±½…Ñ•Q½­•¹I•˜€ôÕÍ•I•˜ À¤ì4(€½¹ÍĞÁ•¹‘¥¹1½…Ñ•I•˜€ôÕÍ•I•˜ñA•¹‘¥¹1½…Ñ”ğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞÁ•¹‘¥¹¡…ÁÑ•ÉÑ¥½¹I•˜€ôÕÍ•I•˜ñì¡…ÁÑ•É%èÍÑÉ¥¹œìÉÕ¸è€ ¤€ôøÙ½¥ôğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞm±½…Ñ•‘É½ÕÁ%°Í•Ñ1½…Ñ•‘É½ÕÁ%‘t€ôÕÍ•MÑ…Ñ”ñÍÑÉ¥¹œğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞÉ•Ù¥•İ!¥ÍÑ½ÉåI•˜€ôÕÍ•I•˜¡¹•Ü5…ÀñÍÑÉ¥¹œ°ì‰•™½É”è…¹äì…™Ñ•Èè…¹äì¡…ÁÑ•É%èÍÑÉ¥¹œğ¹Õ±°ôø ¤¤ì4(€½¹ÍĞÉ•Ù¥•İ¡…¹•!¥ÍÑ½ÉåI•˜€ôÕÍ•I•˜¡¹•Ü5…ÀñÍÑÉ¥¹œ°ìÁÉ½Á½Í…°è…¹äì¡…ÁÑ•É%èÍÑÉ¥¹œôø ¤¤ì4(€½¹ÍĞÕÉÉ•¹ÑI•Ù¥•İQ½­•¹I•˜€ôÕÍ•I•˜ñÍÑÉ¥¹œğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞÁ±…å•ÉI•˜€ôÕÍ•I•˜ñ…¹äø¡¹Õ±°¤ì4(€½¹ÍĞ…ÍÍ•ÑÍI•˜€ôÕÍ•I•˜¡…ÍÍ•ÑÌ¤ì4(€½¹ÍĞÁ…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹M•±•Ñ¥½¹I•˜€ôÕÍ•I•˜¡ìÁ…É…É…Á¡%‘ÌèÍ•±•Ñ•‘A…É…É…Á¡Ì°É½ÕÁ%‘ÌèÍ•±•Ñ•‘É½ÕÁ%‘Ì°‘É½Á!¥¹Ğô¤ì4(€Á…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹M•±•Ñ¥½¹I•˜¹ÕÉÉ•¹Ğ€ôìÁ…É…É…Á¡%‘ÌèÍ•±•Ñ•‘A…É…É…Á¡Ì°É½ÕÁ%‘ÌèÍ•±•Ñ•‘É½ÕÁ%‘Ì°‘É½Á!¥¹Ğôì4(€½¹ÍĞÉ•…‘A…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¸€ôÕÍ•5•µ¼  ¤€ôøÉ•…Ñ•A…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹I•…‘•È  ¤€ôø€¡ì¡…ÁÑ•Èè…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¤°…ÍÍ•ÑÌè…ÍÍ•ÑÍI•˜¹ÕÉÉ•¹Ğ°€¸¸¹Á…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹M•±•Ñ¥½¹I•˜¹ÕÉÉ•¹Ğô¤¤°mt¤ì4(€½¹ÍĞµ•‘¥…M•ÍÍ¥½¹I•˜€ôÕÍ•I•˜ñ5•‘¥…M•ÍÍ¥½¸ğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞµÕÍ¥M•ÍÍ¥½¹I•˜€ôÕÍ•I•˜ñ5•‘¥…M•ÍÍ¥½¸ğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞµ•‘¥…‰½ÉÑI•˜€ôÕÍ•I•˜ñ‰½ÉÑ½¹ÑÉ½±±•Èğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞ¡…ÁÑ•ÉÕÉÍ½ÉI•˜€ôÕÍ•I•˜¡¹•Ü5…ÀñÍÑÉ¥¹œ°ì™É½´è¹Õµ‰•ÈìÑ¼è¹Õµ‰•ÈìÕ•%èÍÑÉ¥¹œğ¹Õ±°ôø ¤¤ì4(€½¹ÍĞ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì4(€½¹ÍĞ•‘¥Ñ½É¡…ÁÑ•É%‘I•˜€ôÕÍ•I•˜¡¡…ÁÑ•È¹¥¤ì4(€•‘¥Ñ½É¡…ÁÑ•É%‘I•˜¹ÕÉÉ•¹Ğ€ô¡…ÁÑ•È¹¥ì4(€½¹ÍĞ¡…ÁÑ•ÉMÉ½±±I•˜€ôÕÍ•I•˜¡¹•Ü5…ÀñÍÑÉ¥¹œ°¹Õµ‰•Èø ¤¤ì4(€½¹ÍĞ•‘¥Ñ½ÉMÉ½±±I•˜€ôÕÍ•I•˜ñ!Q51¥Ù±•µ•¹Ğø¡¹Õ±°¤ì4(€½¹ÍĞ•‘•MÉ½±±É…µ•I•˜€ôÕÍ•I•˜ñ¹Õµ‰•Èğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞ•‘•MÉ½±±¥É•Ñ¥½¹I•˜€ôÕÍ•I•˜ À¤ì4(€½¹ÍĞ…¹•±±•‘É…I•˜€ôÕÍ•I•˜¡™…±Í”¤ì4(€½¹ÍĞ‘É…Ñ¥Ù•I•˜€ôÕÍ•I•˜¡™…±Í”¤ì4(€½¹ÍĞ¡…ÁÑ•É%¹‘•à€ôÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹™¥¹‘%¹‘•à ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôô¡…ÁÑ•È¹¥¤ì4(€½¹ÍĞ‘½Õµ•¹Ğ€ô¡…ÁÑ•È¹‘½Õµ•¹Ğì4(€½¹ÍĞÍ…Ù•EÕ•Õ”€ôÕÍ•I•˜ñAÉ½µ¥Í”ñÕ¹­¹½İ¸øø¡AÉ½µ¥Í”¹É•Í½±Ù” ¤¤ì4(€½¹ÍĞÍ…Ù•‘M¹…ÁÍ¡½ÑI•˜€ôÕÍ•I•˜ñì­•äèÍÑÉ¥¹œìÁÉ½©•Ğè…¹äì…ÍÍ•ÑÌèÍÍ•ÑI•½É‘mtôğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞÁ•¹‘¥¹M…Ù•I•˜€ôÕÍ•I•˜ñAÉ½µ¥Í”ñ…¹äøğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞÍ…Ù•Q¥µ•È€ôÕÍ•I•˜ñ¹Õµ‰•Èğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞ…ÕÑ½Í…Ù•MÕÁÁÉ•ÍÍ•€ôÕÍ•I•˜¡™…±Í”¤ì4(€½¹ÍĞÁ±…¸è…¹åmt€ôÕÍ•5•µ¼  ¤€ôø½µÁ¥±•½Õµ•¹Ğ¡‘½Õµ•¹Ğ¤°m‘½Õµ•¹Ñt¤ì4(€½¹ÍĞÁ±…¹I•˜€ôÕÍ•I•˜¡Á±…¸¤ì4(€ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ€ôÁÉ½©•Ğì4(€…ÍÍ•ÑÍI•˜¹ÕÉÉ•¹Ğ€ô…ÍÍ•ÑÌì4(€Á±…¹I•˜¹ÕÉÉ•¹Ğ€ôÁ±…¸ì4(€±¥‰É…Éå-•åI•˜¹ÕÉÉ•¹Ğ€ô±¥‰É…Éå-•äì4(€½¹ÍĞ½Á•¹9…µ•¥…±½œ€ô€¡ÑÉ¥•Èè!Q51±•µ•¹Ğğ¹Õ±°°‘¥…±½œè9…µ•¥…±½MÑ…Ñ”¤€ôøì4(€€€¹…µ•¥…±½QÉ¥•ÉI•˜¹ÕÉÉ•¹Ğ€ôÑÉ¥•Èì4(€€€Í•Ñ9…µ•¥…±½œ¡‘¥…±½œ¤ì4(€ôì4(€½¹ÍĞ±½Í•9…µ•¥…±½œ€ô€ ¤€ôøÍ•Ñ9…µ•¥…±½œ¡¹Õ±°¤ì4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€¥˜€¡¹…µ•¥…±½œ¤É•ÑÕÉ¸ì4(€€€½¹ÍĞÑÉ¥•È€ô¹…µ•¥…±½QÉ¥•ÉI•˜¹ÕÉÉ•¹Ğì4(€€€¹…µ•¥…±½QÉ¥•ÉI•˜¹ÕÉÉ•¹Ğ€ô¹Õ±°ì4(€€€¥˜€¡ÑÉ¥•Èü¹¥Í½¹¹•Ñ•¤ÑÉ¥•È¹™½ÕÌ ¤ì4(€ô°m¹…µ•¥…±½t¤ì4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€½¹ÍĞ•ÑÕ‘¥¼€ô€¡¥èÍÑÉ¥¹œ¤€ôø…ÍÍ•ÑÍI•˜¹ÕÉÉ•¹Ğ¹™¥¹ ¡…ÍÍ•Ğ¤€ôø…ÍÍ•Ğ¹¥€ôôô¥€˜˜…ÍÍ•Ğ¹­¥¹€ôôô€…Õ‘¥¼œ¤ì4(€€€½¹ÍĞÍ•ÍÍ¥½¸€ô¹•Ü5•‘¥…M•ÍÍ¥½¸¡É•…Ñ•!Ñµ±Õ‘¥½	…­•¹¡•ÑÕ‘¥¼¤°€¡Í¹…ÁÍ¡½Ğ¤€ôøì4(€€€€€¥˜€¡Í¹…ÁÍ¡½Ğ¹ÍÑ…ÑÕÌ€ôôô€•ÉÉ½Èœ€˜˜Í¹…ÁÍ¡½Ğ¹•ÉÉ½È¤Í•Ñ9½Ñ¥”¡ƒ–Ã¦~ÏšJ·šRû–’Ç¢Ò—¾òh‘íÍ¹…ÁÍ¡½Ğ¹•ÉÉ½Éõ€¤ì4(€€€ô¤ì4(€€€½¹ÍĞµÕÍ¥Œ€ô¹•Ü5•‘¥…M•ÍÍ¥½¸¡É•…Ñ•!Ñµ±Õ‘¥½	…­•¹¡•ÑÕ‘¥¼¤°€¡Í¹…ÁÍ¡½Ğ¤€ôøì4(€€€€€¥˜€¡Í¹…ÁÍ¡½Ğ¹ÍÑ…ÑÕÌ€ôôô€•ÉÉ½Èœ€˜˜Í¹…ÁÍ¡½Ğ¹•ÉÉ½È¤Í•Ñ9½Ñ¥”¡ƒ¢3šf¿¦~Ï’æCšJ·šRû–’Ç¢Ò—¾òh‘íÍ¹…ÁÍ¡½Ğ¹•ÉÉ½Éõ€¤ì4(€€€ô¤ì4(€€€µ•‘¥…M•ÍÍ¥½¹I•˜¹ÕÉÉ•¹Ğ€ôÍ•ÍÍ¥½¸ì4(€€€µÕÍ¥M•ÍÍ¥½¹HV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅæVbæ7W'&VçBÒ×W6–3°Ğ¢&WGW&â‚’Óâ°Ğ¢6W76–öâæF—7÷6R‚“°Ğ¢×W6–2æF—7÷6R‚“°Ğ¢–b†ÖVF–6W76–öå&Vbæ7W'&VçBÓÓÒ6W76–öâ’ÖVF–6W76–öå&Vbæ7W'&VçBÒçVÆÃ°Ğ¢–b†×W6–56W76–öå&Vbæ7W'&VçBÓÓÒ×W6–2’×W6–56W76–öå&Vbæ7W'&VçBÒçVÆÃ°Ğ¢Ó°Ğ¢ÒÂµÒ“°Ğ Ğ¢6öç7BöäVF—F÷%WFFRÒW6T6ÆÆ&6²‚‡²VF—F÷"ÂG&ç67F–öâÓ¢²VF—F÷#¢ç“²G&ç67F–öã¢ç’Ò’Óâ°Ğ¢6öç7BVF—F÷$6†FW$–BÒVF—F÷"ç7FFRæFö2æGG'2æ6†FW$–C°Ğ¢–b‚VF—F÷$6†FW$–BÇÂVF—F÷$6†FW$–BÓÒVF—F÷$6†FW$–E&Vbæ7W'&VçBÇÂ&ö¦V7E&Vbæ7W'&VçBæ7F—fT6†FW$–BÓÒVF—F÷$6†FW$–B’&WGW&ã°Ğ¢–b‡G&ç67F–öãòævWDÖWF‚wv÷&¶&Væ6‚Ö†—7F÷'’×&V¦V7FVBr’’&WGW&ã°Ğ¢6öç7B&Wf–WuFö¶VâÒVF—F÷"ç7FFRæFö2æGG'2ç&Wf–WuFö¶VâóòçVÆÃ°Ğ¢6öç7B&Wf–÷W5&Wf–WuFö¶VâÒ7W'&VçE&Wf–WuFö¶Vå&Vbæ7W'&VçC°Ğ¢7W'&VçE&Wf–WuFö¶Vå&Vbæ7W'&VçBÒ&Wf–WuFö¶Vã°Ğ¢–b‡&Wf–WuFö¶VâÓÒ&Wf–÷W5&Wf–WuFö¶Vâ’°Ğ¢6öç7BÆ–VD6†ævW2Ò&Wf–WuFö¶Vâò&Wf–Wt6†ævT†—7F÷'•&Vbæ7W'&VçBævWB‡&Wf–WuFö¶Vâ’¢çVÆÃ°Ğ¢6öç7B&WfW'FVD6†ævW2Ò&Wf–÷W5&Wf–WuFö¶Vâò&Wf–Wt6†ævT†—7F÷'•&Vbæ7W'&VçBævWB‡&Wf–÷W5&Wf–WuFö¶Vâ’¢çVÆÃ°Ğ¢6öç7B†—7F÷'•&WÆ’ÒG&ç67F–öãòævWDÖWF‚v†—7F÷'’Br“°Ğ¢6öç7B—5VæFòÒ†—7F÷'•&WÆ“òç&VFòÓÓÒfÇ6S°Ğ¢6öç7B6†ævTVçG'’Ò—5VæFòò&WfW'FVD6†ævW2¢Æ–VD6†ævW3°Ğ¢–b†6†ævTVçG'’bb6†ævTVçG'’æ6†FW$–BÓÓÒVF—F÷$6†FW$–B’°Ğ¢G'’°Ğ¢6öç7B&÷÷6ÂÒ—5VæFòò&WfW'6U&Wf–Wt6†ævW2†6†ævTVçG'’ç&÷÷6Â’¢6†ævTVçG'’ç&÷÷6Ã°Ğ¢6öç7BæW‡BÒÇ•&Wf–Wt6†ævW2‡&ö¦V7E&Vbæ7W'&VçBÂ&÷÷6Â“°Ğ¢&ö¦V7E&Vbæ7W'&VçBÒæW‡C°Ğ¢6WE&ö¦V7B†æW‡B“°Ğ¢Ò6F6‚†W'&÷"’°Ğ¢7W'&VçE&Wf–WuFö¶Vå&Vbæ7W'&VçBÒ&Wf–÷W5&Wf–WuFö¶Vã°Ğ¢6öç7B6÷W&6RÒ7F—fT6†FW"‡&ö¦V7E&Vbæ7W'&VçB“°Ğ¢6öç7B6öçFVçBÒVF—F÷"ç66†VÖææöFTg&öÔ¥4ôâ‡FôVF—F÷$6öçFVçB‡6÷W&6RæFö7VÖVçBÂ6÷W&6Ræw&÷W2Â6÷W&6Ræ×W6–5&ævW2’“°Ğ¢ò¢ŠxnY»îiÊ®[{º®i{nizk9RF—7F6ûÈÎjÚ>ih~KÉ®YÊKˆ¾KˆjÊ{Én‹éYš˜xŞ[»®i{nhÈ[Ù>X˜Ş[z^zˆ¾i[hÚî˜xŞik‹ÛŞXZR¢ğĞ¢–b†—4VF—F÷%f–Wu&VG’†VF—F÷"’’VF—F÷"çf–WræF—7F6‚†VF—F÷"ç7FFRçG"ç&WÆ6Uv—F‚ƒÂVF—F÷"ç7FFRæFö2æ6öçFVçBç6—¦RÂ6öçFVçBæ6öçFVçB’ç6WDFö4GG&–'WFR‚w&Wf–WuFö¶VârÂ&Wf–÷W5&Wf–WuFö¶Vâ’ç6WDÖWF‚vFEFô†—7F÷'’rÂfÇ6R’ç6WDÖWF‚wv÷&¶&Væ6‚Ö†—7F÷'’×&V¦V7FVBrÂG'VR’“°Ğ¢6WDæ÷F–6R†W'&÷"–ç7Fæ6VöbW'&÷"òt’XènXû.h.ZHŞZK‹J^ûÉ¢r²W'&÷"æÖW76vR¢t’XènXû.h.ZHŞZK‹J^8"r“°Ğ¢ĞĞ¢&WGW&ã°Ğ¢ĞĞ¢6öç7BÆ–VBÒ&Wf–WuFö¶Vâò&Wf–Wt†—7F÷'•&Vbæ7W'&VçBævWB‡&Wf–WuFö¶Vâ’¢çVÆÃ°Ğ¢6öç7B&WfW'FVBÒ&Wf–÷W5&Wf–WuFö¶Vâò&Wf–Wt†—7F÷'•&Vbæ7W'&VçBævWB‡&Wf–÷W5&Wf–WuFö¶Vâ’¢çVÆÃ°Ğ¢6öç7BVçG'’Ò†—7F÷'•&WÆ’ò†—7F÷'•&WÆ’ç&VFòòÆ–VB¢&WfW'FVB¢Æ–VC°Ğ¢6öç7BÆ–W4†W&RÒVçG'“òæ6†FW$–BÓÓÒVF—F÷$6†FW$–BÇÂVçG'“òæ6†FW$–BÓÓÒçVÆÃ°Ğ¢6öç7B6æ6†÷BÒÆ–W4†W&RbbVçG'’ò††—7F÷'•&WÆ“òç&VFòÓÓÒfÇ6RòVçG'’æ&Vf÷&R¢VçG'’ægFW"’¢çVÆÃ°Ğ¢–b‡6æ6†÷B’°Ğ¢6öç7BæW‡BÒVçG'’æ6†FW$–BÓÓÒçVÆÂò6æ6†÷B¢ÖW&vT6†FW$†—7F÷'•6æ6†÷B‡&ö¦V7E&Vbæ7W'&VçBÂ6æ6†÷BÂVF—F÷$6†FW$–B“°Ğ¢&ö¦V7E&Vbæ7W'&VçBÒæW‡C°Ğ¢6WE&ö¦V7B†æW‡B“°Ğ¢&WGW&ã°Ğ¢ĞĞ¢ĞĞ¢6öç7BæW‡DFö7VÖVçBÒg&öÔVF—F÷$6öçFVçB†VF—F÷"ævWD¥4ôâ‚’“°Ğ¢6öç7B7W'&VçBÒ&ö¦V7E&Vbæ7W'&VçC°Ğ¢–b†7W'&VçBæ7F—fT6†FW$–BÓÒVF—F÷$6†FW$–B’&WGW&ã°Ğ¢6öç7BæW‡BÒWFFT6†FW"†7W'&VçBÂVF—F÷$6†FW$–BÂ†7F—fS¢ç’’Óâ&V6öæ6–ÆT6†FW$Fö7VÖVçB†7F—fRÂæW‡DFö7VÖVçB’“°Ğ¢&ö¦V7E&Vbæ7W'&VçBÒæW‡C°Ğ¢6WE&ö¦V7B†æW‡B“°Ğ¢ÒÂµÒ“°Ğ Ğ¢6öç7Böå6VÆV7F–öåWFFRÒW6T6ÆÆ&6²‚‡²VF—F÷"Ó¢²VF—F÷#¢ç’Ò’Óâ°Ğ¢–b†VF—F÷"ç7FFRæFö2æGG'2æ6†FW$–BÓÒVF—F÷$6†FW$–E&Vbæ7W'&VçB’&WGW&ã°Ğ¢Æ–W%&Vbæ7W'&VçCòç7F÷‚“°Ğ¢6öç7B–BÒ6VÆV7FVE7F÷'”–B†VF—F÷"“°Ğ¢6WE6VÆV7FVD7VT–B†–B“°Ğ¢6WE6VÆV7FVE&w&‡2‡&VE6VÆV7FVE&w&„–G2†VF—F÷"’“°Ğ¢6WE6VÆV7FVDw&÷W–B†çVÆÂ“°Ğ¢6WE6VÆV7FVDw&÷W–G2…µÒ“°Ğ¢ÒÂµÒ“°Ğ Ğ¢6öç7BVF—F÷"ÒW6TVF—F÷"‡°Ğ¢W‡FVç6–öç3¢°Ğ¢7F'FW$¶—Bæ6öæf–wW&R‡²&Æö6·V÷FS¢fÇ6RÂ'VÆÆWDÆ—7C¢fÇ6RÂ6öFT&Æö6³¢fÇ6RÂ†VF–æs¢fÇ6RÂ†÷&—¦öçFÅ'VÆS¢fÇ6RÂÆ—7D—FVÓ¢fÇ6RÂ÷&FW&VDÆ—7C¢fÇ6RÒ’ÀĞ¢FW‡E7G–ÆRÀĞ¢6öÆ÷"æ6öæf–wW&R‡²G—W3¢²wFW‡E7G–ÆRuÒÒ’ÀĞ¢Æ6V†öÆFW"æ6öæf–wW&R‡²Æ6V†öÆFW#¢~K¸î‹ù˜xÎ[ÈZx¾XiXš~h8^8.hÈ’VçFW"[ÈZx¾ikjë^ûÈÎ˜KŠŞKˆXú^XhŞŠëî{ÚîZûy›Şh‰nˆz®yKkÉNX{®8"rÒ’ÀĞ¢Væ—VT”Bæ6öæf–wW&R‡²G—W3¢²w&w&‚uÒÂGG&–'WFTæÖS¢w&w&„–BrÂvVæW&FT”C¢‚’ÓâÖ¶T–B‚wr’Ò’ÀĞ¢7VTÖ&²ÀĞ¢7F÷'”GG&–'WFW2æ6öæf–wW&R‡²vWE&w&…&W6VçFF–öã¢&VE&w&…&W6VçFF–öâÒ’ÀĞ¢ÒÀĞ¢6öçFVçC¢VF—F÷$6öçFVçB†6†FW"’ÀĞ¢öåWFFS¢öäVF—F÷%WFFRÀĞ¢öå6VÆV7F–öåWFFRÀĞ¢VF—F÷%&÷3¢°Ğ¢GG&–'WFW3¢²6Æ73¢w7F÷'’ÖVF—F÷"rÂ7VÆÆ6†V6³¢vfÇ6RrÒÀĞ¢†æFÆTDôÔWfVçG3¢°Ğ¢G&w7F'C¢…÷f–WrÂWfVçB’ÓâWfVçBçF&vWB–ç7Fæ6VöbVÆVÖVçBbb&ööÆVâ†WfVçBçF&vWBæ6Æ÷6W7B‚rç&w&‚ÖG&rÖ†æFÆRr’’ÀĞ¢G&v÷fW#¢…÷f–WrÂWfVçB’Óâ°Ğ¢–b‚WfVçBæFZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{U˜[œÙ™\Ë\\Ëš[˜ÛY\ÊTQÔTÑQÊH	‰ˆY]™[™]U˜[œÙ™\Ë\\Ëš[˜ÛY\ÊUQS×ÑQÊJH™]\›ˆ˜[ÙNÃBˆ]™[œ™]™[Y˜][
+  };
+  const [saveTarget, setSaveTarget] = useState<string | null>(null);
+  const [importReport, setImportReport] = useState<Array<{ name: string; status: 'success' | 'error'; detail: string }>>([]);
+  const [newAssetIds, setNewAssetIds] = useState<string[]>([]);
+  const [mediaProgress, setMediaProgress] = useState('');
+  const [notice, setNotice] = useState(initial.message ?? '');
+  const [playerState, setPlayerState] = useState<PlayerSnapshot>({ status: 'stopped', index: 0, cue: null, elapsedMs: 0, durationMs: 3500, runMode: null });
+  const playbackClockRef = useRef<PlaybackClock>({ snapshot: playerState, listeners: new Set() });
+  const [seekRevision, setSeekRevision] = useState(0);
+  const [playSessionRevision, setPlaySessionRevision] = useState(0);
+  const [projectOperation, setProjectOperation] = useState(false);
+  const [nameDialog, setNameDialog] = useState<NameDialogState | null>(null);
+  const [aiReviewState, setAiReviewState] = useState<AiReviewState | null>(null);
+  const [aiReviewBusy, setAiReviewBusy] = useState(false);
+  const nameDialogTriggerRef = useRef<HTMLElement | null>(null);
+  const projectRef = useRef(project);
+  /** åˆ‡æ¢å·¥ç¨‹æ—¶ç”¨å®ƒåšä»¤ç‰Œï¼šå¿«é€Ÿè¿ç‚¹åªæœ‰æœ€åä¸€æ¬¡ç”Ÿæ•ˆ */
+  const switchTokenRef = useRef(0);
+  const libraryKeyRef = useRef(initial.libraryKey);
+  /** ç›®å½•å®šä½çš„ä»¤ç‰Œï¼šå¿«é€Ÿç‚¹ä¸åŒç»„æ—¶ï¼Œæ—§å®šä½å›è°ƒè‡ªåŠ¨å¤±æ•ˆ */
+  const locateTokenRef = useRef(0);
+  const pendingLocateRef = useRef<PendingLocate | null>(null);
+  const pendingChapterActionRef = useRef<{ chapterId: string; run: () => void } | null>(null);
+  const [locatedGroupId, setLocatedGroupId] = useState<string | null>(null);
+  const reviewHistoryRef = useRef(new Map<string, { before: any; after: any; chapterId: string | null }>());
+  const reviewChangeHistoryRef = useRef(new Map<string, { proposal: any; chapterId: string }>());
+  const currentReviewTokenRef = useRef<string | null>(null);
+  const playerRef = useRef<any>(null);
+  const assetsRef = useRef(assets);
+  const paragraphPresentationSelectionRef = useRef({ paragraphIds: selectedParagraphs, groupIds: selectedGroupIds, dropHint });
+  paragraphPresentationSelectionRef.current = { paragraphIds: selectedParagraphs, groupIds: selectedGroupIds, dropHint };
+  const readParagraphPresentation = useMemo(() => createParagraphPresentationReader(() => ({ chapter: activeChapter(projectRef.current), assets: assetsRef.current, ...paragraphPresentationSelectionRef.current })), []);
+  const mediaSessionRef = useRef<MediaSession | null>(null);
+  const musicSessionRef = useRef<MediaSession | null>(null);
+  const mediaAbortRef = useRef<AbortController | null>(null);
+  const chapterCursorRef = useRef(new Map<string, { from: number; to: number; cueId: string | null }>());
+  const chapter = activeChapter(project);
+  const editorChapterIdRef = useRef(chapter.id);
+  editorChapterIdRef.current = chapter.id;
+  const chapterScrollRef = useRef(new Map<string, number>());
+  const editorScrollRef = useRef<HTMLDivElement>(null);
+  const edgeScrollFrameRef = useRef<number | null>(null);
+  const edgeScrollDirectionRef = useRef(0);
+  const cancelledDragRef = useRef(false);
+  const dragActiveRef = useRef(false);
+  const chapterIndex = project.chapters.findIndex((item: any) => item.id === chapter.id);
+  const document = chapter.document;
+  const saveQueue = useRef<Promise<unknown>>(Promise.resolve());
+  const savedSnapshotRef = useRef<{ key: string; project: any; assets: AssetRecord[] } | null>(null);
+  const pendingSaveRef = useRef<Promise<any> | null>(null);
+  const saveTimer = useRef<number | null>(null);
+  const autosaveSuppressed = useRef(false);
+  const plan: any[] = useMemo(() => compileDocument(document), [document]);
+  const planRef = useRef(plan);
+  projectRef.current = project;
+  assetsRef.current = assets;
+  planRef.current = plan;
+  libraryKeyRef.current = libraryKey;
+  const openNameDialog = (trigger: HTMLElement | null, dialog: NameDialogState) => {
+    nameDialogTriggerRef.current = trigger;
+    setNameDialog(dialog);
+  };
+  const closeNameDialog = () => setNameDialog(null);
+  useEffect(() => {
+    if (nameDialog) return;
+    const trigger = nameDialogTriggerRef.current;
+    nameDialogTriggerRef.current = null;
+    if (trigger?.isConnected) trigger.focus();
+  }, [nameDialog]);
+  useEffect(() => {
+    const getAudio = (id: string) => assetsRef.current.find((asset) => asset.id === id && asset.kind === 'audio');
+    const session = new MediaSession(createHtmlAudioBackend(getAudio), (snapshot) => {
+      if (snapshot.status === 'error' && snapshot.error) setNotice(`å£°éŸ³æ’­æ”¾å¤±è´¥ï¼š${snapshot.error}`);
+    });
+    const music = new MediaSession(createHtmlAudioBackend(getAudio), (snapshot) => {
+      if (snapshot.status === 'error' && snapshot.error) setNotice(`èƒŒæ™¯éŸ³ä¹æ’­æ”¾å¤±è´¥ï¼š${snapshot.error}`);
+    });
+    mediaSessionRef.current = session;
+    musicSessionRef.current = music;
+    return () => {
+      session.dispose();
+      music.dispose();
+      if (mediaSessionRef.current === session) mediaSessionRef.current = null;
+      if (musicSessionRef.current === music) musicSessionRef.current = null;
+    };
+  }, []);
 
-NÃBˆ™]\›ˆYNÃBˆKBˆ›Üˆ
-İšY]Ë]™[
-HOˆÃBˆYˆ
-Y]™[™]U˜[œÙ™\Ë\\Ëš[˜ÛY\ÊTQÔTÑQÊH	‰ˆY]™[™]U˜[œÙ™\Ë\\Ëš[˜ÛY\ÊUQS×ÑQÊJH™]\›ˆ˜[ÙNÃBˆ]™[œ™]™[Y˜][
+  const onEditorUpdate = useCallback(({ editor, transaction }: { editor: any; transaction: any }) => {
+    const editorChapterId = editor.state.doc.attrs.chapterId;
+    if (!editorChapterId || editorChapterId !== editorChapterIdRef.current || projectRef.current.activeChapterId !== editorChapterId) return;
+    if (transaction?.getMeta('workbench-history-rejected')) return;
+    const reviewToken = editor.state.doc.attrs.reviewToken ?? null;
+    const previousReviewToken = currentReviewTokenRef.current;
+    currentReviewTokenRef.current = reviewToken;
+    if (reviewToken !== previousReviewToken) {
+      const appliedChanges = reviewToken ? reviewChangeHistoryRef.current.get(reviewToken) : null;
+      const revertedChanges = previousReviewToken ? reviewChangeHistoryRef.current.get(previousReviewToken) : null;
+      const historyReplay = transaction?.getMeta('history$');
+      const isUndo = historyReplay?.redo === false;
+      const changeEntry = isUndo ? revertedChanges : appliedChanges;
+      if (changeEntry && changeEntry.chapterId === editorChapterId) {
+        try {
+          const proposal = isUndo ? reverseReviewChanges(changeEntry.proposal) : changeEntry.proposal;
+          const next = applyReviewChanges(projectRef.current, proposal);
+          projectRef.current = next;
+          setProject(next);
+        } catch (error) {
+          currentReviewTokenRef.current = previousReviewToken;
+          const source = activeChapter(projectRef.current);
+          const content = editor.schema.nodeFromJSON(toEditorContent(source.document, source.groups, source.musicRanges));
+          /* è§†å›¾æœªå°±ç»ªæ—¶æ— æ³• dispatchï¼Œæ­£æ–‡ä¼šåœ¨ä¸‹ä¸€æ¬¡ç¼–è¾‘å™¨é‡å»ºæ—¶æŒ‰å½“å‰å·¥ç¨‹æ•°æ®é‡æ–°è½½å…¥ */
+          if (isEditorViewReady(editor)) editor.view.dispatch(editor.state.tr.replaceWith(0, editor.state.doc.content.size, content.content).setDocAttribute('reviewToken', previousReviewToken).setMeta('addToHistory', false).setMeta('workbench-history-rejected', true));
+          setNotice(error instanceof Error ? 'AI å†å²æ¢å¤å¤±è´¥ï¼š' + error.message : 'AI å†å²æ¢å¤å¤±è´¥ã€‚');
+        }
+        return;
+      }
+      const applied = reviewToken ? reviewHistoryRef.current.get(reviewToken) : null;
+      const reverted = previousReviewToken ? reviewHistoryRef.current.get(previousReviewToken) : null;
+      const entry = historyReplay ? historyReplay.redo ? applied : reverted : applied;
+      const appliesHere = entry?.chapterId === editorChapterId || entry?.chapterId === null;
+      const snapshot = appliesHere && entry ? (historyReplay?.redo === false ? entry.before : entry.after) : null;
+      if (snapshot) {
+        const next = entry!.chapterId === null ? snapshot : mergeChapterHistorySnapshot(projectRef.current, snapshot, editorChapterId);
+        projectRef.current = next;
+        setProject(next);
+        return;
+      }
+    }
+    const nextDocument = fromEditorContent(editor.getJSON());
+    const current = projectRef.current;
+    if (current.activeChapterId !== editorChapterId) return;
+    const next = updateChapter(current, editorChapterId, (active: any) => reconcileChapterDocument(active, nextDocument));
+    projectRef.current = next;
+    setProject(next);
+  }, []);
 
-NÃBˆ™]\›ˆYNÃBˆKBˆKBˆKBˆKÜ›Ú™XİšYÚ\\‹šYY]Ü‘\ØÚJNÃBƒBˆÛÛœİİ\œ™[[ˆH[ÃBˆ\ÙQY™™Xİ
+  const onSelectionUpdate = useCallback(({ editor }: { editor: any }) => {
+    if (editor.state.doc.attrs.chapterId !== editorChapterIdRef.current) return;
+    playerRef.current?.stop();
+    const id = selectedStoryId(editor);
+    setSelectedCueId(id);
+    setSelectedParagraphs(readSelectedParagraphIds(editor));
+    setSelectedGroupId(null);
+    setSelectedGroupIds([]);
+  }, []);
 
+  const editor = useEditor({
+    extensions: [
+      StarterKit.configure({ blockquote: false, bulletList: false, codeBlock: false, heading: false, horizontalRule: false, listItem: false, orderedList: false }),
+      TextStyle,
+      Color.configure({ types: ['textStyle'] }),
+      Placeholder.configure({ placeholder: 'ä»è¿™é‡Œå¼€å§‹å†™å‰§æƒ…ã€‚æŒ‰ Enter å¼€å§‹æ–°æ®µï¼Œé€‰ä¸­ä¸€å¥å†è®¾ç½®å¯¹ç™½æˆ–è‡ªç”±æ¼”å‡ºã€‚' }),
+      UniqueID.configure({ types: ['paragraph'], attributeName: 'paragraphId', generateID: () => makeId('p') }),
+      CueMark,
+      StoryAttributes.configure({ getParagraphPresentation: readParagraphPresentation }),
+    ],
+    content: editorContent(chapter),
+    onUpdate: onEditorUpdate,
+    onSelectionUpdate,
+    editorProps: {
+      attributes: { class: 'story-editor', spellcheck: 'false' },
+      handleDOMEvents: {
+        dragstart: (_view, event) => event.target instanceof Element && Boolean(event.target.closest('.paragraph-drag-handle')),
+        dragover: (_view, event) => {
+          if (!event.dataTransfer?.types.includes(PARAGRAPH_DRAG) && !event.dataTransfer?.types.includes(AUDIO_DRAG)) return false;
+          event.preventDefault();
+          return true;
+        },
+        drop: (_view, event) => {
+          if (!event.dataTransfer?.types.includes(PARAGRAPH_DRAG) && !event.dataTransfer?.types.includes(AUDIO_DRAG)) return false;
+          event.preventDefault();
+          return true;
+        },
+      },
+    },
+  }, [project.id, chapter.id, editorEpoch]);
 
-HOˆÃBˆYˆ
-YY]ÜŠH™]\›ÃBˆÊˆ9êè:" ¹b!ù£h¹/&ºaãynî¹ï%º/¤yfj9k§¹/¢ûï#:/æzaã9ëbz)á¹fï¹l,yîê¹a£y h¹i#yaby¨!ù.#¹®æ¹bª;ï#Bˆ9d)¹b&z/æy«­yb'yiâùc%¹/&¹g*:)á¹fïº/æ9¬¨y£ ¹."¹¥íº(ªúgfznæ:-ìú/áøà ˆ
-‹ÃBˆ]œ˜[YHHÃBˆÛÛœİØ[˜Ù[HÛ‘Y]Ü•šY]Ó[İ[
-Y]Ü‹
-
-HOˆÃBˆ^Y\”™Y‹˜İ\œ™[ËœİÜ
-
-NÃBˆYYXTÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
-
-NÃBˆ]\ÚXÔÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
-
-NÃBˆYˆ
-Y]Ü‹œİ]K™ØË˜]œË˜Ú\\’YOOHÚ\\‹šY
-H™]\›ÃBˆİ\œ™[™]šY]ÕÚÙ[”™Y‹˜İ\œ™[HY]Ü‹œİ]K™ØË˜]œËœ™]šY]ÕÚÙ[ˆÏÈ[ÃBˆÛÛœİØ]™Yİ\œÛÜˆHÚ\\İ\œÛÜ”™Y‹˜İ\œ™[™Ù]
-Ú\\‹šY
-NÃBˆYˆ
-Ø]™Yİ\œÛÜŠHÃBˆÛÛœİX^HX]›X^
-KY]Ü‹œİ]K™ØË˜ÛÛ[œÚ^™HHJNÃBˆY]Ü‹˜ÛÛ[X[™ËœÙ]^Ù[Xİ[ÛŠÈœ›ÛNˆX]›X^
-KX]›Z[ŠX^Ø]™Yİ\œÛÜ‹™œ›ÛJJKÎˆX]›X^
-KX]›Z[ŠX^Ø]™Yİ\œÛÜ‹ÊJHJNÃBˆÙ]Ù[XİYİYRY
-Ø]™Yİ\œÛÜ‹˜İYRY	‰ˆš[™İYT˜[™ÙJY]Ü‹Ø]™Yİ\œÛÜ‹˜İYRY
-HÈØ]™Yİ\œÛÜ‹˜İYRYˆÙ[XİYİÜRY
-Y]ÜŠJNÃBˆH[ÙHÃBˆÛÛœİš\œİİYHHÛÛ\[QØİ[Y[
-Ú\\‹™Øİ[Y[
-VÌNÃBˆÙ]Ù[XİYİYRY
-š\œİİYOËšYÏÈ[
-NÃBˆCBˆ\˜YÜ˜\[˜ÚÜ”™Y‹˜İ\œ™[H[ÃBˆÙ]›Ü[
-[
-NÃBˆÙ]Ù[XİY^Y\’Y
-[
-NÃBˆÙ]Ù[XİYÜ›İ\Y
-[
-NÃBˆÙ]Ù[XİYÜ›İ\YÊ×JNÃBˆÙ]Ù[XİY\˜YÜ˜\Ê×JNÃBˆÛÛœİØ]™YØÜ›ÛHÚ\\”ØÜ›Û™Y‹˜İ\œ™[™Ù]
-Ú\\‹šY
-HÏÈÃBˆœ˜[YHH™\]Y\İ[š[X][Û‘œ˜[YJ
-
-HOˆÃBˆYˆ
-Y]ÜÚ\\’Y™Y‹˜İ\œ™[OOHÚ\\‹šY	‰ˆY]Ü”ØÜ›Û™Y‹˜İ\œ™[
-HY]Ü”ØÜ›Û™Y‹˜İ\œ™[œØÜ›ÛÜHØ]™YØÜ›ÛÃBˆJNÃBˆÊˆ9b!ùêè9d#¹ï%º/¤yfj9l,yîê¹.¡»ï#9¢cy¢iú(c9k¦¹/cy¢%¹êè:" ¹î©ùbª9/g8à ƒBˆ9.): !z`ïz-çùç`9£ º/oy.¢ù.íº-l;ï#9.#yå*9ní¹¥í¹c®ùã'9£ º/oyk£9¢$8à ˆ
-‹ÃBˆÛÛœİ[™[™ÓØØ]HH[™[™ÓØØ]T™Y‹˜İ\œ™[ÃBˆYˆ
-[™[™ÓØØ]H	‰ˆ[™[™ÓØØ]K˜Ú\\’YOOHÚ\\‹šY	‰ˆ[™[™ÓØØ]KÚÙ[ˆOOHØØ]UÚÙ[”™Y‹˜İ\œ™[
-HÃBˆ[™[™ÓØØ]T™Y‹˜İ\œ™[H[ÃBˆ[“ØØ]J[™[™ÓØØ]JNÃBˆCBˆÛÛœİ[™[™ĞXİ[ÛˆH[™[™ĞÚ\\Xİ[Û”™Y‹˜İ\œ™[ÃBˆYˆ
-[™[™ĞXİ[Ûˆ	‰ˆ[™[™ĞXİ[Û‹˜Ú\\’YOOHÚ\\‹šY
-HÃBˆ[™[™ĞÚ\\Xİ[Û”™Y‹˜İ\œ™[H[ÃBˆ[™[™ĞXİ[Û‹œ[Š
-NÃBˆCBˆJNÃBˆ™]\›ˆ
-
-HOˆÈØ[˜Ù[
-
-NÈYˆ
-œ˜[YJHØ[˜Ù[[š[X][Û‘œ˜[YJœ˜[YJNÈNÃBˆKÙY]Ü‹Ú\\‹šYJNÃBˆÛÛœİ\˜YÜ˜\[™^\ÈH\ÙSY[[Ê
-
-HOˆ™]ÈX\İš[™Ë[X™\ŠØİ[Y[˜›ØÚÜË›X\
-
-›ØÚÎˆ[K[™^ˆ[X™\ŠHOˆØ›ØÚËšY[™^JJKÙØİ[Y[JNÃBˆÛÛœİÜ™\™YÜ›İ\ÈH\ÙSY[[Ê
-
-HOˆË‹‹˜Ú\\‹™Ü›İ\×KœÛÜ
-
-Nˆ[Kˆ[JHOˆ
-\˜YÜ˜\[™^\Ë™Ù]
-Kœ\˜YÜ˜\YÖÌJHÏÈLJHH
-\˜YÜ˜\[™^\Ë™Ù]
-‹œ\˜YÜ˜\YÖÌJHÏÈLJJKØÚ\\‹™Ü›İ\Ë\˜YÜ˜\[™^\×JNÃBˆ\ÙQY™™Xİ
-
-
-HOˆÃBˆYˆ
-YY]ÜˆY]Ü‹š\Ñ\İ›ŞYY
-H™]\›ÃBˆÛÛœİÚÛÜÙHH
-]™[ˆ]™[
-HOˆÃBˆÛÛœİ]Z[H
-]™[\Èİ\İÛQ]™[
-K™]Z[ÃBˆÛÛœİYÈHXİ]™PÚ\\Š›Ú™Xİ™Y‹˜İ\œ™[
-K™Øİ[Y[˜›ØÚÜË›X\
-
-›ØÚÎˆ[JHOˆ›ØÚËšY
-NÃBˆYˆ
-ZYËš[˜ÛY\Ê]Z[œ\˜YÜ˜\Y
-JH™]\›ÃBˆ^Y\”™Y‹˜İ\œ™[ËœİÜ
-
-NÃBˆÙ]Ù[XİYÜ›İ\Y
-[
-NÃBˆÙ]Ù[XİYÜ›İ\YÊ×JNÃBˆÙ]Ù[XİY\˜YÜ˜\Ê
-İ\œ™[
-HOˆÃBˆYˆ
-]Z[œÚYÙ^H	‰ˆ\˜YÜ˜\[˜ÚÜ”™Y‹˜İ\œ™[	‰ˆYËš[˜ÛY\Ê\˜YÜ˜\[˜ÚÜ”™Y‹˜İ\œ™[
-JHÃBˆÛÛœİœ›ÛHHYËš[™^ÙŠ\˜YÜ˜\[˜ÚÜ”™Y‹˜İ\œ™[
-KÈHYËš[™^ÙŠ]Z[œ\˜YÜ˜\Y
-NÃBˆ™]\›ˆYËœÛXÙJX]›Z[Šœ›ÛKÊKX]›X^
-œ›ÛKÊH
-ÈJNÃBˆCBˆ\˜YÜ˜\[˜ÚÜ”™Y‹˜İ\œ™[H]Z[œ\˜YÜ˜\YÃBˆ™]\›ˆİ\œ™[š[˜ÛY\Ê]Z[œ\˜YÜ˜\Y
-HÈİ\œ™[™š[\Š
-Y
-HOˆYOOH]Z[œ\˜YÜ˜\Y
-HˆYË™š[\Š
-Yˆİš[™ÊHOˆYOOH]Z[œ\˜YÜ˜\Yİ\œ™[š[˜ÛY\ÊY
-JNÃBˆJNÃBˆNÃBˆÛÛœİÚÛÜÙQÜ›İ\H
-]™[ˆ]™[
-HOˆÃBˆÛÛœİ]Z[H
-]™[\Èİ\İÛQ]™[
-K™]Z[ÃBˆÛÛœİÜ›İ\YHİš[™Ê]Z[™Ü›İ\YÏÈ	ÉÊNÃBˆÙ[XİÜ›İ\
-Ü›İ\Y]Z[
-NÃBˆNÃBˆÛÛœİÜ[‘Ü›İ\]\ÚXÈH
-]™[ˆ]™[
-HOˆÃBˆÛÛœİÜ›İ\YHİš[™Ê
-]™[\Èİ\İÛQ]™[
-K™]Z[™Ü›İ\YÏÈ	ÉÊNÃBˆYˆ
-[Ü™\™YÜ›İ\ËœÛÛYJ
-Ü›İ\ˆ[JHOˆÜ›İ\šYOOHÜ›İ\Y
-JH™]\›ÃBˆÛÛœİÜ›İ\YÈHÙ[XİYÜ›İ\YËš[˜ÛY\ÊÜ›İ\Y
-HÈÜ™\™YÜ›İ\Ë™š[\Š
-Ü›İ\ˆ[JHOˆÙ[XİYÜ›İ\YËš[˜ÛY\ÊÜ›İ\šY
-JK›X\
-
-Ü›İ\ˆ[JHOˆÜ›İ\šY
-HˆÙÜ›İ\YNÃBˆÙ]Ü›İ\]\ÚXÑX[ÙÊÈÚ\\’YˆÚ\\‹šYÜ›İ\YË\ÜÙ]Yˆ	ÉÈJNÃBˆNÃBˆ™]\›ˆš[™Y]Ü•šY]Ó\İ[™\œÊY]Ü‹ÃBˆÉÜİÜK\\˜YÜ˜\\Ù[Xİ	Ëj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^choose],
+  const currentPlan = plan;
+  useEffect(() => {
+    if (!editor) return;
+    /* ç« èŠ‚åˆ‡æ¢ä¼šé‡å»ºç¼–è¾‘å™¨å®ä¾‹ï¼Œè¿™é‡Œç­‰è§†å›¾å°±ç»ªå†æ¢å¤å…‰æ ‡ä¸æ»šåŠ¨ï¼Œ
+       å¦åˆ™è¿™æ®µåˆå§‹åŒ–ä¼šåœ¨è§†å›¾è¿˜æ²¡æŒ‚ä¸Šæ—¶è¢«é™é»˜è·³è¿‡ã€‚ */
+    let frame = 0;
+    const cancel = onEditorViewMount(editor, () => {
+      playerRef.current?.stop();
+      mediaSessionRef.current?.stop();
+      musicSessionRef.current?.stop();
+      if (editor.state.doc.attrs.chapterId !== chapter.id) return;
+      currentReviewTokenRef.current = editor.state.doc.attrs.reviewToken ?? null;
+      const savedCursor = chapterCursorRef.current.get(chapter.id);
+      if (savedCursor) {
+        const max = Math.max(1, editor.state.doc.content.size - 1);
+        editor.commands.setTextSelection({ from: Math.max(1, Math.min(max, savedCursor.from)), to: Math.max(1, Math.min(max, savedCursor.to)) });
+        setSelectedCueId(savedCursor.cueId && findCueRange(editor, savedCursor.cueId) ? savedCursor.cueId : selectedStoryId(editor));
+      } else {
+        const firstCue = compileDocument(chapter.document)[0];
+        setSelectedCueId(firstCue?.id ?? null);
+      }
+      paragraphAnchorRef.current = null;
+      setDropHint(null);
+      setSelectedLayerId(null);
+      setSelectedGroupId(null);
+      setSelectedGroupIds([]);
+      setSelectedParagraphs([]);
+      const savedScroll = chapterScrollRef.current.get(chapter.id) ?? 0;
+      frame = requestAnimationFrame(() => {
+        if (editorChapterIdRef.current === chapter.id && editorScrollRef.current) editorScrollRef.current.scrollTop = savedScroll;
+      });
+      /* åˆ‡ç« åç¼–è¾‘å™¨å°±ç»ªäº†ï¼Œæ‰æ‰§è¡Œå®šä½æˆ–ç« èŠ‚çº§åŠ¨ä½œã€‚
+         ä¸¤è€…éƒ½è·Ÿç€æŒ‚è½½äº‹ä»¶èµ°ï¼Œä¸ç”¨å»¶æ—¶å»çŒœæŒ‚è½½å®Œæˆã€‚ */
+      const pendingLocate = pendingLocateRef.current;
+      if (pendingLocate && pendingLocate.chapterId === chapter.id && pendingLocate.token === locateTokenRef.current) {
+        pendingLocateRef.current = null;
+        runLocate(pendingLocate);
+      }
+      const pendingAction = pendingChapterActionRef.current;
+      if (pendingAction && pendingAction.chapterId === chapter.id) {
+        pendingChapterActionRef.current = null;
+        pendingAction.run();
+      }
+    });
+    return () => { cancel(); if (frame) cancelAnimationFrame(frame); };
+  }, [editor, chapter.id]);
+  const paragraphIndexes = useMemo(() => new Map<string, number>(document.blocks.map((block: any, index: number) => [block.id, index])), [document]);
+  const orderedGroups = useMemo(() => [...chapter.groups].sort((a: any, b: any) => (paragraphIndexes.get(a.paragraphIds[0]) ?? -1) - (paragraphIndexes.get(b.paragraphIds[0]) ?? -1)), [chapter.groups, paragraphIndexes]);
+  useEffect(() => {
+    if (!editor || editor.isDestroyed) return;
+    const choose = (event: Event) => {
+      const detail = (event as CustomEvent).detail;
+      const ids = activeChapter(projectRef.current).document.blocks.map((block: any) => block.id);
+      if (!ids.includes(detail.paragraphId)) return;
+      playerRef.current?.stop();
+      setSelectedGroupId(null);
+      setSelectedGroupIds([]);
+      setSelectedParagraphs((current) => {
+        if (detail.shiftKey && paragraphAnchorRef.current && ids.includes(paragraphAnchorRef.current)) {
+          const from = ids.indexOf(paragraphAnchorRef.current), to = ids.indexOf(detail.paragraphId);
+          return ids.slice(Math.min(from, to), Math.max(from, to) + 1);
+        }
+        paragraphAnchorRef.current = detail.paragraphId;
+        return current.includes(detail.paragraphId) ? current.filter((id) => id !== detail.paragraphId) : ids.filter((id: string) => id === detail.paragraphId || current.includes(id));
+      });
+    };
+    const chooseGroup = (event: Event) => {
+      const detail = (event as CustomEvent).detail;
+      const groupId = String(detail.groupId ?? '');
+      selectGroup(groupId, detail);
+    };
+    const openGroupMusic = (event: Event) => {
+      const groupId = String((event as CustomEvent).detail.groupId ?? '');
+      if (!orderedGroups.some((group: any) => group.id === groupId)) return;
+      const groupIds = selectedGroupIds.includes(groupId) ? orderedGroups.filter((group: any) => selectedGroupIds.includes(group.id)).map((group: any) => group.id) : [groupId];
+      setGroupMusicDialog({ chapterId: chapter.id, groupIds, assetId: '' });
+    };
+    return bindEditorViewListeners(editor, [
+      ['story-paragraph-select', choose],
       ['story-group-select', chooseGroup],
       ['story-group-music', openGroupMusic],
     ]);
@@ -330,127 +611,296 @@ HˆÙÜ›İ\YNÃBˆÙ]Ü›İ\]\ÚXÑX[ÙÊÈÚ\\’YˆÚ\\‹šYÜ›İ\YË\ÜÙ
       do {
         if (libraryKeyRef.current !== targetKey) return result;
         const snapshot = { project: projectRef.current, assets: assetsRef.current };
-        if (!asCopy && savedSnapshotRef.current?.key === targetKey && savedSnapshotRef.current¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±xü¹ÁÉ½©•Ğ€ôôôÍ¹…ÁÍ¡½Ğ¹ÁÉ½©•Ğ€˜˜Í…Ù•‘M¹…ÁÍ¡½ÑI•˜¹ÕÉÉ•¹Ğü¹…ÍÍ•ÑÌ€ôôôÍ¹…ÁÍ¡½Ğ¹…ÍÍ•ÑÌ¤É•ÑÕÉ¸É•ÍÕ±Ğì4(€€€€€€€½¹ÍĞÁÉ•Ù¥½ÕÍM…Ù•1…‰•°€ôÍ…Ù•1…‰•±I•˜¹ÕÉÉ•¹Ğì4(€€€€€€€ÕÁ‘…Ñ•M…Ù•1…‰•° Ÿš¶–r£’şw–¶cŠ˜œ¤ì4(€€€€€€€½¹ÍĞ‰åÑ•Ì€ô…İ…¥ĞÁ…­	åÑ•Ì¡Í¹…ÁÍ¡½Ğ¹ÁÉ½©•Ğ°Í¹…ÁÍ¡½Ğ¹…ÍÍ•ÑÌ¤ì4(€€€€€€€½¹ÍĞÑ•áÑ1•¹Ñ €ô¡…ÁÑ•ÉQ•áÑ½Õ¹ÑÌ¡Í¹…ÁÍ¡½Ğ¹ÁÉ½©•Ğ¤ì4(€€€€€€€½¹ÍĞÁÉ½Ñ•ÑÕÉÉ•¹Ğ€ô¥Í1…É•Q•áÑ•±•Ñ¥½¸¡Í…Ù•‘Q•áÑ1•¹Ñ¡I•˜¹ÕÉÉ•¹Ğ°Ñ•áÑ1•¹Ñ ¤ì4(€€€€€€€É•ÍÕ±Ğ€ô…Í½Áä4(€€€€€€€€€€ü…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹±¥‰É…Éä¹Í…Ù•Ì¡Ñ…É•Ñ-•ä°‰åÑ•Ì¤4(€€€€€€€€€€è…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹±¥‰É…Éä¹Í…Ù”¡Ñ…É•Ñ-•ä°‰åÑ•Ì°ìÁÉ½Ñ•ÑÕÉÉ•¹Ğô¤ì4(€€€€€€€¥˜€ …É•ÍÕ±Ğ¤ìÕÁ‘…Ñ•M…Ù•1…‰•°¡ÁÉ•Ù¥½ÕÍM…Ù•1…‰•°¤ìÉ•ÑÕÉ¸¹Õ±°ìô4(€€€€€€€Í…Ù•‘M¹…ÁÍ¡½ÑI•˜¹ÕÉÉ•¹Ğ€ôì­•äèÑ…É•Ñ-•ä°€¸¸¹Í¹…ÁÍ¡½Ğôì4(€€€€€€€Í…Ù•‘Q•áÑ1•¹Ñ¡I•˜¹ÕÉÉ•¹Ğ€ôÑ•áÑ1•¹Ñ ì4(€€€€€€€¥˜€ ™¥±•A…Ñ œ¥¸É•ÍÕ±Ğ¤Í•ÑM…Ù•Q…É•Ğ¡É•ÍÕ±Ğ¹™¥±•A…Ñ €üü¹Õ±°¤ì4(€€€€€€€¥˜€¡É•ÍÕ±Ğ¹İ…É¹¥¹œ¤Í•Ñ9½Ñ¥”¡É•ÍÕ±Ğ¹İ…É¹¥¹œ¤ì4(€€€€€€€¥˜€¡±¥‰É…Éå-•åI•˜¹ÕÉÉ•¹Ğ€„ôôÑ…É•Ñ-•ä¤É•ÑÕÉ¸É•ÍÕ±Ğì4(€€€€€€€¥˜€¡ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ€ôôôÍ¹…ÁÍ¡½Ğ¹ÁÉ½©•Ğ€˜˜…ÍÍ•ÑÍI•˜¹ÕÉÉ•¹Ğ€ôôôÍ¹…ÁÍ¡½Ğ¹…ÍÍ•ÑÌ¤ì4(€€€€€€€€€ÕÁ‘…Ñ•M…Ù•1…‰•° Ÿ–ŞË’şw–¶`ƒ
-Ü€œ€¬¹•Ü…Ñ”¡É•ÍÕ±Ğ¹Í…Ù•‘Ğ¤¹Ñ½1½…±•Q¥µ•MÑÉ¥¹œ é µ8œ°ì¡½ÕÈè€œÈµ‘¥¥Ğœ°µ¥¹ÕÑ”è€œÈµ‘¥¥Ğœô¤¤ì4(€€€€€€€€€É•ÑÕÉ¸É•ÍÕ±Ğì4(€€€€€€€ô4(€€€€€€€ÕÁ‘…Ñ•M…Ù•1…‰•° Ÿšr'šZÃ’ş»šRäƒ
-Üƒš¶–r£îŸî·’şw–¶cŠ˜œ¤ì4(€€€€€ôİ¡¥±”€ ……Í½Áä¤ì4(€€€€€É•ÑÕÉ¸É•ÍÕ±Ğì4(€€€ô¤¹…Ñ  ¡•ÉÉ½È¤€ôøì4(€€€€€ÕÁ‘…Ñ•M…Ù•1…‰•° Ÿ’şw–¶c–’Ç¢Ò”œ¤ì4(€€€€€Í•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü€Ÿ’şw–¶c–’Ç¢Ò—¾òhœ€¬•ÉÉ½È¹µ•ÍÍ…”€è€Ÿ’şw–¶c–’Ç¢Ò—¾ò3¢¾ßšš~—nc¦ë¦^Ó–B;¦7¢¾Wœ¤ì4(€€€€€Ñ¡É½Ü•ÉÉ½Èì4(€€€ô¤ì4(€€€Í…Ù•EÕ•Õ”¹ÕÉÉ•¹Ğ€ôÑ…Í¬ì4(€€€¥˜€ ……Í½Áä¤ì4(€€€€€Á•¹‘¥¹M…Ù•I•˜¹ÕÉÉ•¹Ğ€ôÑ…Í¬ì4(€€€€€Ù½¥Ñ…Í¬¹™¥¹…±±ä  ¤€ôøì¥˜€¡Á•¹‘¥¹M…Ù•I•˜¹ÕÉÉ•¹Ğ€ôôôÑ…Í¬¤Á•¹‘¥¹M…Ù•I•˜¹ÕÉÉ•¹Ğ€ô¹Õ±°ìô¤¹…Ñ   ¤€ôøíô¤ì4(€€€ô4(€€€É•ÑÕÉ¸Ñ…Í¬ì4(€ôì4(€½¹ÍĞÍ…Ù•9½İI•˜€ôÕÍ•I•˜¡Í…Ù•9½Ü¤ì4(€Í…Ù•9½İI•˜¹ÕÉÉ•¹Ğ€ôÍ…Ù•9½Üì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€±•Ğ…Ñ¥Ù”€ôÑÉÕ”ì4(€€€İ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹±¥‰É…Éä¹Í…Ù•Q…É•Ğ¡±¥‰É…Éå-•åI•˜¹ÕÉÉ•¹Ğ¤¹Ñ¡•¸ ¡Ñ…É•Ğ¤€ôøì¥˜€¡…Ñ¥Ù”¤Í•ÑM…Ù•Q…É•Ğ¡Ñ…É•Ğ¤ìô¤¹…Ñ   ¤€ôøíô¤ì4(€€€€¼¨ƒ¦†Û¦£3–"š6‹–Ş—¢/7–"_¢†£¾òk–B¿–*£š^Û–#¢¾ï’âš²‡–Ş—¢/–êL€¨¼4(€€€İ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹±¥‰É…Éä¹±¥ÍĞ ¤¹Ñ¡•¸ ¡ÍÑ…Ñ”¤€ôøì¥˜€¡…Ñ¥Ù”¤Í•Ñ1¥‰É…ÉåAÉ½©•ÑÌ¡ÍÑ…Ñ”¹ÁÉ½©•ÑÌ¤ìô¤¹…Ñ   ¤€ôøíô¤ì4(€€€½¹ÍĞÕ¹ÍÕ‰ÍÉ¥‰”€ôİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹½¹	•™½É•±½Í”¡…Íå¹Œ€ ¤€ôøì4(€€€€€ÑÉäì4(€€€€€€€…İ…¥ĞÍ…Ù•9½İI•˜¹ÕÉÉ•¹Ğ ¤ì4(€€€€€€€…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹±½Í•I•ÍÕ±Ğ¡ìÍ…Ù•èÑÉÕ”ô¤ì4(€€€€€ô…Ñ €¡•ÉÉ½È¤ì4(€€€€€€€…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹±½Í•I•ÍÕ±Ğ¡ìÍ…Ù•è™…±Í”°•ÉÉ½Èè•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü•ÉÉ½È¹µ•ÍÍ…”€è€Ÿšr–B;’ş»šRç’şw–¶c–’Ç¢Ò—œô¤ì4(€€€€€ô4(€€€ô¤ì4(€€€É•ÑÕÉ¸€ ¤€ôøì…Ñ¥Ù”€ô™…±Í”ìÕ¹ÍÕ‰ÍÉ¥‰” ¤ìôì4(€ô°mt¤ì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€½¹ÍĞ­•å‘½İ¸€ô€¡•Ù•¹Ğè-•å‰½…É‘Ù•¹Ğ¤€ôøì4(€€€€€¥˜€ ¡•Ù•¹Ğ¹ÑÉ±-•äñğ•Ù•¹Ğ¹µ•Ñ…-•ä¤€˜˜•Ù•¹Ğ¹­•ä¹Ñ½1½İ•É…Í” ¤€ôôô€Ìœ¤ì4(€€€€€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì4(€€€€€€€Ù½¥Í…Ù•9½Ü ¤¹…Ñ   ¤€ôøíô¤ì4(€€€€€ô4(€€€ôì4(€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸¤ì4(€€€É•ÑÕÉ¸€ ¤€ôøİ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸¤ì4(€ô°mÁÉ½©•Ğ°…ÍÍ•ÑÍt¤ì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€½¹ÍĞÑ¥µ•½ÕĞ€ôİ¥¹‘½Ü¹Í•ÑQ¥µ•½ÕĞ  ¤€ôøÍ•Ñ9½Ñ¥” œœ¤°€ÌØÀÀ¤ì4(€€€É•ÑÕÉ¸€ ¤€ôøİ¥¹‘½Ü¹±•…ÉQ¥µ•½ÕĞ¡Ñ¥µ•½ÕĞ¤ì4(€ô°m¹½Ñ¥•t¤ì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€¥˜€¡Í…Ù•‘M¹…ÁÍ¡½ÑI•˜¹ÕÉÉ•¹Ğü¹­•ä€ôôô±¥‰É…Éå-•ä€˜˜Í…Ù•‘M¹…ÁÍ¡½ÑI•˜¹ÕÉÉ•¹Ğü¹ÁÉ½©•Ğ€ôôôÁÉ½©•Ğ€˜˜Í…Ù•‘M¹…ÁÍ¡½ÑI•˜¹ÕÉÉ•¹Ğü¹…ÍÍ•ÑÌ€ôôô…ÍÍ•ÑÌ¤É•ÑÕÉ¸ì4(€€€ÕÁ‘…Ñ•M…Ù•1…‰•° Ÿšr'šr«’şw–¶c’ş»šRäƒ
-Üƒ¢«–*£’şw–¶c’â·Š˜œ¤ì4(€€€Í…Ù•Q¥µ•È¹ÕÉÉ•¹Ğ€ôİ¥¹‘½Ü¹Í•ÑQ¥µ•½ÕĞ  ¤€ôøì4(€€€€€Í…Ù•Q¥µ•È¹ÕÉÉ•¹Ğ€ô¹Õ±°ì4(€€€€€¥˜€¡…ÕÑ½Í…Ù•MÕÁÁÉ•ÍÍ•¹ÕÉÉ•¹Ğ¤É•ÑÕÉ¸ì4(€€€€€Ù½¥Í…Ù•9½Ü ¤¹…Ñ   ¤€ôøíô¤ì4(€€€ô°€ØÔÀ¤ì4(€€€É•ÑÕÉ¸€ ¤€ôøì4(€€€€€¥˜€¡Í…Ù•Q¥µ•È¹ÕÉÉ•¹Ğ€„ôô¹Õ±°¤İ¥¹‘½Ü¹±•…ÉQ¥µ•½ÕĞ¡Í…Ù•Q¥µ•È¹ÕÉÉ•¹Ğ¤ì4(€€€€€Í…Ù•Q¥µ•È¹ÕÉÉ•¹Ğ€ô¹Õ±°ì4(€€€ôì4(€ô°mÁÉ½©•Ğ°…ÍÍ•ÑÌ°±¥‰É…Éå-•åt¤ì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€É•Ù½­•U¹ÕÍ•‘UÉ±Ì¡…ÍÍ•ÑÌ¤ì4(€ô°m…ÍÍ•ÑÍt¤ì4(4(€½¹ÍĞÕÉ±¥ÍÁ½Í•Q¥µ•È€ôÕÍ•I•˜ñ¹Õµ‰•Èğ¹Õ±°ø¡¹Õ±°¤ì4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€¥˜€¡ÕÉ±¥ÍÁ½Í•Q¥µ•È¹ÕÉÉ•¹Ğ€„ôô¹Õ±°¤İ¥¹‘½Ü¹±•…ÉQ¥µ•½ÕĞ¡ÕÉ±¥ÍÁ½Í•Q¥µ•È¹ÕÉÉ•¹Ğ¤ì4(€€€ÕÉ±¥ÍÁ½Í•Q¥µ•È¹ÕÉÉ•¹Ğ€ô¹Õ±°ì4(€€€É•ÑÕÉ¸€ ¤€ôøì4(€€€€€Á±…å•ÉI•˜¹ÕÉÉ•¹Ğü¹ÍÑ½À ¤ì4(€€€€€ÕÉ±¥ÍÁ½Í•Q¥µ•È¹ÕÉÉ•¹Ğ€ôİ¥¹‘½Ü¹Í•ÑQ¥µ•½ÕĞ  ¤€ôøì4(€€€€€€€ÕÉ±¥ÍÁ½Í•Q¥µ•È¹ÕÉÉ•¹Ğ€ô¹Õ±°ì4(€€€€€€€‘¥ÍÁ½Í•UÉ±Ì ¤ì4(€€€€€ô°€À¤ì4(€€€ôì4(€ô°mt¤ì4(4(€½¹ÍĞÁ…Ñ¡Õ”€ô€¡Á…Ñ èA…ÉÑ¥…°ñÕ•M•ÑÑ¥¹Ìø¤€ôøì4(€€€¥˜€ …•‘¥Ñ½Èñğ€…Í•±•Ñ•‘Õ”¤ì4(€€€€€Í•Ñ9½Ñ¥” Ÿ¢¾ß–#¦'’â·’â–>—š¶šZœ¤ì4(€€€€€É•ÑÕÉ¸ì4(€€€ô4(€€€ÑÉäì4(€€€€€Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ì€¸¸¹Í•±•Ñ•‘Õ”¹Í•ÑÑ¥¹Ì°€¸¸¹Á…Ñ ô¤¤ì4(€€€€€½¹ÍĞÉ…¹”€ô™¥¹‘Õ•I…¹”¡•‘¥Ñ½È°Í•±•Ñ•‘Õ”¹¥¤ì4(€€€€€¥˜€¡…ÁÁ±åÕ•A…Ñ ¡•‘¥Ñ½È°Í•±•Ñ•‘Õ”¹¥°Í•±•Ñ•‘Õ”¹Í•ÑÑ¥¹Ì°Á…Ñ ¤¤ì4(€€€€€½¹ÍĞ¥€ôÉ…¹”€˜˜•‘¥Ñ½È¹ÍÑ…Ñ”¹‘½Œ¹¹½‘•Ğ¡É…¹”¹™É½´¤ü¹µ…É­Ì¹™¥¹ ¡µ…É¬¤€ôøµ…É¬¹ÑåÁ”¹¹…µ”€ôôô€Õ”œ¤ü¹…ÑÑÉÌ¹Õ•%ì4(€€€€€¥˜€¡¥¤Í•ÑM•±•Ñ•‘Õ•%¡¥¤ì4(€€€€€É”V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅçGW&âG'VS°Ğ¢ĞĞ¢&WGW&âfÇ6S°Ğ¢Ò6F6‚†W'&÷"’²6WDæ÷F–6R†W'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~Šëî{ÚîiziXûÈÎKúîiKiÊ®hùKªN8"r“²&WGW&âfÇ6S²ĞĞ¢Ó°Ğ Ğ¢6öç7BF6„Ö÷F–öå6WGF–æw2Ò‡F6ƒ¢&V6÷&CÇ7G&–ærÂç“â’Óâ°Ğ¢–b‚6VÆV7FVD7VR’&WGW&ã°Ğ¢&WGW&âF6„7VR‡²Ö÷F–öå6WGF–æw3¢²ââæFVfVÇDÖ÷F–öå6WGF–æw2‡6VÆV7FVD7VRç6WGF–æw2æÖ÷F–öâÂ6VÆV7FVD7VRçFW‡B’Ââââ‡6VÆV7FVD7VRç6WGF–æw2æÖ÷F–öå6WGF–æw2óò·Ò’ÂââçF6‚ÒÒ“°Ğ¢Ó°Ğ Ğ¢6öç7B6VÆV7DÖ÷F–öâÒ†Ö÷F–öã¢7VU6WGF–æw5²vÖ÷F–öâuÒ’Óâ°Ğ¢–b‚6VÆV7FVD7VR’&WGW&ã°Ğ¢F6„7VR‡²Ö÷F–öâÂÖ÷F–öå6WGF–æw3¢FVfVÇDÖ÷F–öå6WGF–æw2†Ö÷F–öâÂ6VÆV7FVD7VRçFW‡B’Ò“°Ğ¢Ó°Ğ Ğ¢6öç7B6WDÖöFRÒ†ÖöFS¢vF–ÆöwVRrÂvg&VRr’Óâ°Ğ¢–b‚VF—F÷"’&WGW&ã°Ğ¢6öç7B7W'&VçBÒ6VÆV7FVD7VSòç6WGF–æw2óòFVfVÇE6WGF–æw2‚“°Ğ¢6öç7B&W7VÇBÒÇ”ÖöFR†VF—F÷"Â6VÆV7FVD7VT–BÂ7W'&VçBÂÖöFR“°Ğ¢–b‚&W7VÇBæö²’6WDæ÷F–6R‡&W7VÇBæÖW76vRóò~iÊ®ˆ;Ş[©NyJkÉNX{®jŠ[Èş8"r“°Ğ¢VÇ6R–b‡&W7VÇBæ7VT–B’6WE6VÆV7FVD7VT–B‡&W7VÇBæ7VT–B“°Ğ¢Ó°Ğ Ğ¢6öç7B6WD6öÆ÷"Ò†6öÆ÷#¢7G&–ær’Óâ°Ğ¢–b‚VF—F÷"’&WGW&ã°Ğ¢6öç7B6VÆV7F–öâÒVF—F÷"ç7FFRç6VÆV7F–öã°Ğ¢6öç7B&ævRÒ6VÆV7F–öâæV×G’ò6VÆV7F–öâ¢6VÆV7FVD7VT–Bòf–æD7VU&ævR†VF—F÷"Â6VÆV7FVD7VT–B’¢çVÆÃ°Ğ¢–b‚&ævRÇÂ&ævRçFòÃÒ&ævRæg&öÒ’&WGW&â6WDæ÷F–6R‚~Šû~XX˜KŠŞŠhiKˆ›.y¨Nih~ZÙ~h‰nKˆXú^Xš~h8^8"r“°Ğ¢–b‚—4VF—F÷%f–Wu&VG’†VF—F÷"’’&WGW&â6WDæ÷F–6R‚~jÚ>ih~‹ùk*XxnZH~Z[ŞûÈÎŠû~zˆŞYîXhŞŠù^8"r“°Ğ¢VF—F÷"çf–WræF—7F6‚†VF—F÷"ç7FFRçG"æFDÖ&²‡&ævRæg&öÒÂ&ævRçFòÂVF—F÷"ç66†VÖæÖ&·2çFW‡E7G–ÆRæ7&VFR‡²6öÆ÷"Ò’’“°Ğ¢Ó°Ğ Ğ¢6öç7BVæD76WG2Ò†FFVC¢76WE&V6÷&EµÒÂW‡V7FVE&ö¦V7D–BÒ&ö¦V7E&Vbæ7W'&VçBæ–B’Óâ°Ğ¢6öç7B7W'&VçBÒ&ö¦V7E&Vbæ7W'&VçC°Ğ¢–b†7W'&VçBæ–BÓÒW‡V7FVE&ö¦V7D–B’F‡&÷ræWrW'&÷"‚~[z^zˆ¾[{.Xˆ~hÚ.ûÈÎŠû~YÊ[Ù>X˜Ş[z^zˆ¾˜xŞikZûÎXZ^8"r“°Ğ¢6öç7BæW‡BÒ²ââæ7W'&VçBÂ76WG3¢²ââæ7W'&VçBæ76WG2ÂââæFFVBæÖ‚‡²&Æö#¢ö&Æö"Âââæ76WBÒ’Óâ76WB•ÒÂWFFVDC¢æWrFFR‚’çFô•4õ7G&–ær‚’Ó°Ğ¢fÆ–FFU&ö¦V7B†æW‡B“°Ğ¢76WG5&Vbæ7W'&VçBÒ²ââæ76WG5&Vbæ7W'&VçBÂââæFFVEÓ°Ğ¢6WD76WG2†76WG5&Vbæ7W'&VçB“°Ğ¢&ö¦V7E&Vbæ7W'&VçBÒæW‡C°Ğ¢6WE&ö¦V7B†æW‡B“°Ğ¢Ó°Ğ¢6öç7B–×÷'D76WG2Ò7–æ2†VF–ôöæÇ’ÒfÇ6R’Óâ°Ğ¢6öç7B&ö¦V7D–BÒ&ö¦V7E&Vbæ7W'&VçBæ–C°Ğ¢6öç7B6†÷6VâÒv—Bv–æF÷rç7F÷'•v÷&¶&Væ6‚æ6†ö÷6T76WG2‚“°Ğ¢–b†6†÷6Vâæ6æ6VÆÆVBÇÂ6†÷6Vâæ—FV×2æÆVæwF‚’&WGW&âµÓ°Ğ¢6öç7BfÆ–BÒ6†÷6Vâæ—FV×2æf–ÇFW"‚†—FVÒ’Óâ—FVÒæ'—FW2bb—FVÒæW'&÷"“°Ğ¢6öç7Bf–ÆVBÒ6†÷6Vâæ—FV×2æf–ÇFW"‚†—FVÒ’Óâ—FVÒæW'&÷"’æÖ‚†—FVÒ’Óâ‡²æÖS¢—FVÒææÖRÂ7FGW3¢vW'&÷"r26öç7BÂFWF–Ã¢—FVÒæW'&÷"Ò’“°Ğ¢6öç7Bf–ÆW2ÒfÆ–BæÖ‚†—FVÒ’ÓâæWrf–ÆR…¶—FVÒæ'—FW2ç6Æ–6R‚’æ'VffW"2'&”'VffW%ÒÂ—FVÒææÖRÂ²G—S¢—FVÒæÖ–ÖRÒ’“°Ğ¢6öç7B6æF–FFW2Òv—BÖV7W&T76WG2‡&V6÷&G4g&öÔf–ÆW2†f–ÆW2’“°Ğ¢6öç7BFFVBÒ6æF–FFW2æf–ÇFW"‚†76WB’ÓâVF–ôöæÇ’ÇÂ76WBæ¶–æBÓÓÒvVF–òr“°Ğ¢6æF–FFW2æf–ÇFW"‚†76WB’ÓâVF–ôöæÇ’bb76WBæ¶–æBÓÒvVF–òr’æf÷$V6‚‚†76WB’Óâf–ÆVBçW6‚‡²æÖS¢76WBææÖRÂ7FGW3¢vW'&÷"rÂFWF–Ã¢~jÚNXZ^Xú>Xú®hê^Xù~™û>š)ûÈÎŠû~K¸î{JiÙ[©>ZûÎXZ^X[nK¹nih~K»n8"rÒ’“°Ğ¢–b†FFVBæÆVæwF‚’VæD76WG2†FFVBÂ&ö¦V7D–B“°Ğ¢6WD–×÷'E&W÷'B…²ââæFFVBæÖ‚†76WB’Óâ‡²æÖS¢76WBææÖRÂ7FGW3¢w7V66W72r26öç7BÂFWF–Ã¢~[{.XªXZ^[Ù>X˜Ş[z^zˆ¾{JiÙ[©>8"rÒ’’Âââæf–ÆVEÒ“°Ğ¢6WDæWt76WD–G2†FFVBæÖ‚†76WB’Óâ76WBæ–B’“°Ğ¢–b†FFVBæÆVæwF‚’6WDf–ÇFW"‚vÆÂr“°Ğ¢6WDæ÷F–6R‚~ZûÎXZ^ZèÎh‰ûÉ®h‰X©òr²FFVBæÆVæwF‚²rKŠ®ûÈÎZK‹JRr²f–ÆVBæÆVæwF‚²rKŠ®8"r“°Ğ¢&WGW&âFFVC°Ğ¢Ó°Ğ¢6öç7Böä–×÷'D76WG2Ò7–æ2‚’Óâ°Ğ¢G'’²v—B–×÷'D76WG2‚“²ĞĞ¢6F6‚†W'&÷"’²6WDæ÷F–6R†W'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~{JiÙŠû¾XùnZK‹J^8"r“²ĞĞ¢Ó°Ğ¢6öç7B&Wf–Wt'F–6ÆRÒ7–æ2†76WC¢76WE&V6÷&B’Óâ°Ğ¢6öç7B6†FW$–BÒ&ö¦V7E&Vbæ7W'&VçBæ7F—fT6†FW$–C°Ğ¢G'’°Ğ¢6öç7B&w&‡2Ò'6T'F–6ÆUFW‡B†76WBææÖRÂv—B76WBæ&Æö"çFW‡B‚’“°Ğ¢–b‡&ö¦V7E&Vbæ7W'&VçBæ7F—fT6†FW$–BÓÒ6†FW$–B’F‡&÷ræWrW'&÷"‚~zºˆ¨.[{.Xˆ~hÚ.ûÈÎŠû~˜xŞik˜hºih~zº8"r“°Ğ¢6WD'F–6ÆU&Wf–Wr‡²6†FW$–BÂæÖS¢76WBææÖRÂ&w&‡2Ò“°Ğ¢Ò6F6‚†W'&÷"’²6WDæ÷F–6R†W'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~ih~zºŠû¾XùnZK‹J^8"r“²ĞĞ¢Ó°Ğ¢6öç7BVæD'F–6ÆRÒ‚’Óâ°Ğ¢–b‚'F–6ÆU&Wf–WrÇÂVF—F÷"ÇÂ'F–6ÆU&Wf–Wræ6†FW$–BÓÒ&ö¦V7E&Vbæ7W'&VçBæ7F—fT6†FW$–B’&WGW&â6WDæ÷F–6R‚~zºˆ¨.[{.XùXÉnûÈÎŠû~˜xŞikš(NŠxih~zº8"r“°Ğ¢6öç7B&Æö6·2Ò7F—fT6†FW"‡&ö¦V7E&Vbæ7W'&VçB’æFö7VÖVçBæ&Æö6·3°Ğ¢6öç7BÆ6V†öÆFW"Ò&Æö6·2æÆVæwF‚ÓÓÒbbÆ–åFW‡B†&Æö6·5³Òæ6†–ÆG&Vâ’çG&–Ò‚“°Ğ¢VæDVF—F÷%&w&‡2†VF—F÷"Â'F–6ÆU&Wf–Wrç&w&‡2æÖ‚‡FW‡B’Óâ‡²–C¢Ö¶T–B‚w&w&‚r’ÂFW‡BÒ’’ÂÆ6V†öÆFW"“°Ğ¢6WD'F–6ÆU&Wf–Wr†çVÆÂ“°Ğ¢6WDæ÷F–6R‚~ih~zº[{.‹ûŞXªX‹[Ù>X˜Şzºˆ¨.ûÈÎXúşyJ‚7G&Âµ¢i*N™H8"r“°Ğ¢Ó°Ğ¢6öç7BFVÆWFT76WBÒ†76WC¢76WE&V6÷&B’Óâ°Ğ¢6öç7BW6vW2Ò76WEW6vW2‡&ö¦V7E&Vbæ7W'&VçBÂ76WBæ–B“°Ğ¢–b‡W6vW2æÆVæwF‚’&WGW&â6WDæ÷F–6QZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{Š	ùí(9§d9.ãz(ªù/oùå*;ï&‰È
-È\ØYÙ\ËœÛXÙJJKš›Ú[Š	ûï&ÉÊH
-È	øà º+íùab:)èúfi9o%yå*8à ‰ÊNÃBˆÙ]ÛÛ™š\›X][ÛŠÈ]Nˆ	ù.ã¹méyê"ùéîúfi9í(9§d;ï'ÉË]Z[ˆ	ùl!¹éîúfi8 '	È
-È\ÜÙ]›˜[YH
-È	ø 'yæ¡9méyê"ùbkù§+;ï#9.#yb(:fi9èàyææ9c§ù¥¡ù.í¸à ‰ËXİ[Ûˆ
+        if (!asCopy && savedSnapshotRef.current?.key === targetKey && savedSnapshotRef.current?.project === snapshot.project && savedSnapshotRef.current?.assets === snapshot.assets) return result;
+        const previousSaveLabel = saveLabelRef.current;
+        updateSaveLabel('æ­£åœ¨ä¿å­˜â€¦');
+        const bytes = await packBytes(snapshot.project, snapshot.assets);
+        const textLength = chapterTextCounts(snapshot.project);
+        const protectCurrent = isLargeTextDeletion(savedTextLengthRef.current, textLength);
+        result = asCopy
+          ? await window.storyWorkbench.library.saveAs(targetKey, bytes)
+          : await window.storyWorkbench.library.save(targetKey, bytes, { protectCurrent });
+        if (!result) { updateSaveLabel(previousSaveLabel); return null; }
+        savedSnapshotRef.current = { key: targetKey, ...snapshot };
+        savedTextLengthRef.current = textLength;
+        if ('filePath' in result) setSaveTarget(result.filePath ?? null);
+        if (result.warning) setNotice(result.warning);
+        if (libraryKeyRef.current !== targetKey) return result;
+        if (projectRef.current === snapshot.project && assetsRef.current === snapshot.assets) {
+          updateSaveLabel('å·²ä¿å­˜ Â· ' + new Date(result.savedAt).toLocaleTimeString('zh-CN', { hour: '2-digit', minute: '2-digit' }));
+          return result;
+        }
+        updateSaveLabel('æœ‰æ–°ä¿®æ”¹ Â· æ­£åœ¨ç»§ç»­ä¿å­˜â€¦');
+      } while (!asCopy);
+      return result;
+    }).catch((error) => {
+      updateSaveLabel('ä¿å­˜å¤±è´¥');
+      setNotice(error instanceof Error ? 'ä¿å­˜å¤±è´¥ï¼š' + error.message : 'ä¿å­˜å¤±è´¥ï¼Œè¯·æ£€æŸ¥ç£ç›˜ç©ºé—´åé‡è¯•ã€‚');
+      throw error;
+    });
+    saveQueue.current = task;
+    if (!asCopy) {
+      pendingSaveRef.current = task;
+      void task.finally(() => { if (pendingSaveRef.current === task) pendingSaveRef.current = null; }).catch(() => {});
+    }
+    return task;
+  };
+  const saveNowRef = useRef(saveNow);
+  saveNowRef.current = saveNow;
 
-HOˆÃBˆÛÛœİİ\œ™[H›Ú™Xİ™Y‹˜İ\œ™[ÃBˆYˆ
-\ÜÙ]\ØYÙ\Êİ\œ™[\ÜÙ]šY
-K›[™İ
-H™]\›ˆÙ]›İXÙJ	ùí(9§d9¥¬9h§¹.¡¹o%yå*;ï#:+íùab:)èúfi9o%yå*8à ‰ÊNÃBˆ\ÜÙ]Ô™Y‹˜İ\œ™[H\ÜÙ]Ô™Y‹˜İ\œ™[™š[\Š
-][JHOˆ][KšYOOH\ÜÙ]šY
-NÃBˆÙ]\ÜÙ]Ê\ÜÙ]Ô™Y‹˜İ\œ™[
-NÃBˆÛÛ[Z]›Ú™Xİ
-È‹‹˜İ\œ™[\ÜÙ]Îˆİ\œ™[˜\ÜÙ]Ë™š[\Š
-][Nˆ[JHOˆ][KšYOOH\ÜÙ]šY
-K\]Y]ˆ™]È]J
-KÒTÓÔİš[™Ê
-HJNÃBˆHJNÃBˆNÃBƒBˆÛÛœİØÜ›ÛY]Ü•\™Ù]H
-\™Ù]ˆS[[Y[[
-HOˆÃBˆYˆ
-]\™Ù]
-H™]\›ÃBˆ™\]Y\İ[š[X][Û‘œ˜[YJ
+  useEffect(() => {
+    let active = true;
+    window.storyWorkbench.library.saveTarget(libraryKeyRef.current).then((target) => { if (active) setSaveTarget(target); }).catch(() => {});
+    /* é¡¶éƒ¨ã€Œåˆ‡æ¢å·¥ç¨‹ã€åˆ—è¡¨ï¼šå¯åŠ¨æ—¶å…ˆè¯»ä¸€æ¬¡å·¥ç¨‹åº“ */
+    window.storyWorkbench.library.list().then((state) => { if (active) setLibraryProjects(state.projects); }).catch(() => {});
+    const unsubscribe = window.storyWorkbench.onBeforeClose(async () => {
+      try {
+        await saveNowRef.current();
+        await window.storyWorkbench.closeResult({ saved: true });
+      } catch (error) {
+        await window.storyWorkbench.closeResult({ saved: false, error: error instanceof Error ? error.message : 'æœ€åä¿®æ”¹ä¿å­˜å¤±è´¥ã€‚' });
+      }
+    });
+    return () => { active = false; unsubscribe(); };
+  }, []);
 
-HOˆÃBˆÛÛœİÛÛZ[™\ˆHY]Ü”ØÜ›Û™Y‹˜İ\œ™[ÃBˆYˆ
-XÛÛZ[™\ˆXÛÛZ[™\‹˜ÛÛZ[œÊ\™Ù]
-JH™]\›ÃBˆÛÛœİšY]ÜÜHÛÛZ[™\‹™Ù]›İ[™[™ĞÛY[™Xİ
+  useEffect(() => {
+    const keydown = (event: KeyboardEvent) => {
+      if ((event.ctrlKey || event.metaKey) && event.key.toLowerCase() === 's') {
+        event.preventDefault();
+        void saveNow().catch(() => {});
+      }
+    };
+    window.addEventListener('keydown', keydown);
+    return () => window.removeEventListener('keydown', keydown);
+  }, [project, assets]);
 
-NÃBˆÛÛœİ›İ[™ÈH\™Ù]™Ù]›İ[™[™ĞÛY[™Xİ
+  useEffect(() => {
+    const timeout = window.setTimeout(() => setNotice(''), 3600);
+    return () => window.clearTimeout(timeout);
+  }, [notice]);
 
-NÃBˆYˆ
-›İ[™ËÜšY]ÜÜÜ
-HÛÛZ[™\‹œØÜ›ÛÜOHšY]ÜÜÜH›İ[™ËÜ
-ÈMÃBˆ[ÙHYˆ
-›İ[™Ë˜›İÛHˆšY]ÜÜ˜›İÛJHÛÛZ[™\‹œØÜ›ÛÜ
-ÏH›İ[™Ë˜›İÛHHšY]ÜÜ˜›İÛH
-ÈMÃBˆJNÃBˆNÃBˆÛÛœİÙ[XİİYHH
-İYRYˆİš[™ÊHOˆÃBˆYˆ
-YY]ÜŠH™]\›ÃBˆ^Y\”™Y‹˜İ\œ™[œİÜ
+  useEffect(() => {
+    if (savedSnapshotRef.current?.key === libraryKey && savedSnapshotRef.current?.project === project && savedSnapshotRef.current?.assets === assets) return;
+    updateSaveLabel('æœ‰æœªä¿å­˜ä¿®æ”¹ Â· è‡ªåŠ¨ä¿å­˜ä¸­â€¦');
+    saveTimer.current = window.setTimeout(() => {
+      saveTimer.current = null;
+      if (autosaveSuppressed.current) return;
+      void saveNow().catch(() => {});
+    }, 650);
+    return () => {
+      if (saveTimer.current !== null) window.clearTimeout(saveTimer.current);
+      saveTimer.current = null;
+    };
+  }, [project, assets, libraryKey]);
 
-NÃBˆYYXTÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
+  useEffect(() => {
+    revokeUnusedUrls(assets);
+  }, [assets]);
 
-NÃBˆ]\ÚXÔÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
+  const urlDisposeTimer = useRef<number | null>(null);
+  useEffect(() => {
+    if (urlDisposeTimer.current !== null) window.clearTimeout(urlDisposeTimer.current);
+    urlDisposeTimer.current = null;
+    return () => {
+      playerRef.current?.stop();
+      urlDisposeTimer.current = window.setTimeout(() => {
+        urlDisposeTimer.current = null;
+        disposeUrls();
+      }, 0);
+    };
+  }, []);
 
-NÃBˆÙ]Ù[XİYİYRY
-İYRY
-NÃBˆÙ]Ù[XİYÜ›İ\Y
-[
-NÃBˆÙ]Ù[XİYÜ›İ\YÊ×JNÃBˆÙ]Ù[XİY\˜YÜ˜\Ê×JNÃBˆÛÛœİ˜[™ÙHHš[™İYT˜[™ÙJY]Ü‹İYRY
-NÃBˆYˆ
-˜[™ÙJHY]Ü‹˜ÛÛ[X[™ËœÙ]^Ù[Xİ[ÛŠ˜[™ÙK™œ›ÛJNÃBˆYˆ
-˜[™ÙJHÈÛÛœİÛHHY]Ü•šY]ÑÛJY]ÜŠNÈYˆ
-ÛJHØÜ›ÛY]Ü•\™Ù]
-ÛKœ]Y\TÙ[XİÜŠÙ]KXİYKZYH‰ĞÔÔË™\ØØ\JİYRY
-_H—X
-JNÈCBˆNÃBƒBˆÛÛœİÙ[Xİ\˜YÜ˜\H
-\˜YÜ˜\Yˆİš[™ÊHOˆÃBˆÛÛœİİYHHİ\œ™[[‹™š[™
+  const patchCue = (patch: Partial<CueSettings>) => {
+    if (!editor || !selectedCue) {
+      setNotice('è¯·å…ˆé€‰ä¸­ä¸€å¥æ­£æ–‡ã€‚');
+      return;
+    }
+    try {
+      validateCueSettings(defaultSettings({ ...selectedCue.settings, ...patch }));
+      const range = findCueRange(editor, selectedCue.id);
+      if (applyCuePatch(editor, selectedCue.id, selectedCue.settings, patch)) {
+      const id = range && editor.state.doc.nodeAt(range.from)?.marks.find((mark) => mark.type.name === 'cue')?.attrs.cueId;
+      if (id) setSelectedCueId(id);
+      return true;
+      }
+      return false;
+    } catch (error) { setNotice(error instanceof Error ? error.message : 'è®¾ç½®æ— æ•ˆï¼Œä¿®æ”¹æœªæäº¤ã€‚'); return false; }
+  };
 
-][Nˆ[JHOˆ][Kœ\˜YÜ˜\YOOH\˜YÜ˜\Y
-NÃBˆYˆ
-İYJHÃBˆÙ[XİİYJİYKšY
-NÃBˆ™]\›ÃBˆCBˆYˆ
-YY]ÜŠH™]\›ÃBˆ^Y\”™Y‹˜İ\œ™[œİÜ
+  const patchMotionSettings = (patch: Record<string, any>) => {
+    if (!selectedCue) return;
+    return patchCue({ motionSettings: { ...defaultMotionSettings(selectedCue.settings.motion, selectedCue.text), ...(selectedCue.settings.motionSettings ?? {}), ...patch } });
+  };
 
-NÃBˆYYXTÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
+  const selectMotion = (motion: CueSettings['motion']) => {
+    if (!selectedCue) return;
+    patchCue({ motion, motionSettings: defaultMotionSettings(motion, selectedCue.text) });
+  };
 
-NÃBˆ]\ÚXÔÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
+  const setMode = (mode: 'dialogue' | 'free') => {
+    if (!editor) return;
+    const current = selectedCue?.settings ?? defaultSettings();
+    const result = applyMode(editor, selectedCueId, current, mode);
+    if (!result.ok) setNotice(result.message ?? 'æœªèƒ½åº”ç”¨æ¼”å‡ºæ¨¡å¼ã€‚');
+    else if (result.cueId) setSelectedCueId(result.cueId);
+  };
 
-NÃBˆÙ]Ù[XİYİYRY
-[
-NÃBˆÙ]Ù[XİYÜ›İ\Y
-[
-NÃBˆÙ]Ù[XİYÜ›İ\YÊ×JNÃBˆ]ÜÚ][Ûˆ[X™\ˆ[H[ÃBˆY]Ü‹œİ]K™ØË™\ØÙ[™[Ê
-›ÙNˆ[K›ÙTÜÚ][Ûˆ[X™\ŠHOˆÃBˆYˆ
-›ÙK\K›˜[YHOOH	Ü\˜YÜ˜\	È	‰ˆİš[™Ê›ÙK˜]œËœ\˜YÜ˜\YÏÈ	ÉÊHOOH\˜YÜ˜\Y
-HÃBˆÜÚ][ÛˆH›ÙTÜÚ][Ûˆ
-ÈNÃBˆ™]\›ˆ˜[ÙNÃBˆCBˆ™]\›ˆYNÃBˆJNÃBˆYˆ
-ÜÚ][ÛˆOOH[
-HÃBˆÙ]›İXÙJ	ú/æy.*¹«hù¥¡ù«­z$/ymì¹cæ9c%»ï#:+íúaãy¥¬:`"y¢êxà ‰ÊNÃBˆ™]\›ÃBˆCBˆY]Ü‹˜ÛÛ[X[™ËœÙ]^Ù[Xİ[ÛŠÜÚ][ÛŠNÃBˆÛÛœİÙ[XİİYQÛNˆS[[Y[[HY]Ü•šY]ÑÛJY]ÜŠNÃBˆYˆ
-Ù[XİİYQÛJHØÜ›ÛY]Ü•\™Ù]
-Ë‹‹œÙ[XİİYQÛKœ]Y\TÙ[XİÜ[S[[Y[Š	Ü	ÊWK™š[™
+  const setColor = (color: string) => {
+    if (!editor) return;
+    const selection = editor.state.selection;
+    const range = !selection.empty ? selection : selectedCueId ? findCueRange(editor, selectedCueId) : null;
+    if (!range || range.to <= range.from) return setNotice('è¯·å…ˆé€‰ä¸­è¦æ”¹è‰²çš„æ–‡å­—æˆ–ä¸€å¥å‰§æƒ…ã€‚');
+    if (!isEditorViewReady(editor)) return setNotice('æ­£æ–‡è¿˜æ²¡å‡†å¤‡å¥½ï¼Œè¯·ç¨åå†è¯•ã€‚');
+    editor.view.dispatch(editor.state.tr.addMark(range.from, range.to, editor.schema.marks.textStyle.create({ color })));
+  };
 
-\˜YÜ˜\
-HOˆ\˜YÜ˜\\™Ù]
-\˜YÜ˜\
-OËšYOOH\˜YÜ˜\Y
-HÏÈ[
-NÃBˆNÃBƒBˆÊˆ8¥ 8¥ 9mé¹/©ùæë¹oeyk¦¹/c{ï&¹êè:" ˆ8¡¤ˆ9îá8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ 8¥ Bˆ9k¦¹/cycê¹¦+øà#9ç"ù. 9ç/8à#{ï&¹.#y¥.y«hù¥¡øà y.#y¥.yîá9¢$9df8à y.#y¥.zacy.d8à y.#yd+ùbª9¤«y¥/»ï#Bˆ9.gù.#z/æùîäù§¡9.¢ùb¨{ï"9.#yo 9¤©:e 9c¡¹cìºaã9hg¹¥m9.ïyméyê"ùoêùáiûï"xà ƒBˆ:-ê9êè9¥í¹ab9b!ùêè;ï#9ëbyï%º/¤yfj:)á¹fï¹l,yîê¹d#¹a£y®æ¹b,9îá9i-;ï&ùå*9.é9âc:+ªy¥éùk¦¹/cz!ê¹bª9i,y¥b8à ˆ
-‹ÃBˆÛÛœİ[“ØØ]HH
-[™[™Îˆ[™[™ÓØØ]JHOˆÃBˆYˆ
-[™[™ËÚÙ[ˆOOHØØ]UÚÙ[”™Y‹˜İ\œ™[
-H™]\›ÃBˆÛÛœİÛNˆS[[Y[[HY]ÜˆÈY]Ü•šY]ÑÛJY]ÜŠHˆ[ÃBˆYˆ
-YÛJHÈÙ]›İXÙJ	ù«hù¥¡ú/æ9¬¨yaá¹i!ùio{ï#:+íùê#yd#¹a£yà®y. 9«(xà ‰ÊNÈ™]\›ÈCBˆÛÛœİÙ[XİÜˆH[™[™ËšÚ[™OOH	ÙÜ›İ\	ÃBˆÈÙ]KYÜ›İ\ZXY\H‰ĞÔÔË™\ØØ\J[™[™ËšY
-_H—XBˆˆÙ]K\\˜YÜ˜\ZYH‰ĞÔÔË™\ØØ\J[™[™ËšY
-_H—XÃBˆÛÛœİ\™Ù]HÛKœ]Y\TÙ[XİÜS[[Y[ŠÙ[XİÜŠNÃBˆYˆ
-]\™Ù]
-HÈÙ]›İXÙJ	ù¬¨y§"y¢o¹b,:) yk¦¹/cyæ¡9/cyïk»ï#9cëú ïymì¹îãùcæ9c%¹.¡¸à ‰ÊNÈ™]\›ÈCBˆØÜ›ÛY]Ü•\™Ù]
-\™Ù]
-NÃBˆYˆ
-[™[™ËšÚ[™OOH	ÙÜ›İ\	ÊHÃBˆÙ]ØØ]YÜ›İ\Y
-[™[™ËšY
-NÃBˆÙ]›İXÙJ	ùmì¹k¦¹/cyb,:+éyîá9æ¡9îá9i-;ï&ù«hù¥¡øà yb!¹îá9d£:acy.d:`ïy¬¨y§"y¥.ybª8à ‰ÊNÃBˆH[ÙHÃBˆÙ]ØØ]YÜ›İ\Y
-[
-NÃBˆÙ]›İXÙJ	ùmì¹k¦¹/cyb,:+éy«­{ï&ù«hù¥¡ùd£9b!¹îá:`ïy¬¨y§"y¥.ybª8à ‰ÊNÃBˆCBˆNÃBƒBˆÛÛœİØØ]QÜ›İ\H
-Ú\\’Yˆİš[™ËÜ›İ\Yˆİš[™ÊHOˆÃBˆÛÛœİÚÙ[ˆH
-ÊÛØØ]UÚÙ[”™Y‹˜İ\œ™[ÃBˆÛÛœİÛİ\˜ÙHH›Ú™Xİ™Y‹˜İ\œ™[˜Ú\\œË™š[™
+  const appendAssets = (added: AssetRecord[], expectedProjectId = projectRef.current.id) => {
+    const current = projectRef.current;
+    if (current.id !== expectedProjectId) throw new Error('å·¥ç¨‹å·²åˆ‡æ¢ï¼Œè¯·åœ¨å½“å‰å·¥ç¨‹é‡æ–°å¯¼å…¥ã€‚');
+    const next = { ...current, assets: [...current.assets, ...added.map(({ blob: _blob, ...asset }) => asset)], updatedAt: new Date().toISOString() };
+    validateProject(next);
+    assetsRef.current = [...assetsRef.current, ...added];
+    setAssets(assetsRef.current);
+    projectRef.current = next;
+    setProject(next);
+  };
+  const importAssets = async (audioOnly = false) => {
+    const projectId = projectRef.current.id;
+    const chosen = await window.storyWorkbench.chooseAssets();
+    if (chosen.cancelled || !chosen.items.length) return [];
+    const valid = chosen.items.filter((item) => item.bytes && !item.error);
+    const failed = chosen.items.filter((item) => item.error).map((item) => ({ name: item.name, status: 'error' as const, detail: item.error! }));
+    const files = valid.map((item) => new File([item.bytes!.slice().buffer as ArrayBuffer], item.name, { type: item.mime }));
+    const candidates = await measureAssets(recordsFromFiles(files));
+    const added = candidates.filter((asset) => !audioOnly || asset.kind === 'audio');
+    candidates.filter((asset) => audioOnly && asset.kind !== 'audio').forEach((asset) => failed.push({ name: asset.name, status: 'error', detail: 'æ­¤å…¥å£åªæ¥å—éŸ³é¢‘ï¼Œè¯·ä»ç´ æåº“å¯¼å…¥å…¶ä»–æ–‡ä»¶ã€‚' }));
+    if (added.length) appendAssets(added, projectId);
+    setImportReport([...added.map((asset) => ({ name: asset.name, status: 'success' as const, detail: 'å·²åŠ å…¥å½“å‰å·¥ç¨‹ç´ æåº“ã€‚' })), ...failed]);
+    setNewAssetIds(added.map((asset) => asset.id));
+    if (added.length) setFilter('all');
+    setNotice('å¯¼å…¥å®Œæˆï¼šæˆåŠŸ ' + added.length + ' ä¸ªï¼Œå¤±è´¥ ' + failed.length + ' ä¸ªã€‚');
+    return added;
+  };
+  const onImportAssets = async () => {
+    try { await importAssets(); }
+    catch (error) { setNotice(error instanceof Error ? error.message : 'ç´ æè¯»å–å¤±è´¥ã€‚'); }
+  };
+  const previewArticle = async (asset: AssetRecord) => {
+    const chapterId = projectRef.current.activeChapterId;
+    try {
+      const paragraphs = parseArticleText(asset.name, await asset.blob.text());
+      if (projectRef.current.activeChapterId !== chapterId) throw new Error('ç« èŠ‚å·²åˆ‡æ¢ï¼Œè¯·é‡æ–°é€‰æ‹©æ–‡ç« ã€‚');
+      setArticlePreview({ chapterId, name: asset.name, paragraphs });
+    } catch (error) { setNotice(error instanceof Error ? error.message : 'æ–‡ç« è¯»å–å¤±è´¥ã€‚'); }
+  };
+  const appendArticle = () => {
+    if (!articlePreview || !editor || articlePreview.chapterId !== projectRef.current.activeChapterId) return setNotice('ç« èŠ‚å·²å˜åŒ–ï¼Œè¯·é‡æ–°é¢„è§ˆæ–‡ç« ã€‚');
+    const blocks = activeChapter(projectRef.current).document.blocks;
+    const placeholder = blocks.length === 1 && !plainText(blocks[0].children).trim();
+    appendEditorParagraphs(editor, articlePreview.paragraphs.map((text) => ({ id: makeId('paragraph'), text })), placeholder);
+    setArticlePreview(null);
+    setNotice('æ–‡ç« å·²è¿½åŠ åˆ°å½“å‰ç« èŠ‚ï¼Œå¯ç”¨ Ctrl+Z æ’¤é”€ã€‚');
+  };
+  const deleteAsset = (asset: AssetRecord) => {
+    const usages = assetUsages(projectRef.current, asset.id);
+    if (usages.length) return setNotice('ç´ æä»è¢«ä½¿ç”¨ï¼š' + usages.slice(0,5).join('ï¼›') + 'ã€‚è¯·å…ˆè§£é™¤å¼•ç”¨ã€‚');
+    setConfirmation({ title: 'ä»å·¥ç¨‹ç§»é™¤ç´ æï¼Ÿ', detail: 'å°†ç§»é™¤â€œ' + asset.name + 'â€çš„å·¥ç¨‹å‰¯æœ¬ï¼Œä¸åˆ é™¤ç£ç›˜åŸæ–‡ä»¶ã€‚', action: () => {
+      const current = projectRef.current;
+      if (assetUsages(current, asset.id).length) return setNotice('ç´ ææ–°å¢äº†å¼•ç”¨ï¼Œè¯·å…ˆè§£é™¤å¼•ç”¨ã€‚');
+      assetsRef.current = assetsRef.current.filter((item) => item.id !== asset.id);
+      setAssets(assetsRef.current);
+      commitProject({ ...current, assets: current.assets.filter((item: any) => item.id !== asset.id), updatedAt: new Date().toISOString() });
+    } });
+  };
 
-][Nˆ[JHOˆ][KšYOOHÚ\\’Y
-NÃBˆÛÛœİÜ›İ\HÛİ\˜ÙOË™Ü›İ\Ë™š[™
+  const scrollEditorTarget = (target: HTMLElement | null) => {
+    if (!target) return;
+    requestAnimationFrame(() => {
+      const container = editorScrollRef.current;
+      if (!container || !container.contains(target)) return;
+      const viewport = container.getBoundingClientRect();
+      const bounds = target.getBoundingClientRect();
+      if (bounds.top < viewport.top) container.scrollTop -= viewport.top - bounds.top + 16;
+      else if (bounds.bottom > viewport.bottom) container.scrollTop += bounds.bottom - viewport.bottom + 16;
+    });
+  };
+  const selectCue = (cueId: string) => {
+    if (!editor) return;
+    playerRef.current.stop();
+    mediaSessionRef.current?.stop();
+    musicSessionRef.current?.stop();
+    setSelectedCueId(cueId);
+    setSelectedGroupId(null);
+    setSelectedGroupIds([]);
+    setSelectedParagraphs([]);
+    const range = findCueRange(editor, cueId);
+    if (range) editor.commands.setTextSelection(range.from);
+    if (range) { const dom = editorViewDom(editor); if (dom) scrollEditorTarget(dom.querySelector(`[data-cue-id="${CSS.escape(cueId)}"]`)); }
+  };
 
-][Nˆ[JHOˆ][KšYOOHÜ›İ\Y
-NÃBˆYˆ
-\Ûİ\˜ÙHYÜ›İ\
-HÈÙ]›İXÙJ	ú/æy.*¹«­z$/yîá9mì¹îãù.#ykf9g*;ï#:+íùb-ù¥¬9æë¹oexà ‰ÊNÈ™]\›ÈCBˆÛÛœİ[™[™Îˆ[™[™ÓØØ]HHÈÚ\\’YÚ[™ˆ	ÙÜ›İ\	ËYˆÜ›İ\YÚÙ[ˆNÃBˆ[™[™ÓØØ]T™Y‹˜İ\œ™[H[™[™ÎÃBˆYˆ
-›Ú™Xİ™Y‹˜İ\œ™[˜Xİ]™PÚ\\’YOOHÚ\\’Y
-HÈİÚ]ÚÚ\\ŠÚ\\’Y
-NÈ™]\›ÈCBˆ[™[™ÓØØEj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^teRef.current = null;
+  const selectParagraph = (paragraphId: string) => {
+    const cue = currentPlan.find((item: any) => item.paragraphId === paragraphId);
+    if (cue) {
+      selectCue(cue.id);
+      return;
+    }
+    if (!editor) return;
+    playerRef.current.stop();
+    mediaSessionRef.current?.stop();
+    musicSessionRef.current?.stop();
+    setSelectedCueId(null);
+    setSelectedGroupId(null);
+    setSelectedGroupIds([]);
+    let position: number | null = null;
+    editor.state.doc.descendants((node: any, nodePosition: number) => {
+      if (node.type.name === 'paragraph' && String(node.attrs.paragraphId ?? '') === paragraphId) {
+        position = nodePosition + 1;
+        return false;
+      }
+      return true;
+    });
+    if (position === null) {
+      setNotice('è¿™ä¸ªæ­£æ–‡æ®µè½å·²å˜åŒ–ï¼Œè¯·é‡æ–°é€‰æ‹©ã€‚');
+      return;
+    }
+    editor.commands.setTextSelection(position);
+    const selectCueDom: HTMLElement | null = editorViewDom(editor);
+    if (selectCueDom) scrollEditorTarget([...selectCueDom.querySelectorAll<HTMLElement>('p')].find((paragraph) => paragraphTarget(paragraph)?.id === paragraphId) ?? null);
+  };
+
+  /* â”€â”€ å·¦ä¾§ç›®å½•å®šä½ï¼šç« èŠ‚ â†’ ç»„ â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€
+     å®šä½åªæ˜¯ã€Œçœ‹ä¸€çœ¼ã€ï¼šä¸æ”¹æ­£æ–‡ã€ä¸æ”¹ç»„æˆå‘˜ã€ä¸æ”¹é…ä¹ã€ä¸å¯åŠ¨æ’­æ”¾ï¼Œ
+     ä¹Ÿä¸è¿›ç»“æ„äº‹åŠ¡ï¼ˆä¸å¾€æ’¤é”€å†å²é‡Œå¡æ•´ä»½å·¥ç¨‹å¿«ç…§ï¼‰ã€‚
+     è·¨ç« æ—¶å…ˆåˆ‡ç« ï¼Œç­‰ç¼–è¾‘å™¨è§†å›¾å°±ç»ªåå†æ»šåˆ°ç»„å¤´ï¼›ç”¨ä»¤ç‰Œè®©æ—§å®šä½è‡ªåŠ¨å¤±æ•ˆã€‚ */
+  const runLocate = (pending: PendingLocate) => {
+    if (pending.token !== locateTokenRef.current) return;
+    const dom: HTMLElement | null = editor ? editorViewDom(editor) : null;
+    if (!dom) { setNotice('æ­£æ–‡è¿˜æ²¡å‡†å¤‡å¥½ï¼Œè¯·ç¨åå†ç‚¹ä¸€æ¬¡ã€‚'); return; }
+    const selector = pending.kind === 'group'
+      ? `[data-group-header="${CSS.escape(pending.id)}"]`
+      : `[data-paragraph-id="${CSS.escape(pending.id)}"]`;
+    const target = dom.querySelector<HTMLElement>(selector);
+    if (!target) { setNotice('æ²¡æœ‰æ‰¾åˆ°è¦å®šä½çš„ä½ç½®ï¼Œå¯èƒ½å·²ç»å˜åŒ–äº†ã€‚'); return; }
+    scrollEditorTarget(target);
+    if (pending.kind === 'group') {
+      setLocatedGroupId(pending.id);
+      setNotice('å·²å®šä½åˆ°è¯¥ç»„çš„ç»„å¤´ï¼›æ­£æ–‡ã€åˆ†ç»„å’Œé…ä¹éƒ½æ²¡æœ‰æ”¹åŠ¨ã€‚');
+    } else {
+      setLocatedGroupId(null);
+      setNotice('å·²å®šä½åˆ°è¯¥æ®µï¼›æ­£æ–‡å’Œåˆ†ç»„éƒ½æ²¡æœ‰æ”¹åŠ¨ã€‚');
+    }
+  };
+
+  const locateGroup = (chapterId: string, groupId: string) => {
+    const token = ++locateTokenRef.current;
+    const source = projectRef.current.chapters.find((item: any) => item.id === chapterId);
+    const group = source?.groups.find((item: any) => item.id === groupId);
+    if (!source || !group) { setNotice('è¿™ä¸ªæ®µè½ç»„å·²ç»ä¸å­˜åœ¨ï¼Œè¯·åˆ·æ–°ç›®å½•ã€‚'); return; }
+    const pending: PendingLocate = { chapterId, kind: 'group', id: groupId, token };
+    pendingLocateRef.current = pending;
+    if (projectRef.current.activeChapterId !== chapterId) { switchChapter(chapterId); return; }
+    pendingLocateRef.current = null;
     runLocate(pending);
   };
 
@@ -538,105 +988,274 @@ NÈ™]\›ÈCBˆ[™[™ÓØØEj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'
 
   const updateLayer = (patch: Record<string, any>, layerId = selectedLayer?.id) => {
     if (!selectedCue || !layerId) return;
-    return patchCue({ sceneLayers: selectedLayers.map((layer: any) => layer.id¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±x€ôôô±…å•É%€üì€¸¸¹±…å•È°€¸¸¹Á…Ñ ô€è±…å•È¤ô¤ì4(€ôì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€½¹ÍĞ­•å‘½İ¸€ô€¡•Ù•¹Ğè-•å‰½…É‘Ù•¹Ğ¤€ôøì4(€€€€€¥˜€ …Í•±•Ñ•‘1…å•ÈñğÁ±…å•ÉMÑ…Ñ”¹ÍÑ…ÑÕÌ€„ôô€ÍÑ½ÁÁ•œñğ•Ù•¹Ğ¹¥Í½µÁ½Í¥¹œñğ•Ù•¹Ğ¹ÑÉ±-•äñğ•Ù•¹Ğ¹µ•Ñ…-•äñğ•Ù•¹Ğ¹…±Ñ-•äñğ€¡•Ù•¹Ğ¹Ñ…É•Ğ¥¹ÍÑ…¹•½˜!Q51±•µ•¹Ğ€˜˜€¡•Ù•¹Ğ¹Ñ…É•Ğ¹¥Í½¹Ñ•¹Ñ‘¥Ñ…‰±”ñğ•Ù•¹Ğ¹Ñ…É•Ğ¹±½Í•ÍĞ m½¹Ñ•¹Ñ•‘¥Ñ…‰±•t±mÉ½±”ô‰‘¥…±½œ‰tœ¤¤¤ñğ•Ù•¹Ğ¹Ñ…É•Ğ¥¹ÍÑ…¹•½˜!Q51%¹ÁÕÑ±•µ•¹Ğñğ•Ù•¹Ğ¹Ñ…É•Ğ¥¹ÍÑ…¹•½˜!Q51Q•áÑÉ•…±•µ•¹Ğñğ•Ù•¹Ğ¹Ñ…É•Ğ¥¹ÍÑ…¹•½˜!Q51M•±•Ñ±•µ•¹Ğ¤É•ÑÕÉ¸ì4(€€€€€½¹ÍĞÍÑ•À€ô•Ù•¹Ğ¹Í¡¥™Ñ-•ä€ü€ÄÀ€è€Äì4(€€€€€½¹ÍĞ‘•±Ñ„€ô•Ù•¹Ğ¹­•ä€ôôô€ÉÉ½İ1•™Ğœ€üìàè€µÍÑ•Àô€è•Ù•¹Ğ¹­•ä€ôôô€ÉÉ½İI¥¡Ğœ€üìàèÍÑ•Àô€è•Ù•¹Ğ¹­•ä€ôôô€ÉÉ½İUÀœ€üìäè€µÍÑ•Àô€è•Ù•¹Ğ¹­•ä€ôôô€ÉÉ½İ½İ¸œ€üìäèÍÑ•Àô€è¹Õ±°ì4(€€€€€¥˜€ …‘•±Ñ„¤É•ÑÕÉ¸ì4(€€€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì4(€€€€€ÕÁ‘…Ñ•1…å•È¡ìàè5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸ ÄäÈÀ€´Í•±•Ñ•‘1…å•È¹İ¥‘Ñ °Í•±•Ñ•‘1…å•È¹à€¬€¡‘•±Ñ„¹à€üü€À¤¤¤°äè5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸ ÄÀàÀ€´Í•±•Ñ•‘1…å•È¹¡•¥¡Ğ°Í•±•Ñ•‘1…å•È¹ä€¬€¡‘•±Ñ„¹ä€üü€À¤¤¤ô¤ì4(€€€ôì4(€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸¤ì4(€€€É•ÑÕÉ¸€ ¤€ôøİ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸¤ì4(€ô°mÍ•±•Ñ•‘1…å•È°Á±…å•ÉMÑ…Ñ”¹ÍÑ…ÑÕÌ°Í•±•Ñ•‘Õ”°Í•±•Ñ•‘1…å•ÉÍt¤ì4(4(€½¹ÍĞÉ•µ½Ù•1…å•È€ô€ ¤€ôøì4(€€€¥˜€ …Í•±•Ñ•‘Õ”ñğ€…Í•±•Ñ•‘1…å•È¤É•ÑÕÉ¸ì4(€€€Á…Ñ¡Õ”¡ìÍ•¹•1…å•ÉÌèÍ•±•Ñ•‘1…å•ÉÌ¹™¥±Ñ•È ¡±…å•Èè…¹ä¤€ôø±…å•È¹¥€„ôôÍ•±•Ñ•‘1…å•È¹¥¤¹µ…À ¡±…å•Èè…¹ä°¥¹‘•àè¹Õµ‰•È¤€ôø€¡ì€¸¸¹±…å•È°é%¹‘•àè¥¹‘•àô¤¤ô¤ì4(€€€Í•ÑM•±•Ñ•‘1…å•É%¡¹Õ±°¤ì4(€€€€€€€€€Í•ÑM•±•Ñ•‘É½ÕÁ%¡¹Õ±°¤ì4(€€€€€€€€€Í•ÑM•±•Ñ•‘É½ÕÁ%‘Ì¡mt¤ì4(€ôì4(4(€½¹ÍĞµ½Ù•1…å•È€ô€¡‘¥É•Ñ¥½¸è¹Õµ‰•È¤€ôøì4(€€€¥˜€ …Í•±•Ñ•‘Õ”ñğ€…Í•±•Ñ•‘1…å•È¤É•ÑÕÉ¸ì4(€€€½¹ÍĞÍ½ÉÑ•€ôl¸¸¹Í•±•Ñ•‘1…å•ÉÍt¹Í½ÉĞ ¡„è…¹ä°ˆè…¹ä¤€ôø„¹é%¹‘•à€´ˆ¹é%¹‘•à¤ì4(€€€½¹ÍĞ¥¹‘•à€ôÍ½ÉÑ•¹™¥¹‘%¹‘•à ¡±…å•Èè…¹ä¤€ôø±…å•È¹¥€ôôôÍ•±•Ñ•‘1…å•È¹¥¤ì4(€€€½¹ÍĞ¹•áĞ€ô5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸¡Í½ÉÑ•¹±•¹Ñ €´€Ä°¥¹‘•à€¬‘¥É•Ñ¥½¸¤¤ì4(€€€mÍ½ÉÑ•‘m¥¹‘•át°Í½ÉÑ•‘m¹•áÑut€ômÍ½ÉÑ•‘m¹•áÑt°Í½ÉÑ•‘m¥¹‘•áutì4(€€€Á…Ñ¡Õ”¡ìÍ•¹•1…å•ÉÌèÍ½ÉÑ•¹µ…À ¡±…å•Èè…¹ä°é%¹‘•àè¹Õµ‰•È¤€ôø€¡ì€¸¸¹±…å•È°é%¹‘•àô¤¤ô¤ì4(€ôì4(4(€½¹ÍĞÕÁ‘…Ñ•Ñ¥Ù•¡…ÁÑ•È€ô€¡½Á•É…Ñ¥½¸è€¡Ù…±Õ”è…¹ä¤€ôø…¹ä¤€ôøì4(€€€½µµ¥Ñ¡…ÁÑ•ÉMÑÉÕÑÕÉ”¡ÕÁ‘…Ñ•¡…ÁÑ•È¡ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ°ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°½Á•É…Ñ¥½¸¤¤ì4(€ôì4(4(€½¹ÍĞ½µµ¥ÑAÉ½©•Ğ€ô€¡¹•áĞè…¹ä¤€ôøì4(€€€ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ€ô¹•áĞì4(€€€Í•ÑAÉ½©•Ğ¡¹•áĞ¤ì4(€ôì4(4(€½¹ÍĞ½µµ¥Ñ¡…ÁÑ•ÉMÑÉÕÑÕÉ”€ô€¡¹•áĞè…¹ä¤€ôøì4(€€€Ù…±¥‘…Ñ•AÉ½©•Ğ¡¹•áĞ¤ì4(€€€¥˜€ …•‘¥Ñ½Èñğ¹•áĞ¹…Ñ¥Ù•¡…ÁÑ•É%€„ôôÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–öO–&7š¶šZ–ŞË–>c–2[¾ò3¢¾ß¦7šZÃšN7’ösœ¤ì4(€€€½¹ÍĞ‰•™½É”€ôÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğì4(€€€½¹ÍĞ¡…ÁÑ•É%€ô•‘¥Ñ½È¹ÍÑ…Ñ”¹‘½Œ¹…ÑÑÉÌ¹¡…ÁÑ•É%ì4(€€€¥˜€ …¡…ÁÑ•É%ñğ¡…ÁÑ•É%€„ôô‰•™½É”¹…Ñ¥Ù•¡…ÁÑ•É%¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿš¶šZò[¢úG–f£–ŞË–"š6‹¾ò3¢¾ß¦7šZÃšN7’ösœ¤ì4(€€€½¹ÍĞÑ½­•¸€ôµ…­•% ÍÑÉÕÑÕÉ”œ¤ì4(€€€É•Ù¥•İ!¥ÍÑ½ÉåI•˜¹ÕÉÉ•¹Ğ¹Í•Ğ¡Ñ½­•¸°ì‰•™½É”°…™Ñ•Èè¹•áĞ°¡…ÁÑ•É%ô¤ì4(€€€ÑÉäì4(€€€€€¥˜€ …µ½Ù•‘¥Ñ½ÉA…É…É…Á¡Ì¡•‘¥Ñ½È°…Ñ¥Ù•¡…ÁÑ•È¡¹•áĞ¤¹‘½Õµ•¹Ğ¹‰±½­Ì°Ñ½­•¸°¡…ÁÑ•É%¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿš¶šZ––ºç–ŞË–>c–2[¾ò3îOšzšN7’ösšr«š>C’ê“œ¤ì4(€€€ô…Ñ €¡•ÉÉ½È¤ìÉ•Ù¥•İ!¥ÍÑ½ÉåI•˜¹ÕÉÉ•¹Ğ¹‘•±•Ñ”¡Ñ½­•¸¤ìÑ¡É½Ü•ÉÉ½Èìô4(€€€½µµ¥ÑAÉ½©•Ğ¡¹•áĞ¤ì4(€ôì4(4(€½¹ÍĞÍİ¥Ñ¡¡…ÁÑ•È€ô€¡¡…ÁÑ•É%èÍÑÉ¥¹œ¤€ôøì4(€€€¥˜€¡¡…ÁÑ•É%€ôôôÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%¤É•ÑÕÉ¸ì4(€€€ÍÑ½Á‘•ÕÑ½ÍÉ½±° ¤ì4(€€€…¹•±±•‘É…I•˜¹ÕÉÉ•¹Ğ€ôÑÉÕ”ì4(€€€‘É…Ñ¥Ù•I•˜¹ÕÉÉ•¹Ğ€ô™…±Í”ì4(€€€¥˜€¡•‘¥Ñ½ÉMÉ½±±I•˜¹ÕÉÉ•¹Ğ¤¡…ÁÑ•ÉMÉ½±±I•˜¹ÕÉÉ•¹Ğ¹Í•Ğ¡ÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°•‘¥Ñ½ÉMÉ½±±I•˜¹ÕÉÉ•¹Ğ¹ÍÉ½±±Q½À¤ì4(€€€¥˜€¡•‘¥Ñ½È¤ì4(€€€€€½¹ÍĞÍ•±•Ñ¥½¸€ô•‘¥Ñ½È¹ÍÑ…Ñ”¹Í•±•Ñ¥½¸ì4(€€€€€¡…ÁÑ•ÉÕÉÍ½ÉI•˜¹ÕÉÉ•¹Ğ¹Í•Ğ¡ÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°ì™É½´èÍ•±•Ñ¥½¸¹™É½´°Ñ¼èÍ•±•Ñ¥½¸¹Ñ¼°Õ•%èÍ•±•Ñ•‘Õ•%ô¤ì4(€€€ô4(€€€Á±…å•ÉI•˜¹ÕÉÉ•¹Ğ¹ÍÑ½À ¤ì4(€€€½µµ¥ÑAÉ½©•Ğ¡ì€¸¸¹ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ°…Ñ¥Ù•¡…ÁÑ•É%è¡…ÁÑ•É%°ÕÁ‘…Ñ•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤ô¤ì4(€ôì4(4(€½¹ÍĞÉ•…Ñ•9•İ¡…ÁÑ•È€ô€¡ÑÉ¥•Èè!Q51±•µ•¹Ğ¤€ôøì4(€€€½¹ÍĞÍ½ÕÉ•¡…ÁÑ•É%€ô¡…ÁÑ•È¹¥ì4(€€€½¹ÍĞÍ•±•Ñ¥½¸€ô•‘¥Ñ½È€ü•‘¥Ñ½È¹ÍÑ…Ñ”¹Í•±•Ñ¥½¸€è¹Õ±°ì4(€€€½¹ÍĞÕÉÍ½È€ôÍ•±•Ñ¥½¸€üì™É½´èÍ•±•Ñ¥½¸¹™É½´°Ñ¼èÍ•±•Ñ¥½¸¹Ñ¼°Õ•%èÍ•±•Ñ•‘Õ•%ô€è¹Õ±°ì4(€€€½Á•¹9…µ•¥…±½œ¡ÑÉ¥•È°ì4(€€€€€Ñ¥Ñ±”è€ŸšZÃ–îë®ƒ¢*œ°4(€€€€€™¥•±‘1…‰•°è€Ÿ®ƒ¢*–B7Àœ°4(€€€€€½¹™¥Éµ1…‰•°è€ŸšZÃ–îë®ƒ¢*œ°4(€€€€€¥¹¥Ñ¥…±Y…±Õ”èƒ²°‘íMÑÉ¥¹œ¡ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹±•¹Ñ €¬€Ä¤¹Á…‘MÑ…ÉĞ È°€œÀœ¥÷®€°4(€€€€€¹½Éµ…±¥é”è¹½Éµ…±¥é•¡…ÁÑ•É9…µ”°4(€€€€€½¹½¹™¥É´è€¡¹…µ”¤€ôøì4(€€€€€€€ÑÉäì4(€€€€€€€€€½¹ÍĞÕÉÉ•¹Ğ€ôÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğì4(€€€€€€€€€¥˜€¡ÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%€„ôôÍ½ÕÉ•¡…ÁÑ•É%ñğ€…ÕÉÉ•¹Ğ¹¡…ÁÑ•ÉÌ¹Í½µ” ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôôÍ½ÕÉ•¡…ÁÑ•É%¤¤É•ÑÕÉ¸€Ÿ–öO–&7®ƒ¢*–ŞË–>c–2[¾ò3¢¾ß–Ï¦^·–B;¦7¢¾Wœì4(€€€€€€€€€½¹ÍĞ¹•áĞ€ô…‘‘¡…ÁÑ•È¡ÕÉÉ•¹Ğ°¹…µ”¤ì4(€€€€€€€€€¥˜€¡ÕÉÍ½È¤¡…ÁÑ•ÉÕÉÍ½ÉI•˜¹ÕÉÉ•¹Ğ¹Í•Ğ¡Í½ÕÉ•¡…ÁÑ•É%°ÕÉÍ½È¤ì4(€€€€€€€€€Á±…å•ÉI•˜¹ÕÉÉ•¹Ğ¹ÍÑ½À ¤ì4(€€€€€€€€€½µµ¥ÑAÉ½©•Ğ¡¹•áĞ¤ì4(€€€€€€€€€Í•ÑM•±•Ñ•‘Õ•%¡¹Õ±°¤ì4(€€€€€V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅâ6WE6VÆV7FVE&w&‡2…µÒ“°Ğ¢6WE6VÆV7FVDw&÷W–B†çVÆÂ“°Ğ¢&WGW&âVæFVf–æVC°Ğ¢Ò6F6‚†W'&÷"’²&WGW&âW'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~izk9^ik[»®zºˆ¨.8"s²ĞĞ¢ÒÀĞ¢Ò“°Ğ¢Ó°Ğ Ğ¢6öç7B&VæÖT7F—fT6†FW"Ò‡G&–vvW#¢…DÔÄVÆVÖVçB’Óâ°Ğ¢6öç7B6†FW$–BÒ6†FW"æ–C°Ğ¢÷VäæÖTF–Æör‡G&–vvW"Â°Ğ¢F—FÆS¢~˜xŞYŞYŞzºˆ¨"rÀĞ¢f–VÆDÆ&VÃ¢~zºˆ¨.YŞz{rÀĞ¢6öæf—&ÔÆ&VÃ¢~KùŞZÙzºˆ¨.YÒrÀĞ¢–æ—F–ÅfÇVS¢6†FW"ææÖRÀĞ¢æ÷&ÖÆ—¦S¢æ÷&ÖÆ—¦T6†FW$æÖRÀĞ¢öä6öæf—&Ó¢†æÖR’Óâ°Ğ¢G'’°Ğ¢6öç7B7W'&VçBÒ&ö¦V7E&Vbæ7W'&VçC°Ğ¢–b‚7W'&VçBæ6†FW'2ç6öÖR‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒ6†FW$–B’’&WGW&â~zºˆ¨.[{.KˆŞZÙYÊûÈÎŠû~˜xŞik˜hº8"s°Ğ¢6öÖÖ—E&ö¦V7B‡&VæÖT6†FW"†7W'&VçBÂ6†FW$–BÂæÖR’“°Ğ¢&WGW&âVæFVf–æVC°Ğ¢Ò6F6‚†W'&÷"’²&WGW&âW'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~zºˆ¨.YŞz{iziX8"s²ĞĞ¢ÒÀĞ¢Ò“°Ğ¢Ó°Ğ Ğ¢6öç7B7&VFTw&÷Wg&öÕ6VÆV7F–öâÒ‡G&–vvW#¢…DÔÄVÆVÖVçB’Óâ°Ğ¢–b‚6VÆV7FVE&w&‡2æÆVæwF‚’&WGW&â6WDæ÷F–6R‚~XXYÊjÚ>ih~KŠŞ˜KŠŞŠh[Ù.{¸Ny¨N‹ùî{ºŞjë^‰Ş8"r“°Ğ¢6öç7B6†FW$–BÒ6†FW"æ–C°Ğ¢6öç7B&w&„–G2Ò²ââç6VÆV7FVE&w&‡5Ó°Ğ¢6öç7B&Æö6´–G2ÒFö7VÖVçBæ&Æö6·2æÖ‚†&Æö6³¢ç’’Óâ&Æö6²æ–B“°Ğ¢6öç7Bf—'7BÒ&Æö6´–G2æ–æFW„öb‡&w&„–G5³Ò“°Ğ¢6öç7BÆ7BÒ&Æö6´–G2æ–æFW„öb‡&w&„–G5·&w&„–G2æÆVæwF‚ÒÒ“°Ğ¢÷VäæÖTF–Æör‡G&–vvW"Â°Ğ¢F—FÆS¢~[Ù.XZ^ik{¸BrÀĞ¢f–VÆDÆ&VÃ¢~jë^‰Ş{¸NYŞz{rÀĞ¢6öæf—&ÔÆ&VÃ¢X‰¾[»®[›n[Ù.XZRG·&w&„–G2æÆVæwF‡ÒjëVÀĞ¢–æ—F–ÅfÇVS¢~ikjë^‰Ş{¸BrÀĞ¢FW67&—F–öã¢zÊÂG¶f—'7B²Ş(	2G¶Æ7B²ÒjëR+rX[G·&w&„–G2æÆVæwF‡Òjë^8.XùnkhKˆŞKÉ®KúîiKjÚ>ih~8&ÀĞ¢æ÷&ÖÆ—¦S¢æ÷&ÖÆ—¦U&w&„w&÷WæÖRÀĞ¢öä6öæf—&Ó¢†æÖR’Óâ°Ğ¢G'’°Ğ¢6öç7B7W'&VçBÒ&ö¦V7E&Vbæ7W'&VçC°Ğ¢6öç7B7W'&VçD6†FW"Ò7W'&VçBæ6†FW'2æf–æB‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒ6†FW$–B“°Ğ¢–b‚7W'&VçD6†FW"ÇÂ7W'&VçBæ7F—fT6†FW$–BÓÒ6†FW$–B’&WGW&â~[Ù>X˜Şzºˆ¨.[{.XùXÉnûÈÎŠû~X[>™zŞYî˜xŞŠù^8"s°Ğ¢6öç7BW†—7F–æt–G2ÒæWr6WB†7W'&VçD6†FW"æw&÷W2æÖ‚†w&÷W¢ç’’Óâw&÷Wæ–B’“°Ğ¢6öç7BæW‡BÒWFFT6†FW"†7W'&VçBÂ6†FW$–BÂ‡fÇVS¢ç’’Óâ7&VFU&w&„w&÷W‡fÇVRÂ&w&„–G2ÂæÖR’“°Ğ¢6öç7BæW‡D6†FW"ÒæW‡Bæ6†FW'2æf–æB‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒ6†FW$–B“°Ğ¢6öç7B7&VFVBÒæW‡D6†FW"æw&÷W2æf–æB‚†w&÷W¢ç’’ÓâW†—7F–æt–G2æ†2†w&÷Wæ–B’“°Ğ¢–b‚7&VFVB’&WGW&â~iÊ®ˆ;ŞX‰¾[»®jë^‰Ş{¸NûÈÎŠû~˜xŞik˜hºjë^‰Ş8"s°Ğ¢6öÖÖ—D6†FW%7G'V7GW&R†æW‡B“°Ğ¢6WE6VÆV7FVDw&÷W–B†7&VFVBæ–B“°Ğ¢6WE6VÆV7FVDw&÷W–G2…¶7&VFVBæ–EÒ“°Ğ¢6WE6VÆV7FVE&w&‡2…µÒ“°Ğ¢6WDæ÷F–6R‚~˜KŠŞy¨N‹ùî{ºŞjë^‰Ş[{.[Ù.XZ^ik{¸N8"r“°Ğ¢&WGW&âVæFVf–æVC°Ğ¢Ò6F6‚†W'&÷"’²&WGW&âW'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~izk9^X‰¾[»®jë^‰Ş{¸N8"s²ĞĞ¢ÒÀĞ¢Ò“°Ğ¢Ó°Ğ Ğ¢6öç7B7&VFTV×G”w&÷WÒ‡G&–vvW#¢…DÔÄVÆVÖVçB’Óâ°Ğ¢6öç7B6†FW$–BÒ6†FW"æ–C°Ğ¢6öç7BgFW$w&÷W–BÒ6VÆV7FVDw&÷W–C°Ğ¢÷VäæÖTF–Æör‡G&–vvW"Â°Ğ¢F—FÆS¢~ik[»®z›®jë^‰Ş{¸BrÀĞ¢f–VÆDÆ&VÃ¢~jë^‰Ş{¸NYŞz{rÀĞ¢6öæf—&ÔÆ&VÃ¢~ik[»®[›n[ÈZx¾XiKÙÂrÀĞ¢–æ—F–ÅfÇVS¢~ikjë^‰Ş{¸BrÀĞ¢æ÷&ÖÆ—¦S¢æ÷&ÖÆ—¦U&w&„w&÷WæÖRÀĞ¢öä6öæf—&Ó¢†æÖR’Óâ°Ğ¢G'’°Ğ¢6öç7B7W'&VçBÒ&ö¦V7E&Vbæ7W'&VçC°Ğ¢–b†7W'&VçBæ7F—fT6†FW$–BÓÒ6†FW$–B’&WGW&â~[Ù>X˜Şzºˆ¨.[{.XùXÉnûÈÎŠû~X[>™zŞYî˜xŞŠù^8"s°Ğ¢6öç7BæW‡BÒWFFT6†FW"†7W'&VçBÂ6†FW$–BÂ‡fÇVS¢ç’’Óâ7&VFTV×G•&w&„w&÷W‡fÇVRÂæÖRÂgFW$w&÷W–B’“°Ğ¢fÆ–FFU&ö¦V7B†æW‡B“°Ğ¢6öç7BæW‡D6†FW"ÒæW‡Bæ6†FW'2æf–æB‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒ6†FW$–B“°Ğ¢6öç7B7&VFVBÒæW‡D6†FW"æw&÷W2æf–æB‚†w&÷W¢ç’’Óâ7W'&VçBæ6†FW'2æf–æB‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒ6†FW$–B“òæw&÷W2ç6öÖR‚†W†—7F–æs¢ç’’ÓâW†—7F–æræ–BÓÓÒw&÷Wæ–B’“°Ğ¢–b‚7&VFVB’&WGW&â~iÊ®ˆ;ŞX‰¾[»®jë^‰Ş{¸NûÈÎŠû~˜xŞŠù^8"s°Ğ¢6öÖÖ—D6†FW%7G'V7GW&R†æW‡B“°Ğ¢Æ–W%&Vbæ7W'&VçBç7F÷‚“°Ğ¢6WE6VÆV7FVDw&÷W–B†7&VFVBæ–B“°Ğ¢6WE6VÆV7FVDw&÷W–G2…¶7&VFVBæ–EÒ“°Ğ¢6WE6VÆV7FVE&w&‡2…µÒ“°Ğ¢6VÆV7E&w&‚†7&VFVBç&w&„–G5³Ò“°Ğ¢&WGW&âVæFVf–æVC°Ğ¢Ò6F6‚†W'&÷"’²&WGW&âW'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~izk9^X‰¾[»®z›®jë^‰Ş{¸N8"s²ĞĞ¢ÒÀĞ¢Ò“°Ğ¢Ó°Ğ Ğ¢6öç7BF—7G&–'WFTÆ–W'2Ò††—3¢w‚rÂw’r’Óâ°Ğ¢–b‚6VÆV7FVD7VRÇÂ6VÆV7FVDÆ–W'2æÆVæwF‚Â"’&WGW&ã°Ğ¢6öç7B6÷'FVBÒ²ââç6VÆV7FVDÆ–W'5Òç6÷'B‚†¢ç’Â#¢ç’’Óâ†—2ÓÓÒw‚ròç‚Ò"ç‚¢ç’Ò"ç’“°Ğ¢6öç7B7âÒ†—2ÓÓÒw‚rò“#¢ƒ°Ğ¢6öç7B6—¦T¶W’Ò†—2ÓÓÒw‚ròwv–GF‚r¢v†V–v‡Bs°Ğ¢6öç7BF÷FÂÒ6÷'FVBç&VGV6R‚‡7VÓ¢çVÖ&W"ÂÆ–W#¢ç’’Óâ7VÒ²Æ–W%·6—¦T¶W•ÒÂ“°Ğ¢6öç7BvÒÖF‚æÖ‚ƒÂ‡7âÒF÷FÂ’ò‡6÷'FVBæÆVæwF‚Ò’“°Ğ¢ÆWB7W'6÷"ÒZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{ŒÃBˆÛÛœİÜÚ][ÛœÈH™]ÈX\İš[™Ë[X™\Š
-NÃBˆ›Üˆ
-ÛÛœİ^Y\ˆÙˆÛÜY
-HÈÜÚ][ÛœËœÙ]
-^Y\‹šYİ\œÛÜŠNÈİ\œÛÜˆ
-ÏH^Y\–ÜÚ^™RÙ^WH
-ÈØ\ÈCBˆ]ÚİYJÈØÙ[™S^Y\œÎˆÙ[XİY^Y\œË›X\
+    return patchCue({ sceneLayers: selectedLayers.map((layer: any) => layer.id === layerId ? { ...layer, ...patch } : layer) });
+  };
 
-^Y\ˆ[JHOˆ
-È‹‹›^Y\‹Ø^\×NˆÜÚ][ÛœË™Ù]
-^Y\‹šY
-HÏÈ^Y\–Ø^\×HJJHJNÃBˆNÃBƒBˆÛÛœİÙ]Ü›İ\]\ÚXÈH
-\ÜÙ]Yˆİš[™Ë\˜YÜ˜\YÎˆİš[™Ö×JHOˆÃBˆYˆ
-X\ÜÙ]Ô™Y‹˜İ\œ™[œÛÛYJ
-\ÜÙ]
-HOˆ\ÜÙ]šYOOH\ÜÙ]Y	‰ˆ\ÜÙ]šÚ[™OOH	Ø]Y[ÉÊJH™]\›ˆÙ]›İXÙJ	ú+íú`"y¢êyodùbcyméyê"ù.+yæ¡9§"y¥b:gìúh¤xà ‰ÊNÃBˆYˆ
-\\˜YÜ˜\YË›[™İ
-H™]\›ˆÙ]›İXÙJ	ùab:`"y. 9.*¹îá9¢%º/ç¹îëyi&¹.*¹îá;ï#9a£y­îùb¨: ã9¦kúgìù.d8à ‰ÊNÃBˆÛÛœİİ\œ™[H›Ú™Xİ™Y‹˜İ\œ™[ÃBˆÛÛœİÛİ\˜ÙHHXİ]™PÚ\\Šİ\œ™[
-NÃBˆHÃBˆÛÛ[Z]Ú\\”İXİ\™J\]PÚ\\Šİ\œ™[Ûİ\˜ÙKšY
-˜[YNˆ[JHOˆÙ]]\ÚXÔ˜[™ÙJ˜[YK\ÜÙ]Y\˜YÜ˜\YÊJJNÃBˆÙ]›İXÙJ9mìº+¯¹ïkˆ	Ü\˜YÜ˜\YË›[™İH9«­yæ¡: ã9¦kúgìù.d;ï&ú# ùfí9a¡y£h¹céy/çy£ z/ç¹îëxà ˜
-NÃBˆHØ]Ú
-\œ›ÜŠHÃBˆYˆ
-\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›Üˆ	‰ˆ\œ›Ü‹›Y\ÜØYÙKš[˜ÛY\Ê	úaãycè	ÊJHÙ][™[™Ó]\ÚXÊÈÚ\\’YˆÛİ\˜ÙKšY\ÜÙ]Y\˜YÜ˜\YË˜\ÙNˆİ\œ™[JNÃBˆ[ÙHÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	úacy.d9§*¹£ä9.©8à ‰ÊNÃBˆCBˆNÃBˆÛÛœİÙ]]\ÚXÑ›Ü”Ù[Xİ[ÛˆH
-\ÜÙ]Yˆİš[™ÊHOˆÃBˆYˆ
-X\ÜÙ]Y
-H™]\›ÃBˆÛÛœİÜ›İ\ÈHÙ[XİYÜ›İ\YË›[™İÈÜ™\™YÜ›İ\Ë™š[\Š
-Ü›İ\ˆ[JHOˆÙ[XİYÜ›İ\YËš[˜ÛY\ÊÜ›İ\šY
-JHˆİ\œ™[Ü›İ\ÈØİ\œ™[Ü›İ\Hˆ×NÃBˆÛÛœİYÈHÜ›İ\Ë›[™İÈØİ[Y[˜›ØÚÜË™š[\Š
-›ØÚÎˆ[JHOˆÜ›İ\ËœÛÛYJ
-Ü›İ\ˆ[JHOˆÜ›İ\œ\˜YÜ˜\YËš[˜ÛY\Ê›ØÚËšY
-JJK›X\
+  useEffect(() => {
+    const keydown = (event: KeyboardEvent) => {
+      if (!selectedLayer || playerState.status !== 'stopped' || event.isComposing || event.ctrlKey || event.metaKey || event.altKey || (event.target instanceof HTMLElement && (event.target.isContentEditable || event.target.closest('[contenteditable],[role="dialog"]'))) || event.target instanceof HTMLInputElement || event.target instanceof HTMLTextAreaElement || event.target instanceof HTMLSelectElement) return;
+      const step = event.shiftKey ? 10 : 1;
+      const delta = event.key === 'ArrowLeft' ? { x: -step } : event.key === 'ArrowRight' ? { x: step } : event.key === 'ArrowUp' ? { y: -step } : event.key === 'ArrowDown' ? { y: step } : null;
+      if (!delta) return;
+      event.preventDefault();
+      updateLayer({ x: Math.max(0, Math.min(1920 - selectedLayer.width, selectedLayer.x + (delta.x ?? 0))), y: Math.max(0, Math.min(1080 - selectedLayer.height, selectedLayer.y + (delta.y ?? 0))) });
+    };
+    window.addEventListener('keydown', keydown);
+    return () => window.removeEventListener('keydown', keydown);
+  }, [selectedLayer, playerState.status, selectedCue, selectedLayers]);
 
-›ØÚÎˆ[JHOˆ›ØÚËšY
-HˆÙ[XİY\˜YÜ˜\ÎÃBˆÙ]Ü›İ\]\ÚXÊ\ÜÙ]YYÊNÃBˆNÃBˆÛÛœİÛÛ™š\›QÜ›İ\]\ÚXÈH
+  const removeLayer = () => {
+    if (!selectedCue || !selectedLayer) return;
+    patchCue({ sceneLayers: selectedLayers.filter((layer: any) => layer.id !== selectedLayer.id).map((layer: any, index: number) => ({ ...layer, zIndex: index })) });
+    setSelectedLayerId(null);
+          setSelectedGroupId(null);
+          setSelectedGroupIds([]);
+  };
 
-HOˆÃBˆYˆ
-YÜ›İ\]\ÚXÑX[ÙÊH™]\›ÃBˆÛÛœİİ\œ™[H›Ú™Xİ™Y‹˜İ\œ™[ÃBˆÛÛœİÛİ\˜ÙHHİ\œ™[˜Ú\\œË™š[™
+  const moveLayer = (direction: number) => {
+    if (!selectedCue || !selectedLayer) return;
+    const sorted = [...selectedLayers].sort((a: any, b: any) => a.zIndex - b.zIndex);
+    const index = sorted.findIndex((layer: any) => layer.id === selectedLayer.id);
+    const next = Math.max(0, Math.min(sorted.length - 1, index + direction));
+    [sorted[index], sorted[next]] = [sorted[next], sorted[index]];
+    patchCue({ sceneLayers: sorted.map((layer: any, zIndex: number) => ({ ...layer, zIndex })) });
+  };
 
-][Nˆ[JHOˆ][KšYOOHÜ›İ\]\ÚXÑX[ÙË˜Ú\\’Y
-NÃBˆYˆ
-\Ûİ\˜ÙHİ\œ™[˜Xİ]™PÚ\\’YOOHÜ›İ\]\ÚXÑX[ÙË˜Ú\\’Y
-HÃBˆÙ]Ü›İ\]\ÚXÑX[ÙÊ[
-NÃBˆ™]\›ˆÙ]›İXÙJ	ùêè:" ¹mì¹cæ9c%»ï#:+íúaãy¥¬:`"y¢êyæë¹¨!ùîá8à ‰ÊNÃBˆCBˆÛÛœİÜ›İ\ÈHÛİ\˜ÙK™Ü›İ\Ë™š[\Š
-Ü›İ\ˆ[JHOˆÜ›İ\]\ÚXÑX[ÙË™Ü›İ\YËš[˜ÛY\ÊÜ›İ\šY
-JNÃBˆÛÛœİ\˜YÜ˜\YÈHÛİ\˜ÙK™Øİ[Y[˜›ØÚÜË™š[\Š
-›ØÚÎˆ[JHOˆÜ›İ\ËœÛÛYJ
-Ü›İ\ˆ[JHOˆÜ›İ\œ\˜YÜ˜\YËš[˜ÛY\Ê›ØÚËšY
-JJK›X\
+  const updateActiveChapter = (operation: (value: any) => any) => {
+    commitChapterStructure(updateChapter(projectRef.current, projectRef.current.activeChapterId, operation));
+  };
 
-›ØÚÎˆ[JHOˆ›ØÚËšY
-NÃBˆÙ]Ü›İ\]\ÚXÊÜ›İ\]\ÚXÑX[ÙË˜\ÜÙ]Y\˜YÜ˜\YÊNÃBˆÙ]Ü›İ\]\ÚXÑX[ÙÊ[
-NÃBˆNÃBˆÛÛœİ[\ÜÜ›İ\]\ÚXÈH\Ş[˜È
+  const commitProject = (next: any) => {
+    projectRef.current = next;
+    setProject(next);
+  };
 
-HOˆÃBˆYˆ
-YÜ›İ\]\ÚXÑX[ÙÊH™]\›ÃBˆÛÛœİ\™Ù]HÜ›İ\]\ÚXÑX[ÙÎÃBˆHÃBˆÛÛœİYYH]ØZ][\Ü\ÜÙ]ÊYJNÃBˆYˆ
-XYY›[™İ
-H™]\›ÃBˆÛÛœİİ\œ™[H›Ú™Xİ™Y‹˜İ\œ™[ÃBˆYˆ
-İ\œ™[˜Xİ]™PÚ\\’YOOH\™Ù]˜Ú\\’Y
-H›İÈ™]È\œ›ÜŠ	ùêè:" ¹mì¹cæ9c%»ï#:+íúaãy¥¬:+¯¹ïkºacy.d8à ‰ÊNÃBˆÛÛœİÛİ\˜ÙHHXİ]™PÚ\\Šİ\œ™[
-NÃBˆÛÛœİYÈHÛİ\˜ÙK™Øİ[Y[˜›ØÚÜË™š[\Š
-›ØÚÎˆ[JHOˆÛİ\˜ÙK™Ü›İ\ËœÛÛYJ
-Ü›İ\ˆ[JHOˆ\™Ù]™Ü›İ\YËš[˜ÛY\ÊÜ›İ\šY
-H	‰ˆÜ›İ\œ\˜YÜ˜\YËš[˜ÛY\Ê›ØÚËšY
-JJK›X\
+  const commitChapterStructure = (next: any) => {
+    validateProject(next);
+    if (!editor || next.activeChapterId !== projectRef.current.activeChapterId) throw new Error('å½“å‰æ­£æ–‡å·²å˜åŒ–ï¼Œè¯·é‡æ–°æ“ä½œã€‚');
+    const before = projectRef.current;
+    const chapterId = editor.state.doc.attrs.chapterId;
+    if (!chapterId || chapterId !== before.activeChapterId) throw new Error('æ­£æ–‡ç¼–è¾‘å™¨å·²åˆ‡æ¢ï¼Œè¯·é‡æ–°æ“ä½œã€‚');
+    const token = makeId('structure');
+    reviewHistoryRef.current.set(token, { before, after: next, chapterId });
+    try {
+      if (!moveEditorParagraphs(editor, activeChapter(next).document.blocks, token, chapterId)) throw new Error('æ­£æ–‡å†…å®¹å·²å˜åŒ–ï¼Œç»“æ„æ“ä½œæœªæäº¤ã€‚');
+    } catch (error) { reviewHistoryRef.current.delete(token); throw error; }
+    commitProject(next);
+  };
 
-›ØÚÎˆ[JHOˆ›ØÚËšY
-NÃBˆÙ]Ü›İ\]\ÚXÊYYÌKšYYÊNÃBˆÙ]Ü›İ\]\ÚXÑX[ÙÊ[
-NÃBˆHØ]Ú
-\œ›ÜŠHÈÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	úgìù.d9kï9aiyi,z-)xà ‰ÊNÈCBˆNÃBˆÛÛœİÛÛ™š\›S]\ÚXÔ™\XÙ[Y[H
+  const switchChapter = (chapterId: string) => {
+    if (chapterId === project.activeChapterId) return;
+    stopEdgeAutoscroll();
+    cancelledDragRef.current = true;
+    dragActiveRef.current = false;
+    if (editorScrollRef.current) chapterScrollRef.current.set(project.activeChapterId, editorScrollRef.current.scrollTop);
+    if (editor) {
+      const selection = editor.state.selection;
+      chapterCursorRef.current.set(project.activeChapterId, { from: selection.from, to: selection.to, cueId: selectedCueId });
+    }
+    playerRef.current.stop();
+    commitProject({ ...projectRef.current, activeChapterId: chapterId, updatedAt: new Date().toISOString() });
+  };
 
-HOˆÃBˆYˆ
-\[™[™Ó]\ÚXÊH™]\›ÃBˆHÃBˆYˆ
-›Ú™Xİ™Y‹˜İ\œ™[OOH[™[™Ó]\ÚXË˜˜\ÙJH›İÈ™]È\œ›ÜŠ	ùméyê"ùmì¹cæ9c%»ï#:+íùalúeëy£ä9é.¹nmºaãy¥¬:`"y¢êzgìù.d8à ‰ÊNÃBˆÛÛ[Z]Ú\\”İXİ\™J\]PÚ\\Š›Ú™Xİ™Y‹˜İ\œ™[[™[™Ó]\ÚXË˜Ú\\’Y
-˜[YNˆ[JHOˆ™\XÙS]\ÚXÔ˜[™ÙJ˜[YK[™[™Ó]\ÚXË˜\ÜÙ]Y[™[™Ó]\ÚXËœ\˜YÜ˜\YÊJJNÃBˆÙ][™[™Ó]\ÚXÊ[
-NÃBˆÙ]›İXÙJ	ùmì¹¦ïù£h¹æë¹¨!ú# ùfí9æ¡:acy.d;ï#:# ùfí9i%¹æ¡9c§úgìù.d9/çy£ xà ‰ÊNÃBˆHØ]Ú
-\œ›ÜŠHÈÙ][™[™Ó]\ÚXÊ[
-NÈÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	ù¦ïù£h¹§*¹£ä9.©8à ‰ÊNÈCBˆNÃBˆÛÛœİ[İ™TÙ[Xİ[Û•ÑÜ›İ\H
-Ü›İ\Yˆİš[™ÊHOˆÃBˆYˆ
-YÜ›İ\Y\Ù[XİY\˜YÜ˜\Ë›[™İ
-H™]\›ÃBˆHÃBˆÛÛœİİ\œ™[H›Ú™Xİ™Y‹˜İ\œ™[ÃBˆÛÛ[Z]Ú\\”İXİ\™J\]PÚ\\Šİ\œ™[İ\œ™[˜Xİ]™PÚ\\’Y
-˜[YNˆ[JHOˆ[İ™T\˜YÜ˜\Ê˜[YKÙ[XİY\˜YÜ˜\ËÈ\Nˆ	ÙÜ›İ\	ËÜ›İ\YJJJNÃBˆÙ]Ù[XİYÜ›İ\Y
-Ü›İ\Y
-NÃBˆÙ]Ù[XİYÜ›İ\YÊÙÜ›İ\YJNÃBˆÙ]Ù[XİY\˜YÜ˜\Ê×JNÃBˆÙ]›İXÙJ	ùmì¹l!¹¢`:`"y«­z$/yéîùaiyæë¹¨!ùîá8à ‰ÊNÃBˆHØ]Ú
-\œ›ÜŠHÈÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	ù§*º ïyéîùaiyîá8à ‰ÊNÈCBˆNÃBƒBˆ[˜İ[ÛˆÙ[XİÜ›İ\
-Ü›İ\Yˆİš[™Ë]™[ÎˆÈÚYÙ^OÎˆ›ÛÛX[Èİ›Ù^OÎˆ›ÛÛX[ÈY]RÙ^OÎˆ›ÛÛX[ˆJHÃBˆÛÛœİ[™^HÜ™\™YÜ›İ\Ë™š[™[™^
+  const createNewChapter = (trigger: HTMLElement) => {
+    const sourceChapterId = chapter.id;
+    const selection = editor ? editor.state.selection : null;
+    const cursor = selection ? { from: selection.from, to: selection.to, cueId: selectedCueId } : null;
+    openNameDialog(trigger, {
+      title: 'æ–°å»ºç« èŠ‚',
+      fieldLabel: 'ç« èŠ‚åç§°',
+      confirmLabel: 'æ–°å»ºç« èŠ‚',
+      initialValue: `ç¬¬${String(project.chapters.length + 1).padStart(2, '0')}ç« `,
+      normalize: normalizeChapterName,
+      onConfirm: (name) => {
+        try {
+          const current = projectRef.current;
+          if (current.activeChapterId !== sourceChapterId || !current.chapters.some((item: any) => item.id === sourceChapterId)) return 'å½“å‰ç« èŠ‚å·²å˜åŒ–ï¼Œè¯·å…³é—­åé‡è¯•ã€‚';
+          const next = addChapter(current, name);
+          if (cursor) chapterCursorRef.current.set(sourceChapterId, cursor);
+          playerRef.current.stop();
+          commitProject(next);
+          setSelectedCueId(null);
+          setSelectedParagraphs([]);
+          setSelectedGroupId(null);
+          return undefined;
+        } catch (error) { return error instanceof Error ? error.message : 'æ— æ³•æ–°å»ºç« èŠ‚ã€‚'; }
+      },
+    });
+  };
 
-Ü›İ\ˆ[JHOˆÜ›İ\šYOOHÜ›İ\Y
-NÃBˆYˆ
-[™^
-H™]\›ÃBˆ]™^HÙÜ›İ\YNÃBˆYˆ
-]™[ËœÚYÙ^H	‰ˆÙ[XİYÜ›İ\Y
-HÃBˆÛÛœİœ›ÛHHÜ™\™YÜ›İ\Ë™š[™[™^
+  const renameActiveChapter = (trigger: HTMLElement) => {
+    const chapterId = chapter.id;
+    openNameDialog(trigger, {
+      title: 'é‡å‘½åç« èŠ‚',
+      fieldLabel: 'ç« èŠ‚åç§°',
+      confirmLabel: 'ä¿å­˜ç« èŠ‚å',
+      initialValue: chapter.name,
+      normalize: normalizeChapterName,
+      onConfirm: (name) => {
+        try {
+          const current = projectRef.current;
+          if (!current.chapters.some((item: any) => item.id === chapterId)) return 'ç« èŠ‚å·²ä¸å­˜åœ¨ï¼Œè¯·é‡æ–°é€‰æ‹©ã€‚';
+          commitProject(renameChapter(current, chapterId, name));
+          return undefined;
+        } catch (error) { return error instanceof Error ? error.message : 'ç« èŠ‚åç§°æ— æ•ˆã€‚'; }
+      },
+    });
+  };
 
-Ü›İ\ˆ[JHOˆÜ›İ\šYOOHÙ[XİYÜ›İ\Y
-NÃBˆYˆ
-œ›ÛHH
-H™^HÜ™\™YÜ›İ\ËœÛXÙJX]›Z[Šœ›ÛKj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^index), Math.max(from, index) + 1).map((group: any) => group.id);
+  const createGroupFromSelection = (trigger: HTMLElement) => {
+    if (!selectedParagraphs.length) return setNotice('å…ˆåœ¨æ­£æ–‡ä¸­é€‰ä¸­è¦å½’ç»„çš„è¿ç»­æ®µè½ã€‚');
+    const chapterId = chapter.id;
+    const paragraphIds = [...selectedParagraphs];
+    const blockIds = document.blocks.map((block: any) => block.id);
+    const first = blockIds.indexOf(paragraphIds[0]);
+    const last = blockIds.indexOf(paragraphIds[paragraphIds.length - 1]);
+    openNameDialog(trigger, {
+      title: 'å½’å…¥æ–°ç»„',
+      fieldLabel: 'æ®µè½ç»„åç§°',
+      confirmLabel: `åˆ›å»ºå¹¶å½’å…¥ ${paragraphIds.length} æ®µ`,
+      initialValue: 'æ–°æ®µè½ç»„',
+      description: `ç¬¬ ${first + 1}â€“${last + 1} æ®µ Â· å…± ${paragraphIds.length} æ®µã€‚å–æ¶ˆä¸ä¼šä¿®æ”¹æ­£æ–‡ã€‚`,
+      normalize: normalizeParagraphGroupName,
+      onConfirm: (name) => {
+        try {
+          const current = projectRef.current;
+          const currentChapter = current.chapters.find((item: any) => item.id === chapterId);
+          if (!currentChapter || current.activeChapterId !== chapterId) return 'å½“å‰ç« èŠ‚å·²å˜åŒ–ï¼Œè¯·å…³é—­åé‡è¯•ã€‚';
+          const existingIds = new Set(currentChapter.groups.map((group: any) => group.id));
+          const next = updateChapter(current, chapterId, (value: any) => createParagraphGroup(value, paragraphIds, name));
+          const nextChapter = next.chapters.find((item: any) => item.id === chapterId);
+          const created = nextChapter.groups.find((group: any) => !existingIds.has(group.id));
+          if (!created) return 'æœªèƒ½åˆ›å»ºæ®µè½ç»„ï¼Œè¯·é‡æ–°é€‰æ‹©æ®µè½ã€‚';
+          commitChapterStructure(next);
+          setSelectedGroupId(created.id);
+          setSelectedGroupIds([created.id]);
+          setSelectedParagraphs([]);
+          setNotice('é€‰ä¸­çš„è¿ç»­æ®µè½å·²å½’å…¥æ–°ç»„ã€‚');
+          return undefined;
+        } catch (error) { return error instanceof Error ? error.message : 'æ— æ³•åˆ›å»ºæ®µè½ç»„ã€‚'; }
+      },
+    });
+  };
+
+  const createEmptyGroup = (trigger: HTMLElement) => {
+    const chapterId = chapter.id;
+    const afterGroupId = selectedGroupId;
+    openNameDialog(trigger, {
+      title: 'æ–°å»ºç©ºæ®µè½ç»„',
+      fieldLabel: 'æ®µè½ç»„åç§°',
+      confirmLabel: 'æ–°å»ºå¹¶å¼€å§‹å†™ä½œ',
+      initialValue: 'æ–°æ®µè½ç»„',
+      normalize: normalizeParagraphGroupName,
+      onConfirm: (name) => {
+        try {
+          const current = projectRef.current;
+          if (current.activeChapterId !== chapterId) return 'å½“å‰ç« èŠ‚å·²å˜åŒ–ï¼Œè¯·å…³é—­åé‡è¯•ã€‚';
+          const next = updateChapter(current, chapterId, (value: any) => createEmptyParagraphGroup(value, name, afterGroupId));
+          validateProject(next);
+          const nextChapter = next.chapters.find((item: any) => item.id === chapterId);
+          const created = nextChapter.groups.find((group: any) => !current.chapters.find((item: any) => item.id === chapterId)?.groups.some((existing: any) => existing.id === group.id));
+          if (!created) return 'æœªèƒ½åˆ›å»ºæ®µè½ç»„ï¼Œè¯·é‡è¯•ã€‚';
+          commitChapterStructure(next);
+          playerRef.current.stop();
+          setSelectedGroupId(created.id);
+          setSelectedGroupIds([created.id]);
+          setSelectedParagraphs([]);
+          selectParagraph(created.paragraphIds[0]);
+          return undefined;
+        } catch (error) { return error instanceof Error ? error.message : 'æ— æ³•åˆ›å»ºç©ºæ®µè½ç»„ã€‚'; }
+      },
+    });
+  };
+
+  const distributeLayers = (axis: 'x' | 'y') => {
+    if (!selectedCue || selectedLayers.length < 2) return;
+    const sorted = [...selectedLayers].sort((a: any, b: any) => axis === 'x' ? a.x - b.x : a.y - b.y);
+    const span = axis === 'x' ? 1920 : 1080;
+    const sizeKey = axis === 'x' ? 'width' : 'height';
+    const total = sorted.reduce((sum: number, layer: any) => sum + layer[sizeKey], 0);
+    const gap = Math.max(0, (span - total) / (sorted.length - 1));
+    let cursor = 0;
+    const positions = new Map<string, number>();
+    for (const layer of sorted) { positions.set(layer.id, cursor); cursor += layer[sizeKey] + gap; }
+    patchCue({ sceneLayers: selectedLayers.map((layer: any) => ({ ...layer, [axis]: positions.get(layer.id) ?? layer[axis] })) });
+  };
+
+  const setGroupMusic = (assetId: string, paragraphIds: string[]) => {
+    if (!assetsRef.current.some((asset) => asset.id === assetId && asset.kind === 'audio')) return setNotice('è¯·é€‰æ‹©å½“å‰å·¥ç¨‹ä¸­çš„æœ‰æ•ˆéŸ³é¢‘ã€‚');
+    if (!paragraphIds.length) return setNotice('å…ˆé€‰ä¸€ä¸ªç»„æˆ–è¿ç»­å¤šä¸ªç»„ï¼Œå†æ·»åŠ èƒŒæ™¯éŸ³ä¹ã€‚');
+    const current = projectRef.current;
+    const source = activeChapter(current);
+    try {
+      commitChapterStructure(updateChapter(current, source.id, (value: any) => setMusicRange(value, assetId, paragraphIds)));
+      setNotice(`å·²è®¾ç½® ${paragraphIds.length} æ®µçš„èƒŒæ™¯éŸ³ä¹ï¼›èŒƒå›´å†…æ¢å¥ä¿æŒè¿ç»­ã€‚`);
+    } catch (error) {
+      if (error instanceof Error && error.message.includes('é‡å ')) setPendingMusic({ chapterId: source.id, assetId, paragraphIds, base: current });
+      else setNotice(error instanceof Error ? error.message : 'é…ä¹æœªæäº¤ã€‚');
+    }
+  };
+  const setMusicForSelection = (assetId: string) => {
+    if (!assetId) return;
+    const groups = selectedGroupIds.length ? orderedGroups.filter((group: any) => selectedGroupIds.includes(group.id)) : currentGroup ? [currentGroup] : [];
+    const ids = groups.length ? document.blocks.filter((block: any) => groups.some((group: any) => group.paragraphIds.includes(block.id))).map((block: any) => block.id) : selectedParagraphs;
+    setGroupMusic(assetId, ids);
+  };
+  const confirmGroupMusic = () => {
+    if (!groupMusicDialog) return;
+    const current = projectRef.current;
+    const source = current.chapters.find((item: any) => item.id === groupMusicDialog.chapterId);
+    if (!source || current.activeChapterId !== groupMusicDialog.chapterId) {
+      setGroupMusicDialog(null);
+      return setNotice('ç« èŠ‚å·²å˜åŒ–ï¼Œè¯·é‡æ–°é€‰æ‹©ç›®æ ‡ç»„ã€‚');
+    }
+    const groups = source.groups.filter((group: any) => groupMusicDialog.groupIds.includes(group.id));
+    const paragraphIds = source.document.blocks.filter((block: any) => groups.some((group: any) => group.paragraphIds.includes(block.id))).map((block: any) => block.id);
+    setGroupMusic(groupMusicDialog.assetId, paragraphIds);
+    setGroupMusicDialog(null);
+  };
+  const importGroupMusic = async () => {
+    if (!groupMusicDialog) return;
+    const target = groupMusicDialog;
+    try {
+      const added = await importAssets(true);
+      if (!added.length) return;
+      const current = projectRef.current;
+      if (current.activeChapterId !== target.chapterId) throw new Error('ç« èŠ‚å·²å˜åŒ–ï¼Œè¯·é‡æ–°è®¾ç½®é…ä¹ã€‚');
+      const source = activeChapter(current);
+      const ids = source.document.blocks.filter((block: any) => source.groups.some((group: any) => target.groupIds.includes(group.id) && group.paragraphIds.includes(block.id))).map((block: any) => block.id);
+      setGroupMusic(added[0].id, ids);
+      setGroupMusicDialog(null);
+    } catch (error) { setNotice(error instanceof Error ? error.message : 'éŸ³ä¹å¯¼å…¥å¤±è´¥ã€‚'); }
+  };
+  const confirmMusicReplacement = () => {
+    if (!pendingMusic) return;
+    try {
+      if (projectRef.current !== pendingMusic.base) throw new Error('å·¥ç¨‹å·²å˜åŒ–ï¼Œè¯·å…³é—­æç¤ºå¹¶é‡æ–°é€‰æ‹©éŸ³ä¹ã€‚');
+      commitChapterStructure(updateChapter(projectRef.current, pendingMusic.chapterId, (value: any) => replaceMusicRange(value, pendingMusic.assetId, pendingMusic.paragraphIds)));
+      setPendingMusic(null);
+      setNotice('å·²æ›¿æ¢ç›®æ ‡èŒƒå›´çš„é…ä¹ï¼ŒèŒƒå›´å¤–çš„åŸéŸ³ä¹ä¿æŒã€‚');
+    } catch (error) { setPendingMusic(null); setNotice(error instanceof Error ? error.message : 'æ›¿æ¢æœªæäº¤ã€‚'); }
+  };
+  const moveSelectionToGroup = (groupId: string) => {
+    if (!groupId || !selectedParagraphs.length) return;
+    try {
+      const current = projectRef.current;
+      commitChapterStructure(updateChapter(current, current.activeChapterId, (value: any) => moveParagraphs(value, selectedParagraphs, { type: 'group', groupId })));
+      setSelectedGroupId(groupId);
+      setSelectedGroupIds([groupId]);
+      setSelectedParagraphs([]);
+      setNotice('å·²å°†æ‰€é€‰æ®µè½ç§»å…¥ç›®æ ‡ç»„ã€‚');
+    } catch (error) { setNotice(error instanceof Error ? error.message : 'æœªèƒ½ç§»å…¥ç»„ã€‚'); }
+  };
+
+  function selectGroup(groupId: string, event?: { shiftKey?: boolean; ctrlKey?: boolean; metaKey?: boolean }) {
+    const index = orderedGroups.findIndex((group: any) => group.id === groupId);
+    if (index < 0) return;
+    let next = [groupId];
+    if (event?.shiftKey && selectedGroupId) {
+      const from = orderedGroups.findIndex((group: any) => group.id === selectedGroupId);
+      if (from >= 0) next = orderedGroups.slice(Math.min(from, index), Math.max(from, index) + 1).map((group: any) => group.id);
     } else if (event?.ctrlKey || event?.metaKey) {
       next = selectedGroupIds.includes(groupId) ? selectedGroupIds.filter((id) => id !== groupId) : [...selectedGroupIds, groupId];
     }
@@ -727,99 +1346,256 @@ H™^HÜ™\™YÜ›İ\ËœÛXÙJX]›Z[Šœ›ÛKj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥
         if (payload.projectId !== current.id) throw new Error('éŸ³é¢‘å¿…é¡»æ¥è‡ªå½“å‰å·¥ç¨‹ã€‚');
         const group = activeChapter(current).groups.find((item: any) => item.id === groupId);
         if (!group) throw new Error('ç›®æ ‡ç»„å·²ä¸å­˜åœ¨ã€‚');
-        setGroupMusic(payload.assetId, group.paragraph¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y%‘Ì¤ì4(€€€€€ô…Ñ €¡•ÉÉ½È¤ìÍ•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü•ÉÉ½È¹µ•ÍÍ…”€è€Ÿ¦~Ï¦ŠGš.[–*£š^ƒšV#œ¤ìô4(€€€€€É•ÑÕÉ¸ì4(€€€ô4(€€€…•ÁÑA…É…É…Á¡É½À¡•Ù•¹Ğ°ìÑåÁ”è€É½ÕÀœ°É½ÕÁ%ô¤ì4(€ôì4(4(€€¼¨ƒŠRŠR ƒ–no–2ë–>Ï¦R»¢>s–6W¾òk–6W’â’â+’â/šZ–—–>–6W’â–F÷’î“–ºk’æ$ƒŠRŠRŠRŠRŠRŠRŠRŠRŠRŠRŠRŠRŠRŠR €¨¼4(€ÑåÁ”=Á•¹5•¹Ô€ôì4(€€€Ñ…É•Ğè5•¹ÕQ…É•Ğìàè¹Õµ‰•Èìäè¹Õµ‰•Èì½µµ…¹‘Ìè5•¹Õ½µµ…¹‘mtì4(€€€Ñ¥Ñ±”èÍÑÉ¥¹œì™½ÕÌè!Q51±•µ•¹Ğğ¹Õ±°ì™…ÑÌè5•¹Õ…ÑÌì4(€ôì4(€½¹ÍĞm½Á•¹5•¹Ô°Í•Ñ=Á•¹5•¹Õt€ôÕÍ•MÑ…Ñ”ñ=Á•¹5•¹Ôğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞµ•¹ÕI•˜€ôÕÍ•I•˜ñ=Á•¹5•¹Ôğ¹Õ±°ø¡¹Õ±°¤ì4(€µ•¹ÕI•˜¹ÕÉÉ•¹Ğ€ô½Á•¹5•¹Ôì4(€½¹ÍĞ•‘¥Ñ½É5•¹ÕI•˜€ôÕÍ•I•˜ñì…¹¡½Èè¹Õµ‰•Èì¡•…è¹Õµ‰•Èôğ¹Õ±°ø¡¹Õ±°¤ì4(4(€½¹ÍĞÉ•…‘±¥Á‰½…É€ô…Íå¹Œ€ ¤€ôøì4(€€€½¹ÍĞÉ…Ü€ô…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹É•…‘±¥Á‰½…É ¤ì4(€€€½¹ÍĞÁ…å±½…€ôÉ…Üü¹Á…å±½…€üÙ…±¥‘…Ñ•±¥Á‰½…É¡É…Ü¹Á…å±½…¤€è¹Õ±°ì4(€€€É•ÑÕÉ¸ìÑ•áĞèÑåÁ•½˜É…Üü¹Ñ•áĞ€ôôô€ÍÑÉ¥¹œœ€üÉ…Ü¹Ñ•áĞ€è€œœ°Á…å±½…ôì4(€ôì4(€½¹ÍĞİÉ¥Ñ•±¥Á‰½…É€ô…Íå¹Œ€¡Á…å±½…èMÑ½Éå±¥Á‰½…Éğ¹Õ±°°Ñ•áĞ€ô€œœ¤€ôøì4(€€€…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹İÉ¥Ñ•±¥Á‰½…É¡ìÑ•áĞ°Á…å±½…ô¤ì4(€ôì4(4(€½¹ÍĞÁ…É…É…Á¡=™…É•Ğ€ô€ ¤€ôøì4(€€€¥˜€ …•‘¥Ñ½È¤É•ÑÕÉ¸¹Õ±°ì4(€€€½¹ÍĞìÍ•±•Ñ¥½¸ô€ô•‘¥Ñ½È¹ÍÑ…Ñ”ì4(€€€½¹ÍĞ¥€ôÍ•±•Ñ¥½¸¸‘™É½´¹Á…É•¹Ğü¹…ÑÑÉÌü¹Á…É…É…Á¡%ì4(€€€É•ÑÕÉ¸¥€üMÑÉ¥¹œ¡¥¤€è¹Õ±°ì4(€ôì4(€½¹ÍĞÉ½ÕÁ%‘=™A…É…É…Á €ô€¡Á…É…É…Á¡%èÍÑÉ¥¹œğÕ¹‘•™¥¹•¤€ôøì4(€€€¥˜€ …Á…É…É…Á¡%¤É•ÑÕÉ¸¹Õ±°ì4(€€€½¹ÍĞ‰±½¬€ô‘½Õµ•¹Ğ¹‰±½­Ì¹™¥¹ ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôôÁ…É…É…Á¡%¤ì4(€€€½¹ÍĞ½İ¸€ô‰±½¬ü¹É½ÕÁ%€üü¹Õ±°ì4(€€€¥˜€¡½İ¸¤É•ÑÕÉ¸MÑÉ¥¹œ¡½İ¸¤ì4(€€€½¹ÍĞÉ½ÕÀ€ô¡…ÁÑ•È¹É½ÕÁÌ¹™¥¹ ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹Á…É…É…Á¡%‘Ì¹¥¹±Õ‘•Ì¡Á…É…É…Á¡%¤¤ì4(€€€É•ÑÕÉ¸É½ÕÀ€üÉ½ÕÀ¹¥€è¹Õ±°ì4(€ôì4(€½¹ÍĞ¥¹‘•á=™A…É…É…Á €ô€¡Á…É…É…Á¡%èÍÑÉ¥¹œğÕ¹‘•™¥¹•¤€ôø‘½Õµ•¹Ğ¹‰±½­Ì¹™¥¹‘%¹‘•à ¡‰±½¬è…¹ä¤€ôø‰±½¬¹¥€ôôôÁ…É…É…Á¡%¤ì4(4(€½¹ÍĞ½±±•Ñ…ÑÌ€ô€¡Ñ…É•Ğè5•¹ÕQ…É•Ğ°¡…ÍQ•áÑM•±•Ñ¥½¸è‰½½±•…¸°…¹A…ÍÑ”è‰½½±•…¸¤è5•¹Õ…ÑÌ€ôøì4(€€€½¹ÍĞÁ…É…É…Á¡%¹‘•à€ô¥¹‘•á=™A…É…É…Á ¡Ñ…É•Ğ¹Á…É…É…Á¡%¤ì4(€€€½¹ÍĞ±…å•È€ôÑ…É•Ğ¹±…å•É%€üÍ•±•Ñ•‘1…å•ÉÌ¹™¥¹ ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôôÑ…É•Ğ¹±…å•É%¤€è¹Õ±°ì4(€€€½¹ÍĞÍ½ÉÑ•€ôl¸¸¹Í•±•Ñ•‘1…å•ÉÍt¹Í½ÉĞ ¡„è…¹ä°ˆè…¹ä¤€ôø„¹é%¹‘•à€´ˆ¹é%¹‘•à¤ì4(€€€½¹ÍĞ±…å•É=É‘•È€ô±…å•È€üÍ½ÉÑ•¹™¥¹‘%¹‘•à ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôô±…å•È¹¥¤€è€´Äì4(€€€½¹ÍĞ…ÍÍ•Ğ€ôÑ…É•Ğ¹…ÍÍ•Ñ%€ü…ÍÍ•ÑÌ¹™¥¹ ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôôÑ…É•Ğ¹…ÍÍ•Ñ%¤€è¹Õ±°ì4(€€€€¼¨ƒšº×¢B÷în»–öW¦3jî–>¿¢÷–Æ{’ê;–"¯j®ƒ¢*¾ò3’ê/–º{¢šš2'¦
-’â®ƒšv—º\€¨¼4(€€€½¹ÍĞÑ…É•Ñ¡…ÁÑ•È€ôÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹¡…ÁÑ•ÉÌ¹™¥¹ ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôôÑ…É•Ğ¹¡…ÁÑ•É%¤€üü¹Õ±°ì4(€€€½¹ÍĞÑ…É•ÑÉ½ÕÀ€ôÑ…É•Ğ¹É½ÕÁ%€ü€¡Ñ…É•Ñ¡…ÁÑ•Èü¹É½ÕÁÌ€üümt¤¹™¥¹ ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôôÑ…É•Ğ¹É½ÕÁ%¤€üü¹Õ±°€è¹Õ±°ì4(€€€½¹ÍĞÑ…É•ÑÉ½ÕÁÌ€ôÑ…É•Ñ¡…ÁÑ•È4(€€€€€€ül¸¸¹Ñ…É•Ñ¡…ÁÑ•È¹É½ÕÁÍt¹Í½ÉĞ ¡„è…¹ä°ˆè…¹ä¤€ôøÑ…É•Ñ¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹™¥¹‘%¹‘•à ¡‰±½¬è…¹ä¤€ôø‰±½¬¹¥€ôôô„¹Á…É…É…Á¡%‘ÍlÁt¤€´Ñ…É•Ñ¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹™¥¹‘%¹‘•à ¡‰±½¬è…¹ä¤€ôø‰±½¬¹¥€ôôôˆ¹Á…É…É…Á¡%‘ÍlÁt¤¤4(€€€€€€èmtì4(€€€É•ÑÕÉ¸ì4(€€€€€…¹U¹‘¼è€„…•‘¥Ñ½Èü¹…¸ ¤¹Õ¹‘¼ ¤°4(€€€€€…¹I•‘¼è€„…•‘¥Ñ½Èü¹…¸ ¤¹É•‘¼ ¤°4(€€€€€¡…ÍQ•áÑM•±•Ñ¥½¸°4(€€€€€Á…É…É…Á¡%¹‘•à°4(€€€€€Á…É…É…Á¡½Õ¹Ğè‘½Õµ•¹Ğ¹‰±½­Ì¹±•¹Ñ °4(€€€€€É½ÕÁ½Õ¹ĞèÑ…É•Ñ¡…ÁÑ•Èü¹É½ÕÁÌ¹±•¹Ñ €üü€À°4(€€€€€½±±…ÁÍ•è€„…Ñ…É•ÑÉ½ÕÀü¹½±±…ÁÍ•°4(€€€€€¥¹É½ÕÀè€„…É½ÕÁ%‘=™A…É…É…Á ¡Ñ…É•Ğ¹Á…É…É…Á¡%€üüÁ…É…É…Á¡=™…É•Ğ ¤€üüÕ¹‘•™¥¹•¤°4(€€€€€É½ÕÁÑQ½ÀèÑ…É•ÑÉ½ÕÀ€üÑ…É•ÑÉ½ÕÁÍlÁtü¹¥€ôôôÑ…É•ÑÉ½ÕÀ¹¥€è™…±Í”°4(€€€€€É½ÕÁÑ	½ÑÑ½´èÑ…É•ÑÉ½ÕÀ€üÑ…É•ÑÉ½ÕÁÌ¹…Ğ ´Ä¤ü¹¥€ôôôÑ…É•ÑÉ½ÕÀ¹¥€è™…±Í”°4(€€€€€¡…ÍÕ‘¥½ÍÍ•Ğè…ÍÍ•ÑÌ¹Í½µ” ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹­¥¹€ôôô€…Õ‘¥¼œ¤°4(€€€€€µ½‘”èÍ•±•Ñ•‘Õ”ü¹Í•ÑÑ¥¹Ì¹µ½‘”€üü¹Õ±°°4(€€€€€¡…ÍMÁ•…­•Èè€„…Í•±•Ñ•‘Õ”ü¹Í•ÑÑ¥¹Ì¹ÍÁ•…­•È°4(€€€€€±…å•É1½­•è€„…±…å•Èü¹±½­•°4(€€€€€±…å•ÉÑQ½Àè±…å•É=É‘•È€øô€À€˜˜±…å•É=É‘•È€ôôôÍ½ÉÑ•¹±•¹Ñ €´€Ä°4(€€€€€±…å•ÉÑ	½ÑÑ½´è±…å•É=É‘•È€ôôô€À°4(€€€€€…ÍÍ•Ñ-¥¹è…ÍÍ•Ğü¹­¥¹€üü¹Õ±°°4(€€€€€…ÍÍ•ÑI•™•É•¹•è…ÍÍ•Ğ€ü…ÍÍ•ÑUÍ…•Ì¡ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ°…ÍÍ•Ğ¹¥¤¹±•¹Ñ €ø€À€è™…±Í”°4(€€€€€…¹A…ÍÑ”°4(€€€ôì4(€ôì4(4(€€¼¨¨ƒš*+š&Ÿ¢†3–—–>šRÛšVo–"Ã’â–’¾ò3¢>s–6W’â8ÑÉ°­½`½Xƒ–ÇR €¨¼4(€½¹ÍĞÉÕ¹5•¹ÕÑ¥½¸€ô…Íå¹Œ€¡½µµ…¹è5•¹Õ½µµ…¹°™½ÕÌè±•µ•¹Ğğ¹Õ±°¤€ôøì4(€€€½¹ÍĞÑ…É•Ğ€ô™½ÕÌ¥¹ÍÑ…¹•½˜!Q51±•µ•¹Ğ€ü™½ÕÌ€è¹Õ±°ì4(€€€Í•Ñ=Á•¹5•¹Ô¡¹Õ±°¤ì4(€€€¥˜€¡Ñ…É•Ğü¹¥Í½¹¹•Ñ•¤É•ÅÕ•ÍÑ¹¥µ…Ñ¥½¹É…µ”  ¤€ôøÑ…É•Ğ¹™½ÕÌ ¤¤ì4(€€€ÑÉäì…İ…¥Ğ½µµ…¹¹ÉÕ¸ü¸ ¤ìô4(€€€…Ñ €¡•ÉÉ½È¤ìÍ•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü•ÉÉ½È¹µ•ÍÍ…”€è€ŸšN7’ösšr«–º3š"Cœ¤ìô4(€ôì4(4(€½¹ÍĞ½Á•¹]½É­ÍÁ…•5•¹Ô€ô€¡Ñ…É•Ğè5•¹ÕQ…É•Ğ°•Ù•¹Ğèì±¥•¹Ñ`è¹Õµ‰•Èì±¥•¹Ñdè¹Õµ‰•ÈìÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤èÙ½¥ìÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤èÙ½¥ô°™½ÕÌè±•µ•¹Ğğ¹Õ±°°¡…ÍQ•áÑM•±•Ñ¥½¸€ô™…±Í”¤€ôøì4(€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì4(€€€•Ù•¹Ğ¹ÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤ì4(€€€€¼¨ƒ¢>s–6W–ŞËš&O–òš^Û–7
-ç’âš²‡–>Ï¦R»¾òw–>[šÚ#¾ò3’â7–şš2$M¾òo–Ï¦^·–B;š*+›
-ç¢şcîg–:šv—j–¾ç¢Æ„€¨¼4(€€€½¹ÍĞÕÉÉ•¹Ğ€ôµ•¹ÕI•˜¹ÕÉÉ•¹Ğì4(€€€¥˜€¡ÕÉÉ•¹Ğ¤ì4V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅà¢6WD÷VäÖVçR†çVÆÂ“°Ğ¢6öç7Bfö7W2Ò7W'&VçBæfö7W3°Ğ¢–b†fö7W3òæ—46öææV7FVB’&WVW7Dæ–ÖF–öäg&ÖR‚‚’Óâfö7W2æfö7W2‚’“°Ğ¢&WGW&ã°Ğ¢ĞĞ¢6öç7BÆ—fRÒ&ö¦V7E&Vbæ7W'&VçC°Ğ¢–b†Æ—fRæ–BÓÒF&vWBç&ö¦V7D–B’&WGW&â6WDæ÷F–6R‚~[z^zˆ¾[{.Xˆ~hÚ.ûÈÎŠû~YÊ[Ù>X˜ŞZû‹Kˆ®˜xŞikXû>™Jî8"r“°Ğ¢ò¢jë^‰Ş{¸Nyºî[Ù^˜xÎy¨N{¸NXúşˆ;Ş[îK¨îXŠ¾y¨Nzºˆ¨.ûÉ®{¸N{ª~YŞKºNKÉ®ˆz®[{Xˆ~X‹˜*>KˆzºXhŞhš~ŠÎ8"¢ğĞ¢–b†Æ—fRæ7F—fT6†FW$–BÓÒF&vWBæ6†FW$–BbbF&vWBæ¶–æBÓÒvw&÷Wr’&WGW&â6WDæ÷F–6R‚~[z^zˆ¾h‰nzºˆ¨.[{.Xˆ~hÚ.ûÈÎŠû~YÊ[Ù>X˜ŞZû‹Kˆ®˜xŞikXû>™Jî8"r“°Ğ¢6öç7B6å7FRÒG'VS°Ğ¢6öç7Bf7G2Ò6öÆÆV7Df7G2‡F&vWBÂ†5FW‡E6VÆV7F–öâÂ6å7FR“°Ğ¢6öç7B6öÖÖæG2Ò'V–ÆEv÷&·76TÖVçR‡F&vWBÂf7G2ÂÖVçT7F–öç2‡F&vWB’Â÷&FW&VDw&÷W2æÖ‚†w&÷W¢ç’’Óâ‡²–C¢w&÷Wæ–BÂæÖS¢w&÷WææÖRÒ’’“°Ğ¢6öç7Bfö7W4VÆVÖVçBÒfö7W2–ç7Fæ6Vöb…DÔÄVÆVÖVçBòfö7W2¢çVÆÃ°Ğ¢6WD÷VäÖVçR‡²F&vWBÂƒ¢WfVçBæ6Æ–VçE‚Â“¢WfVçBæ6Æ–VçE’Â6öÖÖæG2ÂF—FÆS¢ÖVçUF—FÆR‡F&vWBÂf7G2’Âfö7W3¢fö7W4VÆVÖVçBÂf7G2Ò“°Ğ¢Ó°Ğ Ğ¢6öç7BÖVçT7F–öç2Ò‡F&vWC¢ÖVçUF&vWB“¢ÖVçT7F–öç2Óâ‡°Ğ¢VæFó¢‚’ÓâVF—F÷#òæ6†–â‚’æfö7W2‚’çVæFò‚’ç'Vâ‚’ÀĞ¢&VFó¢‚’ÓâVF—F÷#òæ6†–â‚’æfö7W2‚’ç&VFò‚’ç'Vâ‚’ÀĞ¢7WC¢‚’Óâ6÷”÷$7WB‡F&vWBÂv7WBr’ÀĞ¢6÷“¢‚’Óâ6÷”÷$7WB‡F&vWBÂv6÷’r’ÀĞ¢7FS¢‚’Óâ7FT–çFò‡F&vWB’ÀĞ¢FVÆWFU6VÆV7F–öã¢‚’ÓâVF—F÷#òæ6†–â‚’æfö7W2‚’æFVÆWFU6VÆV7F–öâ‚’ç'Vâ‚’ÀĞ¢FVÆWFU&w&ƒ¢‚’Óâ&VÖ÷fU&w&…F&vWB‡F&vWB’ÀĞ¢6öçfW'C¢†ÖöFR’ÓâÇ”ÖVçTÖöFR‡F&vWBÂÖöFR’ÀĞ¢Ö÷fUFôw&÷W¢†w&÷W–B’ÓâÖ÷fTöæU&w&…Fôw&÷W‡F&vWBÂw&÷W–B’ÀĞ¢Ö÷fU&w&ƒ¢†F—&V7F–öâ’ÓâÖ÷fTöæU&w&‚‡F&vWBÂF—&V7F–öâ’ÀĞ¢FövvÆT6öÆÆ6S¢‚’ÓâFövvÆUF&vWDw&÷W‡F&vWB’ÀĞ¢Æö6FTw&÷W¢‚’Óâ²–b‡F&vWBæw&÷W–B’Æö6FTw&÷W‡F&vWBæ6†FW$–BÂF&vWBæw&÷W–B“²ÒÀĞ¢&VæÖTw&÷W¢‚’Óâ°Ğ¢6öç7B6÷W&6RÒ&ö¦V7E&Vbæ7W'&VçBæ6†FW'2æf–æB‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒF&vWBæ6†FW$–B“°Ğ¢6öç7Bw&÷WÒ6÷W&6Sòæw&÷W2æf–æB‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒF&vWBæw&÷W–B“°Ğ¢–b‚w&÷WÇÂF&vWBæw&÷W–B’&WGW&â6WDæ÷F–6R‚~‹ùKŠ®jë^‰Ş{¸N[{.{¸şKˆŞZÙYÊ8"r“°Ğ¢&VæÖTw&÷W–ä6†FW"‡F&vWBæ6†FW$–BÂF&vWBæw&÷W–BÂw&÷WææÖRÂçVÆÂ“°Ğ¢ÒÀĞ¢Ö÷fTw&÷W¢†F—&V7F–öâ’Óâ²–b‡F&vWBæw&÷W–B’Ö÷fTw&÷W–ä6†FW"‡F&vWBæ6†FW$–BÂF&vWBæw&÷W–BÂF—&V7F–öâ“²ÒÀĞ¢&VÖ÷fTw&÷W¢‚’Óâ²–b‡F&vWBæw&÷W–B’&VÖ÷fTw&÷W–ä6†FW"‡F&vWBæ6†FW$–BÂF&vWBæw&÷W–B“²ÒÀĞ¢÷Väw&÷W×W6–3¢‚’Óâ°Ğ¢–b‚F&vWBæw&÷W–B’&WGW&ã°Ğ¢'Vä–ä6†FW"‡F&vWBæ6†FW$–BÂ‚’Óâ6WDw&÷W×W6–4F–Æör‡²6†FW$–C¢F&vWBæ6†FW$–BÂw&÷W–G3¢·F&vWBæw&÷W–BÒÂ76WD–C¢rrÒ’“°Ğ¢ÒÀĞ¢–ç6W'D–ÖvS¢‚’Óâ–ç6W'DÖVF––çFò‡F&vWBÂv–ÖvRr’ÀĞ¢–ç6W'Ef–FVó¢‚’Óâ–ç6W'DÖVF––çFò‡F&vWBÂwf–FVòr’ÀĞ¢–ç6W'DVF–ó¢‡v†W&R’Óâ–ç6W'DÖVF––çFò‡F&vWBÂvVF–òrÂv†W&R’ÀĞ¢–×÷'D76WC¢‚’Óâöä–×÷'D76WG2‚’ÀĞ¢Ç”76WC¢‡v†W&R’ÓâÇ”76WEFõF&vWB‡F&vWBÂv†W&R’ÀĞ¢6÷”76WC¢‚’Óâ6÷•F&vWD76WB‡F&vWB’ÀĞ¢7FT76WC¢‚’Óâ7FT–çFò‡F&vWB’ÀĞ¢&VÖ÷fT76WC¢‚’Óâ²6öç7B76WBÒ76WG2æf–æB‚†—FVÒ’Óâ—FVÒæ–BÓÓÒF&vWBæ76WD–B“²–b†76WB’FVÆWFT76WB†76WB“²ÒÀĞ¢Æ–W%£¢†F—&V7F–öâ’Óâ²–b‡F&vWBæÆ–W$–B’²6WE6VÆV7FVDÆ–W$–B‡F&vWBæÆ–W$–B“²Ö÷fTÆ–W"‡F&vWBæÆ–W$–BÓÓÒ6VÆV7FVDÆ–W#òæ–BòF—&V7F–öâ¢“²ÒÒÀĞ¢FövvÆTÆ–W$Æö6³¢‚’ÓâFövvÆTÆ–W$Æö6²‡F&vWB’ÀĞ¢GWÆ–6FTÆ–W#¢‚’ÓâGWÆ–6FUF&vWDÆ–W"‡F&vWB’ÀĞ¢&VÖ÷fTÆ–W#¢‚’Óâ²6WE6VÆV7FVDÆ–W$–B‡F&vWBæÆ–W$–BóòçVÆÂ“²&VÖ÷fTÆ–W"‚“²ÒÀĞ¢Ò“°Ğ Ğ¢6öç7B6÷”÷$7WBÒ7–æ2‡F&vWC¢ÖVçUF&vWBÂÖöFS¢v6÷’rÂv7WBr’Óâ°Ğ¢–b‚VF—F÷"’&WGW&ã°Ğ¢6öç7B6VÆV7F–öâÒVF—F÷"ç7FFRç6VÆV7F–öã°Ğ¢6öç7B†5FW‡BÒ6VÆV7F–öâæV×G’bbF&vWBæ¶–æBÓÒw&w&‚rbbF&vWBæ¶–æBÓÒv76WG2s°Ğ¢–b‡F&vWBæ¶–æBÓÓÒwFW‡BrÇÂ†5FW‡B’°Ğ¢–b‡6VÆV7F–öâæV×G’’&WGW&â6WDæ÷F–6R‚~k*iÈ˜KŠŞih~ZÙ~8"r“°Ğ¢6öç7B6Æ–6RÒ6VÆV7F–öâæ6öçFVçB‚“°Ğ¢6öç7B–ÆöC¢7F÷'”6Æ—&ö&BÒ²fW'6–öã¢Â&ö¦V7D–C¢&ö¦V7E&Vbæ7W'&VçBæ–BÂ¶–æC¢wFW‡BrÂfÇVS¢6Æ–6RçFô¥4ôâ‚’Ó°Ğ¢v—Bw&—FT6Æ—&ö&B‡–ÆöBÂVF—F÷"ç7FFRæFö2çFW‡D&WGvVVâ‡6VÆV7F–öâæg&öÒÂ6VÆV7F–öâçFòÂuÆâr’“°Ğ¢–b†ÖöFRÓÓÒv7WBr’VF—F÷"æ6†–â‚’æfö7W2‚’æFVÆWFU6VÆV7F–öâ‚’ç'Vâ‚“°Ğ¢6WDæ÷F–6R†ÖöFRÓÓÒv7WBrò~[{.Xš®Xˆ~˜KŠŞih~ZÙ~8"r¢~[{.ZHŞX‹n˜KŠŞih~ZÙ~8"r“°Ğ¢&WGW&ã°Ğ¢ĞĞ¢–b‡F&vWBæ¶–æBÓÓÒv76WBr’&WGW&â6÷•F&vWD76WB‡F&vWB“°Ğ¢–b‡F&vWBæ¶–æBÓÓÒvÆ–W"r’&WGW&âGWÆ–6FUF&vWDÆ–W"‡F&vWB“°Ğ¢6öç7B&w&„–BÒF&vWBç&w&„–Bóò&w&„öd6&WB‚“°Ğ¢–b‚&w&„–B’&WGW&â6WDæ÷F–6R‚~k*iÈXúşZHŞX‹ny¨NjÚ>ih~jë^‰Ş8"r“°Ğ¢6öç7B&Æö6²ÒFö7VÖVçBæ&Æö6·2æf–æB‚†—FVÓ¢ç’’Óâ—FVÒæ–BÓÓÒ&w&„–B“°Ğ¢–b‚&Æö6²’&WGW&â6WDæ÷F–6R‚~‹ùKŠ®jÚ>ih~jë^‰Ş[{.XùXÉnûÈÎŠû~˜xŞik˜hº8"r“°Ğ¢6öç7B–ÆöC¢7F÷'”6Æ—&ö&BÒ²fW'6–öã¢Â&ö¦V7D–C¢&ö¦V7E&Vbæ7W'&VçBæ–BÂ¶–æC¢w&w&‚rÂfÇVS¢¥4ôâç'6R„¥4ôâç7G&–æv–g’†&Æö6²’’Ó°Ğ¢v—Bw&—FT6Æ—&ö&B‡–ÆöBÂ6Æ—&ñZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{˜\™^
-^[ØY
-JNÃBˆYˆ
-[ÙHOOH	Øİ]	ÊH[]QY]Ü”\˜YÜ˜\
-Y]Ü‹\˜YÜ˜\Y
-NÃBˆÙ]›İXÙJ[ÙHOOH	Øİ]	ÈÈ	ùmì¹bj¹b!ù«i9«­xà ‰Èˆ	ùmì¹i#yb-¹«i9«­{ï"9d*ù¯%9aî¹/èy kûï"xà ‰ÊNÃBˆNÃBƒBˆÛÛœİÛÜU\™Ù]\ÜÙ]H\Ş[˜È
-\™Ù]ˆY[U\™Ù]
-HOˆÃBˆYˆ
-]\™Ù]˜\ÜÙ]Y
-H™]\›ÃBˆÛÛœİ^[ØYˆİÜPÛ\›Ø\™HÈ™\œÚ[ÛˆK›Ú™XİYˆ›Ú™Xİ™Y‹˜İ\œ™[šYÚ[™ˆ	Ø\ÜÙ]	Ë˜[YNˆÈ\ÜÙ]Yˆ\™Ù]˜\ÜÙ]YHNÃBˆ]ØZ]Üš]PÛ\›Ø\™
-^[ØY	ÉÊNÃBˆÙ]›İXÙJ	ùmì¹i#yb-¹í(9§d;ï&ùcêº ïyg*9d#9. 9méyê"ùa¡yì¦:--9/oùå*8à ‰ÊNÃBˆNÃBƒBˆÛÛœİ\İR[ÈH\Ş[˜È
-\™Ù]ˆY[U\™Ù]
-HOˆÃBˆYˆ
-YY]ÜŠH™]\›ˆÙ]›İXÙJ	ù«hù¥¡ùl&¹§*¹l,yîê¸à ‰ÊNÃBˆÛÛœİ›Ú™XİYH›Ú™Xİ™Y‹˜İ\œ™[šYÃBˆÛÛœİÚ\\’YH›Ú™Xİ™Y‹˜İ\œ™[˜Xİ]™PÚ\\’YÃBˆ]Û\ˆÈ^ˆİš[™ÎÈ^[ØYˆİÜPÛ\›Ø\™[NÃBˆHÈÛ\H]ØZ]™XYÛ\›Ø\™
+        setGroupMusic(payload.assetId, group.paragraphIds);
+      } catch (error) { setNotice(error instanceof Error ? error.message : 'éŸ³é¢‘æ‹–åŠ¨æ— æ•ˆã€‚'); }
+      return;
+    }
+    acceptParagraphDrop(event, { type: 'group', groupId });
+  };
 
-NÈCBˆØ]Ú
-\œ›ÜŠHÈ™]\›ˆÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	ùbjº--9§oùa¡yk®y¥è9¥b8à ‰ÊNÈCBˆYˆ
-›Ú™Xİ™Y‹˜İ\œ™[šYOOH›Ú™XİY›Ú™Xİ™Y‹˜İ\œ™[˜Xİ]™PÚ\\’YOOHÚ\\’Y
-H™]\›ˆÙ]›İXÙJ	ùméyê"ù¢%¹êè:" ¹mì¹b!ù£h»ï#9ì¦:--9mì¹cå¹­¢8à ‰ÊNÃBˆÛÛœİ\˜YÜ˜\YH\™Ù]œ\˜YÜ˜\YÏÈ\˜YÜ˜\ÙØ\™]
+  /* â”€â”€ å››åŒºå³é”®èœå•ï¼šå•ä¸€ä¸Šä¸‹æ–‡å…¥å£ã€å•ä¸€å‘½ä»¤å®šä¹‰ â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€â”€ */
+  type OpenMenu = {
+    target: MenuTarget; x: number; y: number; commands: MenuCommand[];
+    title: string; focus: HTMLElement | null; facts: MenuFacts;
+  };
+  const [openMenu, setOpenMenu] = useState<OpenMenu | null>(null);
+  const menuRef = useRef<OpenMenu | null>(null);
+  menuRef.current = openMenu;
+  const editorMenuRef = useRef<{ anchor: number; head: number } | null>(null);
 
-NÃBˆYˆ
-\\˜YÜ˜\Y\\˜YÜ˜\ÜÚ][ÛŠY]Ü‹\˜YÜ˜\Y
-JH™]\›ˆÙ]›İXÙJ	ùì¦:--9æë¹¨!ùmì¹.#ykf9g*;ï#:+íúaãy¥¬9cìúe+º`"y¢êxà ‰ÊNÃBˆYˆ
-Û\œ^[ØY
-HÚXÚĞÛ\›Ø\™™Y™\™[˜Ù\ÊÛ\œ^[ØY›Ú™Xİ™Y‹˜İ\œ™[
-NÃBˆÛÛœİÙ[Xİ[ÛˆHY]Ü“Y[T™Y‹˜İ\œ™[ÏÈ
-\™Ù]šÚ[™OOH	İ^	ÈÈÈ[˜ÚÜˆY]Ü‹œİ]KœÙ[Xİ[Û‹˜[˜ÚÜ‹XYˆY]Ü‹œİ]KœÙ[Xİ[Û‹šXYHˆ[™Yš[™Y
-NÃBˆ\İQY]ÜÛ\›Ø\™
-Y]Ü‹Û\œ^[ØYÛ\^\˜YÜ˜\YÙ[Xİ[ÛŠNÃBˆÙ]›İXÙJ	ùmì¹ì¦:--;ï&ùcëùå*9¤©:e 9 h¹i#xà ‰ÊNÃBˆNÃBƒBˆÛÛœİ™[[İ™T\˜YÜ˜\\™Ù]H
-\™Ù]ˆY[U\™Ù]
-HOˆÃBˆYˆ
-YY]ÜŠH™]\›ÃBˆÛÛœİ\˜YÜ˜\YH\™Ù]œ\˜YÜ˜\YÏÈ\˜YÜ˜\ÙØ\™]
+  const readClipboard = async () => {
+    const raw = await window.storyWorkbench.readClipboard();
+    const payload = raw?.payload ? validateClipboard(raw.payload) : null;
+    return { text: typeof raw?.text === 'string' ? raw.text : '', payload };
+  };
+  const writeClipboard = async (payload: StoryClipboard | null, text = '') => {
+    await window.storyWorkbench.writeClipboard({ text, payload });
+  };
 
-NÃBˆYˆ
-\\˜YÜ˜\Y
-H™]\›ˆÙ]›İXÙJ	ù¬¨y§"ycëùb(:fi9æ¡9«hù¥¡ù«­z$/xà ‰ÊNÃBˆ[]QY]Ü”\˜YÜ˜\
-Y]Ü‹\˜YÜ˜\Y
-NÃBˆÙ]›İXÙJ	ùmì¹b(:fi9«i9«­{ï&ùcëùå*9¤©:e 9 h¹i#xà ‰ÊNÃBˆNÃBƒBˆÛÛœİ\SY[S[ÙHH
-\™Ù]ˆY[U\™Ù][ÙNˆ	ÙX[ÙİYIÈ	Ùœ™YIÊHOˆÃBˆYˆ
-YY]ÜŠH™]\›ÃBˆÛÛœİ\˜YÜ˜\YH\™Ù]œ\˜YÜ˜\YÏÈ\˜YÜ˜\ÙØ\™]
+  const paragraphOfCaret = () => {
+    if (!editor) return null;
+    const { selection } = editor.state;
+    const id = selection.$from.parent?.attrs?.paragraphId;
+    return id ? String(id) : null;
+  };
+  const groupIdOfParagraph = (paragraphId: string | undefined) => {
+    if (!paragraphId) return null;
+    const block = document.blocks.find((item: any) => item.id === paragraphId);
+    const own = block?.groupId ?? null;
+    if (own) return String(own);
+    const group = chapter.groups.find((item: any) => item.paragraphIds.includes(paragraphId));
+    return group ? group.id : null;
+  };
+  const indexOfParagraph = (paragraphId: string | undefined) => document.blocks.findIndex((block: any) => block.id === paragraphId);
 
-NÃBˆÛÛœİİYHH\˜YÜ˜\YÈİ\œ™[[‹™š[™
+  const collectFacts = (target: MenuTarget, hasTextSelection: boolean, canPaste: boolean): MenuFacts => {
+    const paragraphIndex = indexOfParagraph(target.paragraphId);
+    const layer = target.layerId ? selectedLayers.find((item: any) => item.id === target.layerId) : null;
+    const sorted = [...selectedLayers].sort((a: any, b: any) => a.zIndex - b.zIndex);
+    const layerOrder = layer ? sorted.findIndex((item: any) => item.id === layer.id) : -1;
+    const asset = target.assetId ? assets.find((item: any) => item.id === target.assetId) : null;
+    /* æ®µè½ç»„ç›®å½•é‡Œçš„ç»„å¯èƒ½å±äºåˆ«çš„ç« èŠ‚ï¼Œäº‹å®è¦æŒ‰é‚£ä¸€ç« æ¥ç®— */
+    const targetChapter = projectRef.current.chapters.find((item: any) => item.id === target.chapterId) ?? null;
+    const targetGroup = target.groupId ? (targetChapter?.groups ?? []).find((item: any) => item.id === target.groupId) ?? null : null;
+    const targetGroups = targetChapter
+      ? [...targetChapter.groups].sort((a: any, b: any) => targetChapter.document.blocks.findIndex((block: any) => block.id === a.paragraphIds[0]) - targetChapter.document.blocks.findIndex((block: any) => block.id === b.paragraphIds[0]))
+      : [];
+    return {
+      canUndo: !!editor?.can().undo(),
+      canRedo: !!editor?.can().redo(),
+      hasTextSelection,
+      paragraphIndex,
+      paragraphCount: document.blocks.length,
+      groupCount: targetChapter?.groups.length ?? 0,
+      collapsed: !!targetGroup?.collapsed,
+      inGroup: !!groupIdOfParagraph(target.paragraphId ?? paragraphOfCaret() ?? undefined),
+      groupAtTop: targetGroup ? targetGroups[0]?.id === targetGroup.id : false,
+      groupAtBottom: targetGroup ? targetGroups.at(-1)?.id === targetGroup.id : false,
+      hasAudioAsset: assets.some((item: any) => item.kind === 'audio'),
+      mode: selectedCue?.settings.mode ?? null,
+      hasSpeaker: !!selectedCue?.settings.speaker,
+      layerLocked: !!layer?.locked,
+      layerAtTop: layerOrder >= 0 && layerOrder === sorted.length - 1,
+      layerAtBottom: layerOrder === 0,
+      assetKind: asset?.kind ?? null,
+      assetReferenced: asset ? assetUsages(projectRef.current, asset.id).length > 0 : false,
+      canPaste,
+    };
+  };
 
-][Nˆ[JHOˆ][Kœ\˜YÜ˜\YOOH\˜YÜ˜\Y
-Hˆ[ÃBˆÛÛœİİYRYHİYOËšYÏÈÙ[XİYİYRYÃBˆYˆ
-XİYRY
-H™]\›ˆÙ]›İXÙJ	ú/æy. 9«­z/æ9¬¨y§"y¯%9aî¹ceya`ûï#:+íùab:/¤ùaiy«hù¥¡ù¥¡ùkeøà ‰ÊNÃBˆÛÛœİİ\œ™[Hİ\œ™[[‹™š[™
+  /** æŠŠæ‰§è¡Œå…¥å£æ”¶æ•›åˆ°ä¸€å¤„ï¼Œèœå•ä¸ Ctrl+C/X/V å…±ç”¨ */
+  const runMenuAction = async (command: MenuCommand, focus: Element | null) => {
+    const target = focus instanceof HTMLElement ? focus : null;
+    setOpenMenu(null);
+    if (target?.isConnected) requestAnimationFrame(() => target.focus());
+    try { await command.run?.(); }
+    catch (error) { setNotice(error instanceof Error ? error.message : 'æ“ä½œæœªå®Œæˆã€‚'); }
+  };
 
-][Nˆ[JHOˆ][KšYOOHİYRY
-OËœÙ][™ÜÈÏÈY˜][Ù][™ÜÊ
-NÃBˆÛÛœİ™\İ[H\S[ÙJY]Ü‹İYRYİ\œ™[[ÙJNÃBˆYˆ
-\™\İ[›ÚÊH™]\›ˆÙ]›İXÙJ™\İ[›Y\ÜØYÙHÏÈ	ù§*º ïyn¥9å*9¯%9aî¹ª(yo#øà ‰ÊNÃBˆYˆ
-™\İ[˜İYRY
-HÙ]Ù[XİYİYRY
-™\İ[˜İYRY
-NÃBˆÙ]›İXÙJ[ÙHOOH	Ùœ™YIÈÈ	ùmìº/k9£h¹..º!ê¹å,y¯%9aî¸à ‰Èˆ	ùmìº/k9£h¹..¹kîz+çxà ‰ÊNÃBˆNÃBƒBˆÛÛœİ[İ™SÛ™T\˜YÜ˜\ÑÜ›İ\H
-\™Ù]ˆY[U\™Ù]Ü›İ\Yˆİš[™ÊHOˆÃBˆÛÛœİ\˜YÜ˜\YH\™Ù]œ\˜YÜ˜\YÃBˆYˆ
-\\˜YÜ˜\Y
-H™]\›ˆÙ]›İXÙJ	ù¬¨y§"ycëùéîùbª9æ¡9«hù¥¡ù«­z$/xà ‰ÊNÃBˆHÃBˆÛÛœİİ\œ™[H›Ú™Xİ™Y‹˜İ\œ™[ÃBˆÛÛ[Z]Ú\\”İXİ\™J\]PÚ\\Šİ\œ™[İ\œ™[˜Xİ]™PÚ\\’Y
-˜[YNˆ[JHOˆ[İ™T\˜YÜ˜\Ê˜[YKÜ\˜YÜ˜\YKÈ\Nˆ	ÙÜ›İ\	ËÜ›İ\YJJJNÃBˆÙ]Ù[XİYÜ›İ\Y
-Ü›İ\Y
-NÃBˆÙ]Ù[XİYÜ›İ\YÊÙÜ›İ\YJNÃBˆÙ]Ù[XİY\˜YÜ˜\Ê×JNÃBˆÙ]›İXÙJ	ùmì¹¢¢¹cìúe+º/æy. 9«­yéîùaiyæë¹¨!ùîá8à ‰ÊNÃBˆHØ]Ú
-\œ›ÜŠHÈÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	ù§*º ïyéîùaiyîá8à ‰ÊNÈCBˆNÃBƒBˆÛÛœİ[İ™SÛ™T\˜YÜ˜\H
-\™Ù]ˆY[U\™Ù]\™Xİ[ÛˆLHJHOˆÃBˆÛÛœİ\˜YÜ˜\YH\™Ù]œ\˜YÜ˜\YÃBˆYˆ
-\\˜YÜ˜\Y
-H™]\›ˆÙ]›İXÙJ	ù¬¨y§"ycëùéîùbª9æ¡9«hù¥¡ù«­z$/xà ‰ÊNÃBˆHÃBˆÛÛœİİ\œ™[H›Ú™Xİ™Y‹˜İ\œ™[ÃBˆÛÛœİ[İ™YH[İ™T\˜YÜ˜\ÊXİ]™PÚ\\Šİ\œ™[
-KÜ\˜YÜ˜\YKÈ\Nˆ	Ü\˜YÜ˜\	Ë\˜YÜ˜\YÜÚ][Ûˆ\™Xİ[ÛˆÈ	Ø™Y›Ü™IÈˆ	ØY\‰ÈJNÃBˆYˆ
-[İ™YOOHXİ]™PÚ\\Šİ\œ™[
-JH™]\›ˆÙ]›İXÙJ	ù/cyïk¹§*¹cæ;ï#9«hù¥¡úhn¹n£ùmì¹/çyåfxà ‰ÊNÃBˆÛÛ[Z]Ú\\”İXİ\™J\]PÚ\\Šİ\œ™[İ\œ™[˜Xİ]™PÚ\\’Y
+  const openWorkspaceMenu = (target: MenuTarget, event: { clientX: number; clientY: number; preventDefault(): void; stopPropagation(): void }, focus: Element | null, hasTextSelection = false) => {
+    event.preventDefault();
+    event.stopPropagation();
+    /* èœå•å·²æ‰“å¼€æ—¶å†ç‚¹ä¸€æ¬¡å³é”®ï¼å–æ¶ˆï¼Œä¸å¿…æŒ‰ ESCï¼›å…³é—­åæŠŠç„¦ç‚¹è¿˜ç»™åŸæ¥çš„å¯¹è±¡ */
+    const current = menuRef.current;
+    if (current) {
+      setOpenMenu(null);
+      const focus = current.focus;
+      if (focus?.isConnected) requestAnimationFrame(() => focus.focus());
+      return;
+    }
+    const live = projectRef.current;
+    if (live.id !== target.projectId) return setNotice('å·¥ç¨‹å·²åˆ‡æ¢ï¼Œè¯·åœ¨å½“å‰å¯¹è±¡ä¸Šé‡æ–°å³é”®ã€‚');
+    /* æ®µè½ç»„ç›®å½•é‡Œçš„ç»„å¯èƒ½å±äºåˆ«çš„ç« èŠ‚ï¼šç»„çº§å‘½ä»¤ä¼šè‡ªå·±åˆ‡åˆ°é‚£ä¸€ç« å†æ‰§è¡Œã€‚ */
+    if (live.activeChapterId !== target.chapterId && target.kind !== 'group') return setNotice('å·¥ç¨‹æˆ–ç« èŠ‚å·²åˆ‡æ¢ï¼Œè¯·åœ¨å½“å‰å¯¹è±¡ä¸Šé‡æ–°å³é”®ã€‚');
+    const canPaste = true;
+    const facts = collectFacts(target, hasTextSelection, canPaste);
+    const commands = buildWorkspaceMenu(target, facts, menuActions(target), orderedGroups.map((group: any) => ({ id: group.id, name: group.name })));
+    const focusElement = focus instanceof HTMLElement ? focus : null;
+    setOpenMenu({ target, x: event.clientX, y: event.clientY, commands, title: menuTitle(target, facts), focus: focusElement, facts });
+  };
 
-HOˆ[İ™Y
-JNÃBˆÙ]›İXÙJ\™Xİ[ÛˆÈ	ùmì¹."¹éîù«i9«­xà ‰Èˆ	ùmì¹."ùéîù«i9«­xà ‰ÊNÃBˆHØ]Ú
-\œ›ÜŠHÈÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	ù«­z$/yéîùbª9i,z-){ï#9méyê"ù§*¹¦í9¥.xà ‰ÊNÈCBˆNÃBƒBˆÛÛœİÙÙÛU\™Ù]Ü›İ\H
-\™Ù]ˆY[U\™Ù]
-HOˆÃBˆÛÛœİÜ›İ\YH\™Ù]™Ü›İ\YÏÈÜ›İ\YÙ”\˜YÜ˜\
-\™Ù]œ\˜YÜ˜\Y
-NÃBˆYˆ
-YÜ›İ\Y
-H™]\›ˆÙ]›İXÙJ	ú/æy. 9«­z/æ9¬¨y§"yb¨9aiy«­z$/yîá8à ‰ÊNÃBˆÛÛœİÚ\\’YH\™Ù]˜Ú\\’YÃBˆÛÛœİÛİ\˜ÙHH›Ú™Xİ™Y‹˜İ\œ™[˜Ú\\œË™š[™
+  const menuActions = (target: MenuTarget): MenuActions => ({
+    undo: () => editor?.chain().focus().undo().run(),
+    redo: () => editor?.chain().focus().redo().run(),
+    cut: () => copyOrCut(target, 'cut'),
+    copy: () => copyOrCut(target, 'copy'),
+    paste: () => pasteInto(target),
+    deleteSelection: () => editor?.chain().focus().deleteSelection().run(),
+    deleteParagraph: () => removeParagraphTarget(target),
+    convert: (mode) => applyMenuMode(target, mode),
+    moveToGroup: (groupId) => moveOneParagraphToGroup(target, groupId),
+    moveParagraph: (direction) => moveOneParagraph(target, direction),
+    toggleCollapse: () => toggleTargetGroup(target),
+    locateGroup: () => { if (target.groupId) locateGroup(target.chapterId, target.groupId); },
+    renameGroup: () => {
+      const source = projectRef.current.chapters.find((item: any) => item.id === target.chapterId);
+      const group = source?.groups.find((item: any) => item.id === target.groupId);
+      if (!group || !target.groupId) return setNotice('è¿™ä¸ªæ®µè½ç»„å·²ç»ä¸å­˜åœ¨ã€‚');
+      renameGroupInChapter(target.chapterId, target.groupId, group.name, null);
+    },
+    moveGroup: (direction) => { if (target.groupId) moveGroupInChapter(target.chapterId, target.groupId, direction); },
+    removeGroup: () => { if (target.groupId) removeGroupInChapter(target.chapterId, target.groupId); },
+    openGroupMusic: () => {
+      if (!target.groupId) return;
+      runInChapter(target.chapterId, () => setGroupMusicDialog({ chapterId: target.chapterId, groupIds: [target.groupId!], assetId: '' }));
+    },
+    insertImage: () => insertMediaInto(target, 'image'),
+    insertVideo: () => insertMediaInto(target, 'video'),
+    insertAudio: (where) => insertMediaInto(target, 'audio', where),
+    importAsset: () => onImportAssets(),
+    applyAsset: (where) => applyAssetToTarget(target, where),
+    copyAsset: () => copyTargetAsset(target),
+    pasteAsset: () => pasteInto(target),
+    removeAsset: () => { const asset = assets.find((item) => item.id === target.assetId); if (asset) deleteAsset(asset); },
+    layerZ: (direction) => { if (target.layerId) { setSelectedLayerId(target.layerId); moveLayer(target.layerId === selectedLayer?.id ? direction : 0); } },
+    toggleLayerLock: () => toggleLayerLock(target),
+    duplicateLayer: () => duplicateTargetLayer(target),
+    removeLayer: () => { setSelectedLayerId(target.layerId ?? null); removeLayer(); },
+  });
 
-][Nˆ[JHOˆ][KšYOOHÚ\\’Y
-NÃBˆÛÛœİÜ›İ\HÛİ\˜ÙOË™Ü›İ\Ë™š[™
+  const copyOrCut = async (target: MenuTarget, mode: 'copy' | 'cut') => {
+    if (!editor) return;
+    const selection = editor.state.selection;
+    const hasText = !selection.empty && target.kind !== 'paragraph' && target.kind !== 'assets';
+    if (target.kind === 'text' || hasText) {
+      if (selection.empty) return setNotice('æ²¡æœ‰é€‰ä¸­æ–‡å­—ã€‚');
+      const slice = selection.content();
+      const payload: StoryClipboard = { version: 1, projectId: projectRef.current.id, kind: 'text', value: slice.toJSON() };
+      await writeClipboard(payload, editor.state.doc.textBetween(selection.from, selection.to, '\n'));
+      if (mode === 'cut') editor.chain().focus().deleteSelection().run();
+      setNotice(mode === 'cut' ? 'å·²å‰ªåˆ‡é€‰ä¸­æ–‡å­—ã€‚' : 'å·²å¤åˆ¶é€‰ä¸­æ–‡å­—ã€‚');
+      return;
+    }
+    if (target.kind === 'asset') return copyTargetAsset(target);
+    if (target.kind === 'layer') return duplicateTargetLayer(target);
+    const paragraphId = target.paragraphId ?? paragraphOfCaret();
+    if (!paragraphId) return setNotice('æ²¡æœ‰å¯å¤åˆ¶çš„æ­£æ–‡æ®µè½ã€‚');
+    const block = document.blocks.find((item: any) => item.id === paragraphId);
+    if (!block) return setNotice('è¿™ä¸ªæ­£æ–‡æ®µè½å·²å˜åŒ–ï¼Œè¯·é‡æ–°é€‰æ‹©ã€‚');
+    const payload: StoryClipboard = { version: 1, projectId: projectRef.current.id, kind: 'paragraph', value: JSON.parse(JSON.stringify(block)) };
+    await writeClipboard(payload, clipboardText(payload));
+    if (mode === 'cut') deleteEditorParagraph(editor, paragraphId);
+    setNotice(mode === 'cut' ? 'å·²å‰ªåˆ‡æ­¤æ®µã€‚' : 'å·²å¤åˆ¶æ­¤æ®µï¼ˆå«æ¼”å‡ºä¿¡æ¯ï¼‰ã€‚');
+  };
 
-][Nˆ[JHOˆ][KšYOOHÜ›İ\Y
-NÃBˆ[’[Ú\\ŠÚ\\’Y
+  const copyTargetAsset = async (target: MenuTarget) => {
+    if (!target.assetId) return;
+    const payload: StoryClipboard = { version: 1, projectId: projectRef.current.id, kind: 'asset', value: { assetId: target.assetId } };
+    await writeClipboard(payload, '');
+    setNotice('å·²å¤åˆ¶ç´ æï¼›åªèƒ½åœ¨åŒä¸€å·¥ç¨‹å†…ç²˜è´´ä½¿ç”¨ã€‚');
+  };
 
-HOˆÃBˆHÃBˆÛÛ[Z]Ú\\”İXİ\™J\]PÚ\\Š›Ú™Xİ™Y‹˜İ\œ™[Ú\\’Y
-˜[YNˆ[JHOˆÙEj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^tGroupCollapsed(value, groupId, !group?.collapsed)));
+  const pasteInto = async (target: MenuTarget) => {
+    if (!editor) return setNotice('æ­£æ–‡å°šæœªå°±ç»ªã€‚');
+    const projectId = projectRef.current.id;
+    const chapterId = projectRef.current.activeChapterId;
+    let clip: { text: string; payload: StoryClipboard | null };
+    try { clip = await readClipboard(); }
+    catch (error) { return setNotice(error instanceof Error ? error.message : 'å‰ªè´´æ¿å†…å®¹æ— æ•ˆã€‚'); }
+    if (projectRef.current.id !== projectId || projectRef.current.activeChapterId !== chapterId) return setNotice('å·¥ç¨‹æˆ–ç« èŠ‚å·²åˆ‡æ¢ï¼Œç²˜è´´å·²å–æ¶ˆã€‚');
+    const paragraphId = target.paragraphId ?? paragraphOfCaret();
+    if (!paragraphId || !paragraphPosition(editor, paragraphId)) return setNotice('ç²˜è´´ç›®æ ‡å·²ä¸å­˜åœ¨ï¼Œè¯·é‡æ–°å³é”®é€‰æ‹©ã€‚');
+    if (clip.payload) checkClipboardReferences(clip.payload, projectRef.current);
+    const selection = editorMenuRef.current ?? (target.kind === 'text' ? { anchor: editor.state.selection.anchor, head: editor.state.selection.head } : undefined);
+    pasteEditorClipboard(editor, clip.payload, clip.text, paragraphId, selection);
+    setNotice('å·²ç²˜è´´ï¼›å¯ç”¨æ’¤é”€æ¢å¤ã€‚');
+  };
+
+  const removeParagraphTarget = (target: MenuTarget) => {
+    if (!editor) return;
+    const paragraphId = target.paragraphId ?? paragraphOfCaret();
+    if (!paragraphId) return setNotice('æ²¡æœ‰å¯åˆ é™¤çš„æ­£æ–‡æ®µè½ã€‚');
+    deleteEditorParagraph(editor, paragraphId);
+    setNotice('å·²åˆ é™¤æ­¤æ®µï¼›å¯ç”¨æ’¤é”€æ¢å¤ã€‚');
+  };
+
+  const applyMenuMode = (target: MenuTarget, mode: 'dialogue' | 'free') => {
+    if (!editor) return;
+    const paragraphId = target.paragraphId ?? paragraphOfCaret();
+    const cue = paragraphId ? currentPlan.find((item: any) => item.paragraphId === paragraphId) : null;
+    const cueId = cue?.id ?? selectedCueId;
+    if (!cueId) return setNotice('è¿™ä¸€æ®µè¿˜æ²¡æœ‰æ¼”å‡ºå•å…ƒï¼Œè¯·å…ˆè¾“å…¥æ­£æ–‡æ–‡å­—ã€‚');
+    const current = currentPlan.find((item: any) => item.id === cueId)?.settings ?? defaultSettings();
+    const result = applyMode(editor, cueId, current, mode);
+    if (!result.ok) return setNotice(result.message ?? 'æœªèƒ½åº”ç”¨æ¼”å‡ºæ¨¡å¼ã€‚');
+    if (result.cueId) setSelectedCueId(result.cueId);
+    setNotice(mode === 'free' ? 'å·²è½¬æ¢ä¸ºè‡ªç”±æ¼”å‡ºã€‚' : 'å·²è½¬æ¢ä¸ºå¯¹è¯ã€‚');
+  };
+
+  const moveOneParagraphToGroup = (target: MenuTarget, groupId: string) => {
+    const paragraphId = target.paragraphId;
+    if (!paragraphId) return setNotice('æ²¡æœ‰å¯ç§»åŠ¨çš„æ­£æ–‡æ®µè½ã€‚');
+    try {
+      const current = projectRef.current;
+      commitChapterStructure(updateChapter(current, current.activeChapterId, (value: any) => moveParagraphs(value, [paragraphId], { type: 'group', groupId })));
+      setSelectedGroupId(groupId);
+      setSelectedGroupIds([groupId]);
+      setSelectedParagraphs([]);
+      setNotice('å·²æŠŠå³é”®è¿™ä¸€æ®µç§»å…¥ç›®æ ‡ç»„ã€‚');
+    } catch (error) { setNotice(error instanceof Error ? error.message : 'æœªèƒ½ç§»å…¥ç»„ã€‚'); }
+  };
+
+  const moveOneParagraph = (target: MenuTarget, direction: -1 | 1) => {
+    const paragraphId = target.paragraphId;
+    if (!paragraphId) return setNotice('æ²¡æœ‰å¯ç§»åŠ¨çš„æ­£æ–‡æ®µè½ã€‚');
+    try {
+      const current = projectRef.current;
+      const moved = moveParagraphs(activeChapter(current), [paragraphId], { type: 'paragraph', paragraphId, position: direction < 0 ? 'before' : 'after' });
+      if (moved === activeChapter(current)) return setNotice('ä½ç½®æœªå˜ï¼Œæ­£æ–‡é¡ºåºå·²ä¿ç•™ã€‚');
+      commitChapterStructure(updateChapter(current, current.activeChapterId, () => moved));
+      setNotice(direction < 0 ? 'å·²ä¸Šç§»æ­¤æ®µã€‚' : 'å·²ä¸‹ç§»æ­¤æ®µã€‚');
+    } catch (error) { setNotice(error instanceof Error ? error.message : 'æ®µè½ç§»åŠ¨å¤±è´¥ï¼Œå·¥ç¨‹æœªæ›´æ”¹ã€‚'); }
+  };
+
+  const toggleTargetGroup = (target: MenuTarget) => {
+    const groupId = target.groupId ?? groupIdOfParagraph(target.paragraphId);
+    if (!groupId) return setNotice('è¿™ä¸€æ®µè¿˜æ²¡æœ‰åŠ å…¥æ®µè½ç»„ã€‚');
+    const chapterId = target.chapterId;
+    const source = projectRef.current.chapters.find((item: any) => item.id === chapterId);
+    const group = source?.groups.find((item: any) => item.id === groupId);
+    runInChapter(chapterId, () => {
+      try {
+        commitChapterStructure(updateChapter(projectRef.current, chapterId, (value: any) => setGroupCollapsed(value, groupId, !group?.collapsed)));
         setNotice(group?.collapsed ? 'å·²å±•å¼€æ­¤ç»„ã€‚' : 'å·²æŠ˜å æ­¤ç»„ï¼Œæ­£æ–‡ä¸æ’­æ”¾ä¸å˜ã€‚');
       } catch (error) { setNotice(error instanceof Error ? error.message : 'æŠ˜å æœªæäº¤ã€‚'); }
     });
@@ -906,108 +1682,278 @@ HOˆÃBˆHÃBˆÛÛ[Z]Ú\\”İXİ\™J\]PÚ\\Š›Ú™Xİ™Y‹˜İ\œ
         editorMenuRef.current = { anchor: from, head: to };
       } else {
         view.dispatch(view.state.tr.setSelection(TextSelection.create(view.state.doc, at.pos)));
-        editorMenuRef.current = { anchor:¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±x…Ğ¹Á½Ì°¡•…è…Ğ¹Á½Ìôì4(€€€€€ô4(€€€ô4(€€€½¹ÍĞÍ•±•Ñ¥½¸€ô•‘¥Ñ½È¹ÍÑ…Ñ”¹Í•±•Ñ¥½¸ì4(€€€½¹ÍĞ¡…ÍQ•áÑM•±•Ñ¥½¸€ô€…Í•±•Ñ¥½¸¹•µÁÑäì4(€€€½¹ÍĞ¥¹A…É…É…Á €ôÍ•±•Ñ¥½¸¸‘™É½´¹Á…É•¹Ğü¹ÑåÁ”ü¹¹…µ”€ôôô€Á…É…É…Á œì4(€€€½¹ÍĞÁ…É…É…Á¡%€ô¥¹A…É…É…Á €üMÑÉ¥¹œ¡Í•±•Ñ¥½¸¸‘™É½´¹Á…É•¹Ğ¹…ÑÑÉÌ¹Á…É…É…Á¡%€üü€œœ¤€èÕ¹‘•™¥¹•ì4(€€€½¹ÍĞ­¥¹è5•¹ÕQ…É•Ñl­¥¹t€ô¡…ÍQ•áÑM•±•Ñ¥½¸€ü€Ñ•áĞœ€è€Á…É…É…Á œì4(€€€½Á•¹]½É­ÍÁ…•5•¹Ô¡ì­¥¹°ÁÉ½©•Ñ%èÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹¥°¡…ÁÑ•É%èÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°Á…É…É…Á¡%èÁ…É…É…Á¡%ñğÕ¹‘•™¥¹•°É½ÕÁ%èÉ½ÕÁ%‘=™A…É…É…Á ¡Á…É…É…Á¡%¤€üüÕ¹‘•™¥¹•ô°•Ù•¹Ğ°•‘¥Ñ½É=4°¡…ÍQ•áÑM•±•Ñ¥½¸¤ì4(€ôì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€½¹ÍĞ¡…¹‘±•È€ô€¡•Ù•¹ĞèÙ•¹Ğ¤€ôøì4(€€€€€½¹ÍĞ‘•Ñ…¥°€ô€¡•Ù•¹Ğ…ÌÕÍÑ½µÙ•¹Ğ¤¹‘•Ñ…¥°ì4(€€€€€½¹ÍĞÉ½ÕÁ%€ô‘•Ñ…¥°ü¹É½ÕÁ%ì4(€€€€€¥˜€ …É½ÕÁ%¤É•ÑÕÉ¸ì4(€€€€€ÑÉäì4(€€€€€€€½µµ¥Ñ¡…ÁÑ•ÉMÑÉÕÑÕÉ”¡ÕÁ‘…Ñ•¡…ÁÑ•È¡ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ°ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°€¡Ù…±Õ”è…¹ä¤€ôøÍ•ÑÉ½ÕÁ½±±…ÁÍ•¡Ù…±Õ”°É½ÕÁ%°€…¡…ÁÑ•È¹É½ÕÁÌ¹™¥¹ ¡¥Ñ•´è…¹ä¤€ôø¥Ñ•´¹¥€ôôôÉ½ÕÁ%¤ü¹½±±…ÁÍ•¤¤¤ì4(€€€€€ô…Ñ €¡•ÉÉ½È¤ìÍ•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü•ÉÉ½È¹µ•ÍÍ…”€è€Ÿš*c–>ƒšr«š>C’ê“œ¤ìô4(€€€ôì4(€€€€¼¨ƒš*c–>ƒš2'¦J»–r£š¶šZ¢*
-ç’â+¾ò3¢–nûšr«š2¢ö÷š^ÛšÊ‡šr'–>¿îGj=7¾òo’ê“îd‰¥¹‘‘¥Ñ½ÉY¥•İ1¥ÍÑ•¹•ÉÌƒ¦j?š2¢ö÷¢†—îD€¨¼4(€€€É•ÑÕÉ¸‰¥¹‘‘¥Ñ½ÉY¥•İ1¥ÍÑ•¹•ÉÌ¡•‘¥Ñ½È°mlÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ°¡…¹‘±•Éut¤ì4(€ô°m•‘¥Ñ½È°¡…ÁÑ•È¹É½ÕÁÍt¤ì4(4(€€¼¨¨ƒ¢>s–6W’â;–ş¯š6ß¦R»–ÇR£–B3’âšv‡–F÷’î“–—–>Œ€¨¼4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€½¹ÍĞ­•å‘½İ¸€ô€¡•Ù•¹Ğè-•å‰½…É‘Ù•¹Ğ¤€ôøì4(€€€€€½¹ÍĞ½Á•¸€ôµ•¹ÕI•˜¹ÕÉÉ•¹Ğì4(€€€€€¥˜€ …½Á•¸¤É•ÑÕÉ¸ì4(€€€€€½¹ÍĞ½¹Ñ•áĞè5•¹Õ½¹Ñ•áĞ€ôì­¥¹è½Á•¸¹Ñ…É•Ğ¹­¥¹°ÁÉ½©•Ñ%è½Á•¸¹Ñ…É•Ğ¹ÁÉ½©•Ñ%°¡…ÁÑ•É%è½Á•¸¹Ñ…É•Ğ¹¡…ÁÑ•É%°‘½Œè•‘¥Ñ½Èü¹ÍÑ…Ñ”¹‘½Œ€üü¹Õ±°°™½ÕÌè½Á•¸¹™½ÕÌôì4(€€€€€½¹ÍĞ™±…Ğ€ô½Á•¸¹½µµ…¹‘Ì¹™±…Ñ5…À ¡½µµ…¹¤€ôøm½µµ…¹°€¸¸¸¡½µµ…¹¹¡¥±‘É•¸€üümt¥t¤ì4(€€€€€½¹ÍĞ½µµ…¹€ô½µµ…¹‘½É-•ä¡™±…Ğ°•Ù•¹Ğ°½¹Ñ•áĞ°ÑÉÕ”¤ì4(€€€€€¥˜€ …½µµ…¹¤É•ÑÕÉ¸ì4(€€€€€¥˜€ …½Á•¸¹½µµ…¹‘Ì¹¥¹±Õ‘•Ì¡½µµ…¹¤€˜˜€…½Á•¸¹½µµ…¹‘Ì¹Í½µ” ¡¥Ñ•´¤€ôø¥Ñ•´¹¡¥±‘É•¸ü¹¥¹±Õ‘•Ì¡½µµ…¹¤¤¤É•ÑÕÉ¸ì4(€€€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì4(€€€€€•Ù•¹Ğ¹ÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤ì4(€€€€€•á•ÕÑ•5•¹Õ½µµ…¹¡½µµ…¹°€ ¤€ôøÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹¥€ôôô½Á•¸¹Ñ…É•Ğ¹ÁÉ½©•Ñ%€˜˜€¡½Á•¸¹Ñ…É•Ğ¹­¥¹€ôôô€É½ÕÀœñğÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%€ôôô½Á•¸¹Ñ…É•Ğ¹¡…ÁÑ•É%¤°Í•Ñ9½Ñ¥”¤¹Ñ¡•¸ ¡½¬¤€ôøì¥˜€¡½¬¤Í•Ñ=Á•¹5•¹Ô¡¹Õ±°¤ìô¤ì4(€€€ôì4(€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸°ÑÉÕ”¤ì4(€€€É•ÑÕÉ¸€ ¤€ôøİ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸°ÑÉÕ”¤ì4(€ô°m•‘¥Ñ½Ét¤ì4(4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€¥˜€¡½Á•¹5•¹Ô¤É•ÑÕÉ¸ì4(€€€½¹ÍĞ½¹-•ä€ô€¡•Ù•¹Ğè-•å‰½…É‘Ù•¹Ğ¤€ôøì4(€€€€€¥˜€¡•Ù•¹Ğ¹‘•™…Õ±ÑAÉ•Ù•¹Ñ•ñğ•Ù•¹Ğ¹¥Í½µÁ½Í¥¹œ¤É•ÑÕÉ¸ì4(€€€€€½¹ÍĞ¹½‘”€ô•Ù•¹Ğ¹Ñ…É•Ğì4(€€€€€¥˜€¡¹½‘”¥¹ÍÑ…¹•½˜!Q51±•µ•¹Ğ€˜˜€¡¹½‘”¹¥Í½¹Ñ•¹Ñ‘¥Ñ…‰±”ñğ¹½‘”¹±½Í•ÍĞ ¥¹ÁÕĞ±Ñ•áÑ…É•„±Í•±•Ğ±mÉ½±”ô‰‘¥…±½œ‰tœ¤¤¤É•ÑÕÉ¸ì4(€€€€€½¹ÍĞÁ…É…É…Á¡%€ô•‘¥Ñ½È€üÁ…É…É…Á¡=™…É•Ğ ¤€è¹Õ±°ì4(€€€€€½¹ÍĞÍ•±•Ñ¥½¸€ô•‘¥Ñ½Èü¹ÍÑ…Ñ”¹Í•±•Ñ¥½¸ì4(€€€€€½¹ÍĞ¡…ÍQ•áÑM•±•Ñ¥½¸€ô€„…Í•±•Ñ¥½¸€˜˜€…Í•±•Ñ¥½¸¹•µÁÑäì4(€€€€€½¹ÍĞ­¥¹è5•¹ÕQ…É•Ñl­¥¹t€ô¡…ÍQ•áÑM•±•Ñ¥½¸€ü€Ñ•áĞœ€èÁ…É…É…Á¡%€ü€Á…É…É…Á œ€è€ÍÑ…”œì4(€€€€€½¹ÍĞÑ…É•Ğè5•¹ÕQ…É•Ğ€ôì­¥¹°ÁÉ½©•Ñ%èÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹¥°¡…ÁÑ•É%èÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°Á…É…É…Á¡%èÁ…É…É…Á¡%€üüÕ¹‘•™¥¹•°É½ÕÁ%èÉ½ÕÁ%‘=™A…É…É…Á ¡Á…É…É…Á¡%€üüÕ¹‘•™¥¹•¤€üüÕ¹‘•™¥¹•°Õ•%èÍ•±•Ñ•‘Õ•%€üüÕ¹‘•™¥¹•ôì4(€€€€€½¹ÍĞ½¹Ñ•áĞè5•¹Õ½¹Ñ•áĞ€ôì­¥¹°ÁÉ½©•Ñ%èÑ…É•Ğ¹ÁÉ½©•Ñ%°¡…ÁÑ•É%èÑ…É•Ğ¹¡…ÁÑ•É%°‘½Œè•‘¥Ñ½Èü¹ÍÑ…Ñ”¹‘½Œ€üü¹Õ±°°™½ÕÌè¹Õ±°ôì4(€€€€€½¹ÍĞ™…ÑÌ€ô½±±•Ñ…ÑÌ¡Ñ…É•Ğ°¡…ÍQ•áÑM•±•Ñ¥½¸°ÑÉÕ”¤ì4(€€€€€½¹ÍĞ½µµ…¹‘Ì€ô‰Õ¥±‘]½É­ÍÁ…•5•¹Ô¡Ñ…É•Ğ°™…ÑÌ°µ•¹ÕÑ¥½¹Ì¡Ñ…É•Ğ¤°½É‘•É•‘É½ÕÁÌ¹µ…À ¡É½ÕÀè…¹ä¤€ôø€¡ì¥èÉ½ÕÀ¹¥°¹…µ”èÉ½ÕÀ¹¹…µ”ô¤¤¤ì4(€€€€€½¹ÍĞ™±…Ğ€ô½µµ…¹‘Ì¹™±…Ñ5…À ¡½µµ…¹¤€ôøm½µµ…¹°€¸¸¸¡½µµ…¹¹¡¥±‘É•¸€üümt¥t¤ì4(€€€€€½¹ÍĞ½µµ…¹€ô½µµ…¹‘½É-•ä¡™±…Ğ°•Ù•¹Ğ°½¹Ñ•áĞ°™…±Í”¤ì4(€€€€€¥˜€ …½µµ…¹ñğ½µµ…¹¹É•…Í½¸¤É•ÑÕÉ¸ì4(€€€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì4(€€€€€½µµ…¹¹ÉÕ¸ü¸ ¤ì4(€€€ôì4(€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°½¹-•ä¤ì4(€€€É•ÑÕÉ¸€ ¤€ôøİ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°½¹-•ä¤ì4(€ô°m•‘¥Ñ½È°Í•±•Ñ•‘Õ•%°½É‘•É•‘É½ÕÁÌ°¡…ÁÑ•È°‘½Õµ•¹Ñt¤ì4(4(€½¹ÍĞÉ½ÕÁÉ…=Ù•È€ô€¡•Ù•¹ĞèI•…Ğ¹É…Ù•¹Ğ°É½ÕÁ%èÍÑÉ¥¹œ¤€ôøì4(€€€¥˜€¡•Ù•¹Ğ¹‘…Ñ…QÉ…¹Í™•È¹ÑåÁ•Ì¹¥¹±Õ‘•Ì¡AIIA!}I¤ñğ•Ù•¹Ğ¹‘…Ñ…QÉ…¹Í™•È¹ÑåÁ•Ì¹¥¹±Õ‘•Ì¡U%=}I¤¤ì4(€€€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì•Ù•¹Ğ¹‘…Ñ…QÉ…¹Í™•È¹‘É½Á™™•Ğ€ô•Ù•¹Ğ¹‘…Ñ…QÉ…¹Í™•È¹ÑåÁ•Ì¹¥¹±Õ‘•Ì¡U%=}I¤€ü€½Áäœ€è€µ½Ù”œìÍ•ÑÉ½Á!¥¹Ğ¡ìÉ½ÕÁ%°¥¹Ñ•¹Ğè•Ù•¹Ğ¹‘…Ñ…QÉ…¹Í™•È¹ÑåÁ•Ì¹¥¹±Õ‘•Ì¡U%=}I¤€ü€…Õ‘¥¼œ€è€Á…É…É…Á œô¤ì4(€€€ô4(€ôì4(€½¹ÍĞ½¹‘¥Ñ½ÉÉ…=Ù•È€ô€¡•Ù•¹ĞèI•…Ğ¹É…Ù•¹Ğ¤€ôøì4(€€€¥˜€¡…¹•±±•‘É…I•˜¹ÕÉÉ•¹Ğ¤ìÍÑ½Á‘•ÕÑ½ÍÉ½±° ¤ìÉ•ÑÕÉ¸ìô4(€€€½¹ÍĞ¥ÍA…É…É…Á €ô•Ù•¹Ğ¹‘…Ñ…QÉ…¹Í™•Èü¹ÑåÁ•Ì¹¥¹±Õ‘•Ì¡AIIA!}I¤€üü™…±Í”ì4(€€€½¹ÍĞ¥ÍÕ‘¥¼€ô•Ù•¹Ğ¹‘…Ñ…QÉ…¹Í™•Èü¹ÑåÁ•Ì¹¥¹±Õ‘•Ì¡U%=}I¤€üü™…±Í”ì4(€€€¥˜€ V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅâ—5&w&‚bb—4VF–ò’&WGW&ã°Ğ¢6öç7BF&vWBÒ&W6öÇfU&w&„G&÷F&vWB†WfVçBçF&vWBÂWfVçBæ6Æ–VçE’Â—4VF–òòvVF–òr¢w&w&‚r“°Ğ¢–b‚F&vWB’²6WDG&÷†–çB†çVÆÂ“²7F÷VFvTWF÷67&öÆÂ‚“²&WGW&ã²ĞĞ¢G&t7F—fU&Vbæ7W'&VçBÒG'VS°Ğ¢WfVçBç&WfVçDFVfVÇB‚“°Ğ¢WfVçBæFFG&ç6fW"æG&÷VffV7BÒ—4VF–òòv6÷’r¢vÖ÷fRs°Ğ¢6öç7B†–çBÒF&vWBçG—RÓÓÒvw&÷Wrò²w&÷W–C¢F&vWBæw&÷W–BÂ–çFVçC¢—4VF–òòvVF–òr26öç7B¢w&w&‚r26öç7BÒ¢²&w&„–C¢F&vWBç&w&„–BÂ÷6—F–öã¢F&vWBç÷6—F–öâÓ°Ğ¢6WDG&÷†–çB‚†7W'&VçB’Óâ7W'&VçCòæw&÷W–BÓÓÒ†–çBæw&÷W–Bbb7W'&VçCòç&w&„–BÓÓÒ†–çBç&w&„–Bbb7W'&VçCòç÷6—F–öâÓÓÒ†–çBç÷6—F–öâbb7W'&VçCòæ–çFVçBÓÓÒ†–çBæ–çFVçBò7W'&VçB¢†–çB“°Ğ¢WFFTVFvTWF÷67&öÆÂ†WfVçBæ7W'&VçEF&vWB2…DÔÄVÆVÖVçBÂWfVçBæ6Æ–VçE’“°Ğ¢Ó°Ğ¢6öç7BöäVF—F÷$G&÷Ò†WfVçC¢&V7BäG&tWfVçB’Óâ°Ğ¢–b‚WfVçBæFFG&ç6fW#òçG—W2æ–æ6ÇVFW2…$u$…ôE$r’bbWfVçBæFFG&ç6fW#òçG—W2æ–æ6ÇVFW2„TD”õôE$r’’&WGW&ã°Ğ¢7F÷VFvTWF÷67&öÆÂ‚“°Ğ¢G&t7F—fU&Vbæ7W'&VçBÒfÇ6S°Ğ¢–b†6æ6VÆÆVDG&u&Vbæ7W'&VçB’²WfVçBç&WfVçDFVfVÇB‚“²WfVçBç7F÷&÷vF–öâ‚“²&WGW&ã²ĞĞ¢6öç7B—4VF–òÒWfVçBæFFG&ç6fW"çG—W2æ–æ6ÇVFW2„TD”õôE$r“°Ğ¢6öç7BF&vWBÒ&W6öÇfU&w&„G&÷F&vWB†WfVçBçF&vWBÂWfVçBæ6Æ–VçE’Â—4VF–òòvVF–òr¢w&w&‚r“°Ğ¢–b‡F&vWCòçG—RÓÓÒvw&÷Wr’&WGW&â66WDw&÷WG&÷†WfVçBÂF&vWBæw&÷W–B“°Ğ¢–b‡F&vWCòçG—RÓÓÒw&w&‚r’&WGW&â66WE&w&„G&÷†WfVçBÂF&vWB“°Ğ¢WfVçBç&WfVçDFVfVÇB‚“²WfVçBç7F÷&÷vF–öâ‚“²6WDG&÷†–çB†çVÆÂ“°Ğ¢6WDæ÷F–6R†—4VF–òò~Šû~[n™û>š)h¹nX‹jÚ>ih~KŠŞy¨Një^‰Ş{¸Nj~š)8"r¢~Šû~[një^‰Şh¹nX‹jÚ>ih~Kˆ®XØ®8Kˆ¾XØ®h‰n{¸Nj~š)8"r“°Ğ¢Ó°Ğ Ğ¢6öç7Böä÷WFÆ–æTG&t÷fW"Ò†WfVçC¢&V7BäG&tWfVçB’Óâ°Ğ¢–b‚WfVçBæFFG&ç6fW#òçG—W2æ–æ6ÇVFW2‚vÆ–6F–öâ÷‚×7F÷'’×v÷&¶&Væ6‚×&w&‡2r’’&WGW&ã°Ğ¢WfVçBç&WfVçDFVfVÇB‚“°Ğ¢6öç7BÆ—7BÒWfVçBæ7W'&VçEF&vWB2…DÔÄVÆVÖVçC°Ğ¢6öç7B&V7BÒÆ—7BævWD&÷VæF–æt6Æ–VçE&V7B‚“°Ğ¢6öç7BVFvRÒÖF‚æÖ–âƒ3bÂ&V7Bæ†V–v‡B¢ã"“°Ğ¢–b†WfVçBæ6Æ–VçE’Â&V7BçF÷²VFvR’Æ—7Bç67&öÆÅF÷ÓÒC°Ğ¢VÇ6R–b†WfVçBæ6Æ–VçE’â&V7Bæ&÷GFöÒÒVFvR’Æ—7Bç67&öÆÅF÷³ÒC°Ğ¢Ó°Ğ Ğ¢6öç7BWFFT×W6–4÷F–öç2Ò‡&ævS¢ç’ÂF6ƒ¢²föÇVÖSó¢çVÖ&W#²Æö÷ó¢&ööÆVâÒ’Óâ°Ğ¢WFFT7F—fT6†FW"‚†7W'&VçB’Óâ°Ğ¢6öç7B–G2Ò×W6–5&ævU&w&„–G2†7W'&VçBÂ&ævR“°Ğ¢&WGW&â6WD×W6–5&ævR†7W'&VçBÂ&ævRæ76WD–BÂ–G2Â²föÇVÖS¢F6‚çföÇVÖRóò&ævRçföÇVÖRÂÆö÷¢F6‚æÆö÷óò&ævRæÆö÷Ò“°Ğ¢Ò“°Ğ¢Ó°Ğ Ğ¢6öç7BWFFT×W6–476WBÒ‡&ævS¢ç’Â76WD–C¢7G&–ær’Óâ°Ğ¢–b‚76WD–B’&WGW&ã°Ğ¢G'’°Ğ¢WFFT7F—fT6†FW"‚†7W'&VçB’Óâ6WD×W6–5&ævR†7W'&VçBÂ76WD–BÂ×W6–5&ævU&w&„–G2†7W'&VçBÂ&ævR’Â²föÇVÖS¢&ævRçföÇVÖRÂÆö÷¢&ævRæÆö÷Ò’“°Ğ¢6WDæ÷F–6R‚~[{.i»şhÚ.‹ùjë^ˆ8Îišş™û>K™8"r“°Ğ¢Ò6F6‚†W'&÷"’²6WDæ÷F–6R†W'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~izk9^i»şhÚ.ˆ8Îišş™û>K™8"r“²ĞĞ¢Ó°Ğ Ğ¢6öç7BFD–×÷'FVDVF–òÒ†76WC¢76WE&V6÷&B’Óâ°Ğ¢–b†76WBæ¶–æBÓÒwf–FVòr’&WGW&ã°Ğ¢6öç7B6÷W&6U&ö¦V7D–BÒ&ö¦V7E&Vbæ7W'&VçBæ–C°Ğ¢6öç7B6öçG&öÆÆW"ÒæWr&÷'D6öçG&öÆÆW"‚“°Ğ¢ÖVF–&÷'E&Vbæ7W'&VçBÒ6öçG&öÆÆW#°Ğ¢6WDÖVF–&öw&W72†jÚ>YÊhùXùn(	ÂG¶76WBææÖWŞ(	Ş™û>‹Ú(
-f“°Ğ¢fö–BW‡G&7DVF–ôg&öÕf–FVò†76WBæ&Æö"Â²6–væÃ¢6öçG&öÆÆW"ç6–væÂÂæÖS¢76WBææÖRÀĞ¢öå&öw&W73¢†Æ&VÂ’Óâ6WDÖVF–&öw&W72†Æ&VÂ’ÀĞ¢Ò’çF†Vâ‚†f–ÆR’Óâ°Ğ¢6öç7BVF–òÒ&V6÷&G4g&öÔf–ÆW2…¶f–ÆUÒ•³Ó°Ğ¢VæD76WG2…¶VF–õÒÂ6÷W&6U&ö¦V7D–B“°Ğ¢6WDf–ÇFW"‚vÆÂr“°Ğ¢6WDæWt76WD–G2…¶VF–òæ–EÒ“°Ğ¢6WD–×÷'E&W÷'B…·²æÖS¢76WBææÖRÂ7FGW3¢w7V66W72rÂFWF–Ã¢[{.hùXùnK‹®(	ÂG¶VF–òææÖWŞ(	ŞûÈÎXúşKº^Šù^Y
-Îh‰nX[>ˆNX‹Xú^ZÙ8&ÕÒ“°Ğ¢6WDæ÷F–6R†™û>‹Ú[{.hùXùn[›nXªXZ^{JiÙ[©>ûÉ¢G¶VF–òææÖWÖ“°Ğ¢Ò’æ6F6‚‚†W'&÷"’Óâ°Ğ¢–b†6öçG&öÆÆW"ç6–væÂæ&÷'FVB’°Ğ¢6WDÖVF–&öw&W72‚~™û>‹ÚhùXùn[{.XùnkhûÈÎ[z^zˆ¾iÊ®i»NiK8"r“°Ğ¢&WGW&ã°Ğ¢ĞĞ¢6öç7BÖW76vRÒW'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~™û>‹ÚhùXùnZK‹J^8"s°Ğ¢6WD–×÷'E&W÷'B…·²æÖS¢76WBææÖRÂ7FGW3¢vW'&÷"rÂFWF–Ã¢ÖW76vRÕÒ“°Ğ¢6WDæ÷F–6R†ÖW76vR“°Ğ¢Ò’æf–æÆÇ’‚‚’Óâ²–b†ÖVF–&÷'E&Vbæ7W'&VçBÓÓÒ6öçG&öÆÆW"’ÖVF–&÷'E&Vbæ7W'&VçBÒçVÆÃ²v–æF÷rç6WEF–ÖV÷WB‚‚’Óâ6WDÖVF–&öw&W72‚rr’Â““²Ò“°Ğ¢Ó°Ğ Ğ¢6öç7BW6TWF÷6fRÒ7–æ2‚’Óâ°Ğ¢WF÷6fU7W&W76VBæ7W'&VçBÒG'VS°Ğ¢–b‡6fUF–ÖW"æ7W'&VçBÓÒçVÆÂ’v–æF÷ræ6ÆV%F–ÖV÷WB‡6fUF–ÖW"æ7W'&VçB“°Ğ¢6fUF–ÖW"æ7W'&VçBÒçVÆÃ°Ğ¢v—B6fUVWVRæ7W'&VçC°Ğ¢Ó°Ğ Ğ¢ò¢¢X‹~ikšn˜:8ÎXˆ~hÚ.[z^zˆ¾8ŞX‰~Š‚¢ğĞ¢6öç7B&Vg&W6„Æ–'&'’Ò7–æ2‚’Óâ°Ğ¢G'’°Ğ¢6öç7B7FFRÒv—Bv–æF÷rç7F÷'•v÷&¶&Væ6‚æÆ–'&'’æÆ—7B‚“°Ğ¢6WDÆ–'&'•&ö¦V7G2‡7FFRç&ö¦V7G2“°Ğ¢&WGW&â7FFS°Ğ¢Ò6F6‚†W'&÷"’°Ğ¢6WDæ÷F–6R†W'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢~[z^zˆ¾[©>Šû¾XùnZK‹J^8"r“°Ğ¢&WGW&âçVÆÃ°Ğ¢ĞĞ¢Ó°Ğ Ğ¢ò¢¢XÎhèiz~[z^zˆ¾‹ùYÊ‹yy¨NK‰ÎŠ[şûÉ®i*ŞiKî8Z©.KÙ>8ZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{ yg*:`%9æ¡:gìú/j9£ä9cåˆ
-‹ÃBˆÛÛœİİÜXİ]™UÛÜšÈH
+        editorMenuRef.current = { anchor: at.pos, head: at.pos };
+      }
+    }
+    const selection = editor.state.selection;
+    const hasTextSelection = !selection.empty;
+    const inParagraph = selection.$from.parent?.type?.name === 'paragraph';
+    const paragraphId = inParagraph ? String(selection.$from.parent.attrs.paragraphId ?? '') : undefined;
+    const kind: MenuTarget['kind'] = hasTextSelection ? 'text' : 'paragraph';
+    openWorkspaceMenu({ kind, projectId: projectRef.current.id, chapterId: projectRef.current.activeChapterId, paragraphId: paragraphId || undefined, groupId: groupIdOfParagraph(paragraphId) ?? undefined }, event, editorDOM, hasTextSelection);
+  };
 
-HOˆÃBˆ^Y\”™Y‹˜İ\œ™[ËœİÜ
+  useEffect(() => {
+    const handler = (event: Event) => {
+      const detail = (event as CustomEvent).detail;
+      const groupId = detail?.groupId;
+      if (!groupId) return;
+      try {
+        commitChapterStructure(updateChapter(projectRef.current, projectRef.current.activeChapterId, (value: any) => setGroupCollapsed(value, groupId, !chapter.groups.find((item: any) => item.id === groupId)?.collapsed)));
+      } catch (error) { setNotice(error instanceof Error ? error.message : 'æŠ˜å æœªæäº¤ã€‚'); }
+    };
+    /* æŠ˜å æŒ‰é’®åœ¨æ­£æ–‡èŠ‚ç‚¹ä¸Šï¼Œè§†å›¾æœªæŒ‚è½½æ—¶æ²¡æœ‰å¯ç»‘çš„ DOMï¼›äº¤ç»™ bindEditorViewListeners éšæŒ‚è½½è¡¥ç»‘ */
+    return bindEditorViewListeners(editor, [['story-group-collapse', handler]]);
+  }, [editor, chapter.groups]);
 
-NÃBˆYYXTÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
+  /** èœå•ä¸å¿«æ·é”®å…±ç”¨åŒä¸€æ¡å‘½ä»¤å…¥å£ */
+  useEffect(() => {
+    const keydown = (event: KeyboardEvent) => {
+      const open = menuRef.current;
+      if (!open) return;
+      const context: MenuContext = { kind: open.target.kind, projectId: open.target.projectId, chapterId: open.target.chapterId, doc: editor?.state.doc ?? null, focus: open.focus };
+      const flat = open.commands.flatMap((command) => [command, ...(command.children ?? [])]);
+      const command = commandForKey(flat, event, context, true);
+      if (!command) return;
+      if (!open.commands.includes(command) && !open.commands.some((item) => item.children?.includes(command))) return;
+      event.preventDefault();
+      event.stopPropagation();
+      executeMenuCommand(command, () => projectRef.current.id === open.target.projectId && (open.target.kind === 'group' || projectRef.current.activeChapterId === open.target.chapterId), setNotice).then((ok) => { if (ok) setOpenMenu(null); });
+    };
+    window.addEventListener('keydown', keydown, true);
+    return () => window.removeEventListener('keydown', keydown, true);
+  }, [editor]);
 
-NÃBˆ]\ÚXÔÙ\ÜÚ[Û”™Y‹˜İ\œ™[ËœİÜ
+  useEffect(() => {
+    if (openMenu) return;
+    const onKey = (event: KeyboardEvent) => {
+      if (event.defaultPrevented || event.isComposing) return;
+      const node = event.target;
+      if (node instanceof HTMLElement && (node.isContentEditable || node.closest('input,textarea,select,[role="dialog"]'))) return;
+      const paragraphId = editor ? paragraphOfCaret() : null;
+      const selection = editor?.state.selection;
+      const hasTextSelection = !!selection && !selection.empty;
+      const kind: MenuTarget['kind'] = hasTextSelection ? 'text' : paragraphId ? 'paragraph' : 'stage';
+      const target: MenuTarget = { kind, projectId: projectRef.current.id, chapterId: projectRef.current.activeChapterId, paragraphId: paragraphId ?? undefined, groupId: groupIdOfParagraph(paragraphId ?? undefined) ?? undefined, cueId: selectedCueId ?? undefined };
+      const context: MenuContext = { kind, projectId: target.projectId, chapterId: target.chapterId, doc: editor?.state.doc ?? null, focus: null };
+      const facts = collectFacts(target, hasTextSelection, true);
+      const commands = buildWorkspaceMenu(target, facts, menuActions(target), orderedGroups.map((group: any) => ({ id: group.id, name: group.name })));
+      const flat = commands.flatMap((command) => [command, ...(command.children ?? [])]);
+      const command = commandForKey(flat, event, context, false);
+      if (!command || command.reason) return;
+      event.preventDefault();
+      command.run?.();
+    };
+    window.addEventListener('keydown', onKey);
+    return () => window.removeEventListener('keydown', onKey);
+  }, [editor, selectedCueId, orderedGroups, chapter, document]);
 
-NÃBˆYYXPX›Ü™Y‹˜İ\œ™[Ë˜X›Ü
+  const groupDragOver = (event: React.DragEvent, groupId: string) => {
+    if (event.dataTransfer.types.includes(PARAGRAPH_DRAG) || event.dataTransfer.types.includes(AUDIO_DRAG)) {
+      event.preventDefault(); event.dataTransfer.dropEffect = event.dataTransfer.types.includes(AUDIO_DRAG) ? 'copy' : 'move'; setDropHint({ groupId, intent: event.dataTransfer.types.includes(AUDIO_DRAG) ? 'audio' : 'paragraph' });
+    }
+  };
+  const onEditorDragOver = (event: React.DragEvent) => {
+    if (cancelledDragRef.current) { stopEdgeAutoscroll(); return; }
+    const isParagraph = event.dataTransfer?.types.includes(PARAGRAPH_DRAG) ?? false;
+    const isAudio = event.dataTransfer?.types.includes(AUDIO_DRAG) ?? false;
+    if (!isParagraph && !isAudio) return;
+    const target = resolveParagraphDropTarget(event.target, event.clientY, isAudio ? 'audio' : 'paragraph');
+    if (!target) { setDropHint(null); stopEdgeAutoscroll(); return; }
+    dragActiveRef.current = true;
+    event.preventDefault();
+    event.dataTransfer.dropEffect = isAudio ? 'copy' : 'move';
+    const hint = target.type === 'group' ? { groupId: target.groupId, intent: isAudio ? 'audio' as const : 'paragraph' as const } : { paragraphId: target.paragraphId, position: target.position };
+    setDropHint((current) => current?.groupId === hint.groupId && current?.paragraphId === hint.paragraphId && current?.position === hint.position && current?.intent === hint.intent ? current : hint);
+    updateEdgeAutoscroll(event.currentTarget as HTMLElement, event.clientY);
+  };
+  const onEditorDrop = (event: React.DragEvent) => {
+    if (!event.dataTransfer?.types.includes(PARAGRAPH_DRAG) && !event.dataTransfer?.types.includes(AUDIO_DRAG)) return;
+    stopEdgeAutoscroll();
+    dragActiveRef.current = false;
+    if (cancelledDragRef.current) { event.preventDefault(); event.stopPropagation(); return; }
+    const isAudio = event.dataTransfer.types.includes(AUDIO_DRAG);
+    const target = resolveParagraphDropTarget(event.target, event.clientY, isAudio ? 'audio' : 'paragraph');
+    if (target?.type === 'group') return acceptGroupDrop(event, target.groupId);
+    if (target?.type === 'paragraph') return acceptParagraphDrop(event, target);
+    event.preventDefault(); event.stopPropagation(); setDropHint(null);
+    setNotice(isAudio ? 'è¯·å°†éŸ³é¢‘æ‹–åˆ°æ­£æ–‡ä¸­çš„æ®µè½ç»„æ ‡é¢˜ã€‚' : 'è¯·å°†æ®µè½æ‹–åˆ°æ­£æ–‡ä¸ŠåŠã€ä¸‹åŠæˆ–ç»„æ ‡é¢˜ã€‚');
+  };
 
-NÃBˆYYXPX›Ü™Y‹˜İ\œ™[H[ÃBˆØ[˜Ù[Y˜YÔ™Y‹˜İ\œ™[HYNÃBˆ˜YĞXİ]™T™Y‹˜İ\œ™[H˜[ÙNÃBˆİÜYÙP]]ÜØÜ›Û
+  const onOutlineDragOver = (event: React.DragEvent) => {
+    if (!event.dataTransfer?.types.includes('application/x-story-workbench-paragraphs')) return;
+    event.preventDefault();
+    const list = event.currentTarget as HTMLElement;
+    const rect = list.getBoundingClientRect();
+    const edge = Math.min(36, rect.height * 0.2);
+    if (event.clientY < rect.top + edge) list.scrollTop -= 14;
+    else if (event.clientY > rect.bottom - edge) list.scrollTop += 14;
+  };
 
-NÃBˆNÃBƒBˆÊŠƒBˆ
-ˆ9b!ù£h¹b,9méyê"ùn¤úaã9æ¡9cé¹. 9.ïyméyê"øà ƒBˆ
-ˆ:hn¹n£ûï&¹ab9îæy¥éùméyê"ú$/yææ8¡¤ˆ9`g9£¢y¥éùméyê"ùæ¡9bª9/g8¡¤ˆ:+îùnm¹¨(zj£9æë¹¨!È8¡¤ˆ9. 9«(y )ù£h¹b,9æë¹¨!øà ƒBˆ
-ˆ9.îù/ey. 9«iyi,z-)z`ïyåfyg*9c§ùméyê"ûï#9nmº+í9¦#¹c§ùfè;ï&ùoêú`'ú/ç¹à®y¥í¹cê¹§"y§ 9d#¹. 9«(yå'ù¥b8à ƒBˆ
-‹ÃBˆÛÛœİİÚ]ÚÔ›Ú™XİH\Ş[˜È
-\™Ù]Ù^Nˆİš[™ËÜ[ÛœÎˆÈY\ÜØYÙOÎˆİš[™ÈHHßJHOˆÃBˆYˆ
-\™Ù]Ù^HOOHXœ˜\RÙ^T™Y‹˜İ\œ™[
-HÈXœ˜\SY[T™Y‹˜İ\œ™[Ëœ™[[İ™P]šX]J	ÛÜ[‰ÊNÈ™]\›ˆYNÈCBˆÛÛœİÚÙ[ˆH
-ÊÜİÚ]ÚÚÙ[”™Y‹˜İ\œ™[ÃBˆÙ]›Ú™XİÜ\˜][ÛŠYJNÃBˆHÃBˆ]ØZ]Ø]™S›İÊ
-NÃBˆYˆ
-ÚÙ[ˆOOHİÚ]ÚÚÙ[”™Y‹˜İ\œ™[
-H™]\›ˆ˜[ÙNÃBˆ]ØZ]]\ÙP]]ÜØ]™J
-NÃBˆÊˆ9¥éùméyê"ùæ¡9¤«y¥/¸à yj¤¹/dùd£9g*:`%9¤ãy/g9ab9`g9."ù§i{ï#9b*ú+ªyk ù.ë:-ê9b,9¥¬9méyê"ùc®È
-‹ÃBˆİÜXİ]™UÛÜšÊ
-NÃBˆÛÛœİØYYH]ØZ]Ü[“Xœ˜\T›Ú™Xİ
-\™Ù]Ù^JNÃBˆYˆ
-ÚÙ[ˆOOHİÚ]ÚÚÙ[”™Y‹˜İ\œ™[
-H™]\›ˆ˜[ÙNÃBˆXœ˜\RÙ^T™Y‹˜İ\œ™[H\™Ù]Ù^NÃBˆÙ]Xœ˜\RÙ^J\™Ù]Ù^JNÃBˆ\ÜÙ]Ô™Y‹˜İ\œ™[HØYY˜\ÜÙ]ÎÃBˆ›Ú™Xİ™Y‹˜İ\œ™[HØYYœ›Ú™XİÃBˆÙ]›Ú™Xİ
-ØYYœ›Ú™Xİ
-NÃBˆÙ]\ÜÙ]ÊØYY˜\ÜÙ]ÊNÃBˆİ\œ™[™]šY]ÕÚÙ[”™Y‹˜İ\œ™[H[ÃBˆ™]šY]Ò\İÜT™Y‹˜İ\œ™[˜ÛX\Š
-NÃBˆ™]šY]ĞÚ[™ÙR\İÜT™Y‹˜İ\œ™[˜ÛX\Š
-NÃBˆÚ\\İ\œÛÜ”™Y‹˜İ\œ™[˜ÛX\Š
-NÃBˆÚ\\”ØÜ›Û™Y‹˜İ\œ™[˜ÛX\Š
-NÃBˆØ]™Y^[™İ™Y‹˜İ\œ™[HÚ\\•^Ûİ[ÊØYYœ›Ú™Xİ
-NÃBˆØ]™YÛ˜\Úİ™Y‹˜İ\œ™[HÈÙ^Nˆ\™Ù]Ù^K›Ú™XİˆØYYœ›Ú™Xİ\ÜÙ]ÎˆØYY˜\ÜÙ]ÈNÃBˆ\]TØ]™SX™[
-	ùmì¹b!ù£hˆ0­È	È
-ÈØYYœ›Ú™Xİ›˜[YJNÃBˆÙ]Y]Ü‘\ØÚ
+  const updateMusicOptions = (range: any, patch: { volume?: number; loop?: boolean }) => {
+    updateActiveChapter((current) => {
+      const ids = musicRangeParagraphIds(current, range);
+      return setMusicRange(current, range.assetId, ids, { volume: patch.volume ?? range.volume, loop: patch.loop ?? range.loop });
+    });
+  };
 
-˜[YJHOˆ˜[YH
-ÈJNÃBˆÙ]Ù[XİY^Y\’Y
-[
-NÃBˆÙ]Ù[XİYÜ›İ\Y
-[
-NÃBˆÙ]Ù[XİYÜ›İ\YÊ×JNÃBˆÙ]Ù[XİY\˜YÜ˜\Ê×JNÃBˆÙ]Ù[XİYİYRY
-ÛÛ\[QØİ[Y[
-Xİ]™PÚ\\ŠØYYœ›Ú™Xİ
-K™Øİ[Y[
-VÌOËšYÏÈ[
-NÃBˆÙ]\XÛT™]šY]Ê[
-NÃBˆÙ]Ü›İ\]\ÚXÑX[ÙÊ[
-NÃBˆÙ][™[™Ó]\ÚXÊ[
-NÃBˆÙ][\Ü™\Ü
-×JNÃBˆÙ]™]Ğ\ÜÙ]YÊ×JNÃBˆÙ]™\İÜ™U™\œÚ[ÛœÊ[
-NÃBˆ]ØZ]Ú[™İËœİÜUÛÜšØ™[˜Ú›Xœ˜\KœÙ]Xİ]™J\™Ù]Ù^JK˜Ø]Ú
+  const updateMusicAsset = (range: any, assetId: string) => {
+    if (!assetId) return;
+    try {
+      updateActiveChapter((current) => setMusicRange(current, assetId, musicRangeParagraphIds(current, range), { volume: range.volume, loop: range.loop }));
+      setNotice('å·²æ›¿æ¢è¿™æ®µèƒŒæ™¯éŸ³ä¹ã€‚');
+    } catch (error) { setNotice(error instanceof Error ? error.message : 'æ— æ³•æ›¿æ¢èƒŒæ™¯éŸ³ä¹ã€‚'); }
+  };
 
+  const addImportedAudio = (asset: AssetRecord) => {
+    if (asset.kind !== 'video') return;
+    const sourceProjectId = projectRef.current.id;
+    const controller = new AbortController();
+    mediaAbortRef.current = controller;
+    setMediaProgress(`æ­£åœ¨æå–â€œ${asset.name}â€éŸ³è½¨â€¦`);
+    void extractAudioFromVideo(asset.blob, { signal: controller.signal, name: asset.name,
+      onProgress: (label) => setMediaProgress(label),
+    }).then((file) => {
+      const audio = recordsFromFiles([file])[0];
+      appendAssets([audio], sourceProjectId);
+      setFilter('all');
+      setNewAssetIds([audio.id]);
+      setImportReport([{ name: asset.name, status: 'success', detail: `å·²æå–ä¸ºâ€œ${audio.name}â€ï¼Œå¯ä»¥è¯•å¬æˆ–å…³è”åˆ°å¥å­ã€‚` }]);
+      setNotice(`éŸ³è½¨å·²æå–å¹¶åŠ å…¥ç´ æåº“ï¼š${audio.name}`);
+    }).catch((error) => {
+      if (controller.signal.aborted) {
+        setMediaProgress('éŸ³è½¨æå–å·²å–æ¶ˆï¼Œå·¥ç¨‹æœªæ›´æ”¹ã€‚');
+        return;
+      }
+      const message = error instanceof Error ? error.message : 'éŸ³è½¨æå–å¤±è´¥ã€‚';
+      setImportReport([{ name: asset.name, status: 'error', detail: message }]);
+      setNotice(message);
+    }).finally(() => { if (mediaAbortRef.current === controller) mediaAbortRef.current = null; window.setTimeout(() => setMediaProgress(''), 900); });
+  };
 
-HOˆßJNÃBˆÙ]Ø]™U\™Ù]
-]ØZ]Ú[™İËœİÜUÛÜšØ™[˜Ú›Xœ˜\KœØ]™U\™Ù]
-\™Ù]Ù^JK˜Ø]Ú
+  const pauseAutosave = async () => {
+    autosaveSuppressed.current = true;
+    if (saveTimer.current !== null) window.clearTimeout(saveTimer.current);
+    saveTimer.current = null;
+    await saveQueue.current;
+  };
 
+  /** åˆ·æ–°é¡¶éƒ¨ã€Œåˆ‡æ¢å·¥ç¨‹ã€åˆ—è¡¨ */
+  const refreshLibrary = async () => {
+    try {
+      const state = await window.storyWorkbench.library.list();
+      setLibraryProjects(state.projects);
+      return state;
+    } catch (error) {
+      setNotice(error instanceof Error ? error.message : 'å·¥ç¨‹åº“è¯»å–å¤±è´¥ã€‚');
+      return null;
+    }
+  };
 
-HOˆ[
-JNÃBˆ]ØZ]™Yœ™\ÚXœ˜\J
-NÃBˆXœ˜\SY[T™Y‹˜İ\œ™[Ëœ™[[İ™P]šX]J	ÛÜ[‰ÊNÃBˆÙ]›İXÙJÜ[ÛœË›Y\ÜØYÙHÏÈ9mì¹b!ù£h¹b,8 '	ÛØYYœ›Ú™Xİ›˜[Y_x 'xà ˜
-NÃBˆ™]\›ˆYNÃBˆHØ]Ú
-\œ›ÜŠHÃBˆÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ9b!ù£h¹§*¹k£9¢$;ï#9.ãyg*9c§ùméyê"ûï&‰Ù\œ›Ü‹›Y\ÜØYÙ_Xˆ	ùb!ù£h¹§*¹k£9¢$;ï#9.ãyg*9c§ùméyê"øà ‰ÊNÃBˆ™]\›ˆ˜[ÙNÃBˆHš[˜[HÃBˆÊˆ9cê¹§"y§ 9d#¹. 9«(yb!ù£hº-'ú-(ù¥-¹l/»ï#:`oùacy¢¢º/æ9g*:/æú(c9æ¡:`¨ù«(yæ¡9â­¹  y£ä9bcy®!y£¢H
-‹ÃBˆYˆ
-ÚÙ[ˆOOHİÚ]ÚÚÙ[”™Y‹˜İ\œ™[
-HÃBˆ]]ÜØ]™Tİ\™\ÜÙY˜İ\œ™[H˜[ÙNÃBˆÙ]›Ú™XİÜ\˜][ÛŠ˜[ÙJNÃBˆCBˆCBˆNÃBƒBˆÛÛœİÜ™X]S™]Ô›Ú™XİH
-šYÙÙ\ˆS[[Y[
-HOˆÜ[“˜[YQX[ÙÊšYÙÙ\‹ÃBˆ]Nˆ	ù¥¬9nî¹méyê"ÉËšY[X™[ˆ	ùméyê"ùd#yéì	ËÛÛ™š\›SX™[ˆ	ù/çykf9odùbcynm¹¥¬9nî‰Ë[š]X[˜[YNˆ	ù¥¬9biù áy/g9dàIË›Ü›X[^™Nˆ›Ü›X[^™T›Ú™Xİ˜[YKBˆ\ØÜš\[Ûˆ	ùab9/çykf9odùbcyméyê"ûï#9a£y¥¬9nî¹. 9.*¹ên¹æoyméyê"øà ¹¥¬9méyê"ù/&¹åfyg*9§+9g,9méyê"ùn¤úaã;ï#9."ù«(y¢dùo :/æ: ïy¢o¹b,8à ‰ËBˆÛÛÛ™š\›Nˆ
-˜[YJHOˆÃBˆÛÛœİ™^H™[˜[YT›Ú™Xİ
-Ü™X]P›[šÔ›Ú™Xİ
+  /** åœæ‰æ—§å·¥ç¨‹è¿˜åœ¨è·‘çš„ä¸œè¥¿ï¼šæ’­æ”¾ã€åª’ä½“ã€åœ¨é€”çš„éŸ³è½¨æå– */
+  const stopActiveWork = () => {
+    playerRef.current?.stop();
+    mediaSessionRef.current?.stop();
+    musicSessionRef.current?.stop();
+    mediaAbortRef.current?.abort();
+    mediaAbortRef.current = null;
+    cancelledDragRef.current = true;
+    dragActiveRef.current = false;
+    stopEdgeAutoscroll();
+  };
 
-K˜[YJNÃBˆ›ÚY
-\Ş[˜È
+  /**
+   * åˆ‡æ¢åˆ°å·¥ç¨‹åº“é‡Œçš„å¦ä¸€ä»½å·¥ç¨‹ã€‚
+   * é¡ºåºï¼šå…ˆç»™æ—§å·¥ç¨‹è½ç›˜ â†’ åœæ‰æ—§å·¥ç¨‹çš„åŠ¨ä½œ â†’ è¯»å¹¶æ ¡éªŒç›®æ ‡ â†’ ä¸€æ¬¡æ€§æ¢åˆ°ç›®æ ‡ã€‚
+   * ä»»ä½•ä¸€æ­¥å¤±è´¥éƒ½ç•™åœ¨åŸå·¥ç¨‹ï¼Œå¹¶è¯´æ˜åŸå› ï¼›å¿«é€Ÿè¿ç‚¹æ—¶åªæœ‰æœ€åä¸€æ¬¡ç”Ÿæ•ˆã€‚
+   */
+  const switchToProject = async (targetKey: string, options: { message?: string } = {}) => {
+    if (targetKey === libraryKeyRef.current) { libraryMenuRef.current?.removeAttribute('open'); return true; }
+    const token = ++switchTokenRef.current;
+    setProjectOperation(true);
+    try {
+      await saveNow();
+      if (token !== switchTokenRef.current) return false;
+      await pauseAutosave();
+      /* æ—§å·¥ç¨‹çš„æ’­æ”¾ã€åª’ä½“å’Œåœ¨é€”æ“ä½œå…ˆåœä¸‹æ¥ï¼Œåˆ«è®©å®ƒä»¬è·¨åˆ°æ–°å·¥ç¨‹å» */
+      stopActiveWork();
+      const loaded = await openLibraryProject(targetKey);
+      if (token !== switchTokenRef.current) return false;
+      libraryKeyRef.current = targetKey;
+      setLibraryKey(targetKey);
+      assetsRef.current = loaded.assets;
+      projectRef.current = loaded.project;
+      setProject(loaded.project);
+      setAssets(loaded.assets);
+      currentReviewTokenRef.current = null;
+      reviewHistoryRef.current.clear();
+      reviewChangeHistoryRef.current.clear();
+      chapterCursorRef.current.clear();
+      chapterScrollRef.current.clear();
+      savedTextLengthRef.current = chapterTextCounts(loaded.project);
+      savedSnapshotRef.current = { key: targetKey, project: loaded.project, assets: loaded.assets };
+      updateSaveLabel('å·²åˆ‡æ¢ Â· ' + loaded.project.name);
+      setEditorEpoch((value) => value + 1);
+      setSelectedLayerId(null);
+      setSelectedGroupId(null);
+      setSelectedGroupIds([]);
+      setSelectedParagraphs([]);
+      setSelectedCueId(compileDocument(activeChapter(loaded.project).document)[0]?.id ?? null);
+      setArticlePreview(null);
+      setGroupMusicDialog(null);
+      setPendingMusic(null);
+      setImportReport([]);
+      setNewAssetIds([]);
+      setRestoreVersions(null);
+      await window.storyWorkbench.library.setActive(targetKey).catch(() => {});
+      setSaveTarget(await window.storyWorkbench.library.saveTarget(targetKey).catch(() => null));
+      await refreshLibrary();
+      libraryMenuRef.current?.removeAttribute('open');
+      setNotice(options.message ?? `å·²åˆ‡æ¢åˆ°â€œ${loaded.project.name}â€ã€‚`);
+      return true;
+    } catch (error) {
+      setNotice(error instanceof Error ? `åˆ‡æ¢æœªå®Œæˆï¼Œä»åœ¨åŸå·¥ç¨‹ï¼š${error.message}` : 'åˆ‡æ¢æœªå®Œæˆï¼Œä»åœ¨åŸå·¥ç¨‹ã€‚');
+      return false;
+    } finally {
+      /* åªæœ‰æœ€åä¸€æ¬¡åˆ‡æ¢è´Ÿè´£æ”¶å°¾ï¼Œé¿å…æŠŠè¿˜åœ¨è¿›è¡Œçš„é‚£æ¬¡çš„çŠ¶æ€æå‰æ¸…æ‰ */
+      if (token === switchTokenRef.current) {
+        autosaveSuppressed.current = false;
+        setProjectOperation(false);
+      }
+    }
+  };
 
-HOˆÃBˆHÃBˆ]ØZ]Ø]™S›İÊ
-NÃBˆ]ØZ]]\ÙP]]ÜØ]™J
-NÃBˆÊˆ9¥¬9méyê"ùêâùb.ú$/yææ9¢$9âë9êâù§hyæë»ï#9.#zg :) yab9cé¹kf’T
-‹ÃBˆÛÛœİ[HH]ØZ]Ú[™İËœİÜUÛÜšØ™[˜Ú›Xœ˜\K˜Ü™X]J]ØZ]XÚĞ]\Ê™^×JKÈ˜[YNˆ™^›˜[YK›Ú™XİYˆ™^šYJNÃBˆ]ØZ]™Yœ™\ÚXœ˜\J
-NÃBˆÛÛœİÚÈH]ØZ]İÚ]ÚÔ›Ú™Xİ
-[KšÙ^KÈY\ÜØYÙNˆ9mì¹¥¬9nî¹méyê"ø '	Û™^›˜[Y_x '{ï#9k ùåfyg*9§+9g,9méyê"ùn¤úaã8à ˜JNÃBˆYˆ
-[ÚÊHÙ]›İXÙJ	ù¥¬9nî¹§*¹k£9¢$;ï#9.ãyg*9c§ùméyê"øà ‰ÊNÃBˆHØ]Ú
-\œ›ÜŠHÃBˆÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ	ù¥¬9nî¹§*¹k£9¢$;ï&‰È
-È\œ›Ü‹›Y\ÜØYÙHˆ	ù¥¬9nî¹§*¹k£9¢$8à ‰ÊNÃBˆHš[˜[HÃBˆ]]ÜØ]™Tİ\™\ÜÙY˜İ\œ™[H˜[ÙNÃBˆÙ]›Ú™XİÜ\˜][ÛŠ˜[ÙJNÃBˆCBˆJJ
-NÃBˆ™]\›ˆ[™Yš[™YÃBˆKBˆJNÃBˆÛÛœİ™[˜[YPİ\œ™[›Ú™XİH
-šYÙÙ\ˆS[[Y[
-HOˆÜ[“˜[YQX[ÙÊšYÙÙ\‹ÃBˆ]Nˆ	úaãydoyd#yméyê"ÉËšY[X™[ˆ	ùméyê"ùd#yéì	ËÛÛ™š\›SX™[ˆ	ù/çykf9d#yéì	Ë[š]X[˜[YNˆ›Ú™Xİ™Y‹˜İ\œ™[›˜[YK›Ü›X[^™Nˆ›Ü›X[^™T›Ú™Xİ˜[YKBˆÛÛÛ™š\›Nˆ
-˜[YJHOˆÃBˆ›ÚY
-\Ş[˜È
-
-HOˆÃBˆHÃBˆÊˆ9cê¹¥.yméyê"ùn¤úaã9æ¡9d#ykeûï&ùèàyææ9æë¹oeyd#y.#ycæ
-‹ÃBˆÛÛœÅj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^t entry = await window.storyWorkbench.library.rename(libraryKeyRef.current, name);
+  const createNewProject = (trigger: HTMLElement) => openNameDialog(trigger, {
+    title: 'æ–°å»ºå·¥ç¨‹', fieldLabel: 'å·¥ç¨‹åç§°', confirmLabel: 'ä¿å­˜å½“å‰å¹¶æ–°å»º', initialValue: 'æ–°å‰§æƒ…ä½œå“', normalize: normalizeProjectName,
+    description: 'å…ˆä¿å­˜å½“å‰å·¥ç¨‹ï¼Œå†æ–°å»ºä¸€ä¸ªç©ºç™½å·¥ç¨‹ã€‚æ–°å·¥ç¨‹ä¼šç•™åœ¨æœ¬åœ°å·¥ç¨‹åº“é‡Œï¼Œä¸‹æ¬¡æ‰“å¼€è¿˜èƒ½æ‰¾åˆ°ã€‚',
+    onConfirm: (name) => {
+      const next = renameProject(createBlankProject(), name);
+      void (async () => {
+        try {
+          await saveNow();
+          await pauseAutosave();
+          /* æ–°å·¥ç¨‹ç«‹åˆ»è½ç›˜æˆç‹¬ç«‹æ¡ç›®ï¼Œä¸éœ€è¦å…ˆå¦å­˜ ZIP */
+          const entry = await window.storyWorkbench.library.create(await packBytes(next, []), { name: next.name, projectId: next.id });
+          await refreshLibrary();
+          const ok = await switchToProject(entry.key, { message: `å·²æ–°å»ºå·¥ç¨‹â€œ${next.name}â€ï¼Œå®ƒç•™åœ¨æœ¬åœ°å·¥ç¨‹åº“é‡Œã€‚` });
+          if (!ok) setNotice('æ–°å»ºæœªå®Œæˆï¼Œä»åœ¨åŸå·¥ç¨‹ã€‚');
+        } catch (error) {
+          setNotice(error instanceof Error ? 'æ–°å»ºæœªå®Œæˆï¼š' + error.message : 'æ–°å»ºæœªå®Œæˆã€‚');
+        } finally {
+          autosaveSuppressed.current = false;
+          setProjectOperation(false);
+        }
+      })();
+      return undefined;
+    },
+  });
+  const renameCurrentProject = (trigger: HTMLElement) => openNameDialog(trigger, {
+    title: 'é‡å‘½åå·¥ç¨‹', fieldLabel: 'å·¥ç¨‹åç§°', confirmLabel: 'ä¿å­˜åç§°', initialValue: projectRef.current.name, normalize: normalizeProjectName,
+    onConfirm: (name) => {
+      void (async () => {
+        try {
+          /* åªæ”¹å·¥ç¨‹åº“é‡Œçš„åå­—ï¼›ç£ç›˜ç›®å½•åä¸å˜ */
+          const entry = await window.storyWorkbench.library.rename(libraryKeyRef.current, name);
           commitProject(renameProject(projectRef.current, name));
           await refreshLibrary();
           setNotice(`å·¥ç¨‹å·²æ”¹åä¸ºâ€œ${entry.name}â€ã€‚`);
@@ -1091,83 +2037,222 @@ HOˆÃBˆHÃBˆÊˆ9cê¹¥.yméyê"ùn¤úaã9æ¡9d#ykeûï&ùèàyææ9æë¹oeyd#
       setProjectOperation(true);
       await pauseAutosave();
       await window.storyWorkbench.library.save(key, await packBytes(projectRef.current, assetsRef.current), { protectCurrent: true });
-      await window.storyWorkbench.library.restoreApply(k¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•ä°‰åÑ•Ì¤ì4(€€€€€Á±…å•ÉI•˜¹ÕÉÉ•¹Ğ¹ÍÑ½À ¤ì4(€€€€€ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ€ôÉ•ÍÑ½É•¹ÁÉ½©•Ğì4(€€€€€…ÍÍ•ÑÍI•˜¹ÕÉÉ•¹Ğ€ôÉ•ÍÑ½É•¹…ÍÍ•ÑÌì4(€€€€€Í•ÑAÉ½©•Ğ¡É•ÍÑ½É•¹ÁÉ½©•Ğ¤ì4(€€€€€Í•ÑÍÍ•ÑÌ¡É•ÍÑ½É•¹…ÍÍ•ÑÌ¤ì4(€€€€€ÕÉÉ•¹ÑI•Ù¥•İQ½­•¹I•˜¹ÕÉÉ•¹Ğ€ô¹Õ±°ì4(€€€€€Í•Ñ‘¥Ñ½ÉÁ½  ¡ÕÉÉ•¹Ğ¤€ôøÕÉÉ•¹Ğ€¬€Ä¤ì4(€€€€€Í•ÑM•±•Ñ•‘1…å•É%¡¹Õ±°¤ì4(€€€€€Í•ÑM•±•Ñ•‘Õ•%¡½µÁ¥±•½Õµ•¹Ğ¡…Ñ¥Ù•¡…ÁÑ•È¡É•ÍÑ½É•¹ÁÉ½©•Ğ¤¹‘½Õµ•¹Ğ¥lÁtü¹¥€üü¹Õ±°¤ì4(€€€€€Í…Ù•‘Q•áÑ1•¹Ñ¡I•˜¹ÕÉÉ•¹Ğ€ô¡…ÁÑ•ÉQ•áÑ½Õ¹ÑÌ¡É•ÍÑ½É•¹ÁÉ½©•Ğ¤ì4(€€€€€Í…Ù•‘M¹…ÁÍ¡½ÑI•˜¹ÕÉÉ•¹Ğ€ôì­•ä°ÁÉ½©•ĞèÉ•ÍÑ½É•¹ÁÉ½©•Ğ°…ÍÍ•ÑÌèÉ•ÍÑ½É•¹…ÍÍ•ÑÌôì4(€€€€€ÕÁ‘…Ñ•M…Ù•1…‰•° Ÿ–ŞË’şw–¶`ƒ
-Üƒš‹–’7&#šr°œ¤ì4(€€€€€Í•ÑI•ÍÑ½É•Y•ÉÍ¥½¹Ì¡¹Õ±°¤ì4(€€€€€Í•Ñ9½Ñ¥” Ÿ–ŞËš‹–’7š&¦'–:–>Ë&#šr³¾òoš‹–’7–&7j–Ş—¢/’æ–ŞË’şwVg’âë–:–>Ëœ¤ì4(€€€ô…Ñ €¡•ÉÉ½È¤ì4(€€€€€Í•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€üƒš‹–’7–’Ç¢Ò—¾òh‘í•ÉÉ½È¹µ•ÍÍ…•õ€€è€Ÿš‹–’7–’Ç¢Ò—œ¤ì4(€€€ô™¥¹…±±äì4(€€€€€…ÕÑ½Í…Ù•MÕÁÁÉ•ÍÍ•¹ÕÉÉ•¹Ğ€ô™…±Í”ì4(€€€€€Í•ÑAÉ½©•Ñ=Á•É…Ñ¥½¸¡™…±Í”¤ì4(€€€ô4(€ôì4(4(€½¹ÍĞ•áÁ½ÉÑAÉ½©•Ğ€ô…Íå¹Œ€ ¤€ôøì4(€€€ÑÉäì4(€€€€€½¹ÍĞ‰åÑ•Ì€ô…İ…¥ĞÁ…­	åÑ•Ì¡ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ°…ÍÍ•ÑÍI•˜¹ÕÉÉ•¹Ğ¤ì4(€€€€€½¹ÍĞÑ…É•Ğ€ô…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹•áÁ½ÉÑAÉ½©•Ğ¡‰åÑ•Ì¤ì4(€€€€€¥˜€¡Ñ…É•Ğ¤Í•Ñ9½Ñ¥”¡ƒ–Ş—¢/–2–ŞË–¾ó–ë¾òh‘íÑ…É•Ñõ€¤ì4(€€€ô…Ñ €¡•ÉÉ½È¤ì4(€€€€€Í•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€üƒ–¾ó–ë–’Ç¢Ò—¾òh‘í•ÉÉ½È¹µ•ÍÍ…•õ€€è€Ÿ–¾ó–ë–’Ç¢Ò—œ¤ì4(€€€ô4(€ôì4(4(€½¹ÍĞ½Á•¹¥I•Ù¥•İáÁ½ÉĞ€ô€ ¤€ôøÍ•Ñ¥I•Ù¥•İMÑ…Ñ”¡ìµ½‘”è€•áÁ½ÉĞœ°Í½Á•QåÁ”èÍ•±•Ñ•‘É½ÕÁ%‘Ì¹±•¹Ñ €ü€É½ÕÁÌœ€è€¡…ÁÑ•Èœ°¥¹±Õ‘•5•‘¥„è™…±Í”°½…°è€œœô¤ì4(4(€€¼¼ƒ’úÿ¢¾ïj’ös–N¢¾Óšb;¾òk’â;–º‡¦b–2–ÇR£–B3’â’î÷–ş¯Ÿ¾ò3’â7’î;V3¦vˆ=4ƒ–7š*’âš²‡š¶šZ4(€€¼¼ƒ.³®,€¹µƒ’â7¦f–ªK’öO¾ò3š&’î—šb;†»’ò€™…±Í—¾ò3šZš†¦3’òk–gšâ‹šr«¦f–â›–ªK’öL‹4(€½¹ÍĞ•áÁ½ÉÑ]½É­•ÍÉ¥ÁÑ¥½¸€ô…Íå¹Œ€ ¤€ôøì4(€€€Í•Ñ¥I•Ù¥•İ	ÕÍä¡ÑÉÕ”¤ì4(€€€ÑÉäì4(€€€€€½¹ÍĞÕÉÉ•¹Ğ€ôÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğì4(€€€€€½¹ÍĞÍ½Á”€ôÍ•±•Ñ•‘É½ÕÁ%‘Ì¹±•¹Ñ €üìÑåÁ”è€É½ÕÁÌœ°¡…ÁÑ•É%èÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°É½ÕÁ%‘Ìèl¸¸¹Í•±•Ñ•‘É½ÕÁ%‘Ítô€èìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%èÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ôì4(€€€€€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÕÉÉ•¹Ğ°Í½Á”¤ì4(€€€€€½¹ÍĞ‰…Í•!…Í €ô…İ…¥ĞÉ•Ù¥•İ!…Í ¡Í¹…ÁÍ¡½Ğ¤ì4(€€€€€½¹ÍĞÑ•áĞ€ôÉ•…Ñ•]½É­•ÍÉ¥ÁÑ¥½¸¡Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °€œœ°¹•ÜM•Ğ ¤°™…±Í”¤ì4(€€€€€½¹ÍĞ™¥±•A…Ñ €ô…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹•áÁ½ÉÑ½Õµ•¹Ğ¡ìÍÕ•ÍÑ•‘9…µ”è€‘íÕÉÉ•¹Ğ¹¹…µ•ô·’ös–N¢¾Óšb9€°Ñ•áĞô¤ì4(€€€€€¥˜€ …™¥±•A…Ñ ¤É•ÑÕÉ¸ì4(€€€€€Í•Ñ9½Ñ¥”¡ƒ’ös–N¢¾Óšb;–ŞË–¾ó–ë¾òh‘í™¥±•A…Ñ¡÷–>¿nÓš:—š.[¢şo’îïš<$ƒ¢+–’§’öÿR£	€¤ì4(€€€ô…Ñ €¡•ÉÉ½È¤ì4(€€€€€Í•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€üƒ’ös–N¢¾Óšb;–¾ó–ë–’Ç¢Ò—¾òh‘í•ÉÉ½È¹µ•ÍÍ…•õ€€è€Ÿ’ös–N¢¾Óšb;–¾ó–ë–’Ç¢Ò—œ¤ì4(€€€ô™¥¹…±±äìÍ•Ñ¥I•Ù¥•İ	ÕÍä¡™…±Í”¤ìô4(€ôì4(4(€½¹ÍĞ•áÁ½ÉÑ¥I•Ù¥•Ü€ô…Íå¹Œ€¡½ÁÑ¥½¹ÌèìÍ½Á•QåÁ”è€ÁÉ½©•Ğœğ€¡…ÁÑ•Èœğ€É½ÕÁÌœì¥¹±Õ‘•5•‘¥„è‰½½±•…¸ì½…°èÍÑÉ¥¹œô¤€ôøì4(€€€Í•Ñ¥I•Ù¥•İ	ÕÍä¡ÑÉÕ”¤ì4(€€€ÑÉäì4(€€€€€½¹ÍĞÕÉÉ•¹Ğ€ôÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğì4(€€€€€½¹ÍĞÍ½Á”€ô½ÁÑ¥½¹Ì¹Í½Á•QåÁ”€ôôô€ÁÉ½©•Ğœ€üìÑåÁ”è€ÁÉ½©•Ğœô€è½ÁÑ¥½¹Ì¹Í½Á•QåÁ”€ôôô€¡…ÁÑ•Èœ€üìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%èÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ô€èìÑåÁ”è€É½ÕÁÌœ°¡…ÁÑ•É%èÕÉÉ•¹Ğ¹…Ñ¥Ù•¡…ÁÑ•É%°É½ÕÁ%‘Ìèl¸¸¹Í•±•Ñ•‘É½ÕÁ%‘Ítôì4(€€€€€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÕÉÉ•¹Ğ°Í½Á”¤ì4(€€€€€½¹ÍĞ‰…Í•!…Í €ô…İ…¥ĞÉ•Ù¥•İ!…Í ¡Í¹…ÁÍ¡½Ğ¤ì4(€€€€€½¹ÍĞì‰åÑ•Ì°™¥±•Ìô€ô…İ…¥ĞÉ•…Ñ•I•Ù¥•İÉ¡¥Ù”¡)Mi¥À°Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °½ÁÑ¥½¹Ì¹½…°°…ÍÍ•ÑÍI•˜¹ÕÉÉ•¹Ğ°½ÁÑ¥½¹Ì¹¥¹±Õ‘•5•‘¥„¤ì4(€€€€€½¹ÍĞ™¥±•A…Ñ €ô…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹•áÁ½ÉÑI•Ù¥•İA…¬¡‰åÑ•Ì¤ì4(€€€€€¥˜€ …™¥±•A…Ñ ¤ì4(€€€€€€€Í•Ñ¥I•Ù¥•İMÑ…Ñ”¡¹Õ±°¤ì4(€€€€€€€É•ÑÕÉ¸ì4(€€€€€ô4(€€€€€Í•Ñ¥I•Ù¥•İMÑ…Ñ”¡ìµ½‘”è€ÁÉ½µÁĞœ°™¥±•A…Ñ °ÁÉ½µÁĞè™¥±•ÍlŸšRç¢şoš>C’ë¢¾4¹µtô¤ì4(€€€€€Í•Ñ9½Ñ¥”¡$ƒ–º‡¦b–2–ŞË–¾ó–ë¾òh‘í™¥±•A…Ñ¡õ€¤ì4(€€€ô…Ñ €¡•ÉÉ½È¤ì4(€€€€€Í•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü$ƒ–º‡¦b–2–¾ó–ë–’Ç¢Ò—¾òh‘í•ÉÉ½È¹µ•ÍÍ…•õ€€è€$ƒ–º‡¦b–2–¾ó–ë–’Ç¢Ò—œ¤ì4(€€€ô™¥¹…±±äìÍ•Ñ¥I•Ù¥•İ	ÕÍä¡™…±Í”¤ìô4(€ôì4(4(€½¹ÍĞ¥µÁ½ÉÑ¥I•Ù¥•Ü€ô…Íå¹Œ€ ¤€ôøì4(€€€ÑÉäì4(€€€€€½¹ÍĞÍ•±•Ñ•€ô…İ…¥Ğİ¥¹‘½Ü¹ÍÑ½Éå]½É­‰•¹ ¹¥µÁ½ÉÑ¥¡…¹•Ì ¤ì4(€€€€€¥˜€ …Í•±•Ñ•¤É•ÑÕÉ¸ì4(€€€€€½¹ÍĞÁÉ½Á½Í…°€ô…İ…¥ĞÙ…±¥‘…Ñ•I•Ù¥•İ¡…¹•Ì¡ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ°Í•±•Ñ•¹Ñ•áĞ°ÁÉ½©•ÑI•˜¹ÕÉÉ•¹Ğ¹…ÍÍ•ÑÌ¤ì4(€€€€€Í•Ñ¥I•Ù¥•İMÑ…Ñ”¡ìµ½‘”è€¥µÁ½ÉĞœ°™¥±•9…µ”èÍ•±•Ñ•¹¹…µ”°É…İQ•áĞèÍ•±•Ñ•¹Ñ•áĞ°ÁÉ½Á½Í…°°¡•­•èÁÉ½Á½Í…°¹¡…¹•Ì¹µ…À  ¤€ôøÑÉÕ”¤ô¤ì4(€€€€€Í•Ñ9½Ñ¥”¡ÁÉ½Á½Í…°¹¡…¹•Ì¹±•¹Ñ €üƒ–ŞËš‚‡¦ª0€‘íÁÉ½Á½Í…°¹¡…¹•Ì¹±•¹Ñ¡ôƒšv‡–îë¢º»¾òo¢¾ß¦'š.§¢š–êSR£j¦†çn»	€€è€Ÿ–îë¢º»šZ’îÛ¦k¢ş–~ëêÿš‚‡¦ª3¾ò3’öšÊ‡šr'–>¿–êSR£j–>cšnÓœ¤ì4(€€€ô…Ñ €¡•ÉÉ½È¤ì4(€€€€€Í•Ñ9½Ñ¥”¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€üƒ–¾ó–—–îë¢º»–’Ç¢Ò—¾ò3–Ş—¢/šr«šnÓšRç¾òh‘í•ÉÉ½È¹µ•ÍÍ…•õ€€è€Ÿ–¾ó–—–îë¢º»–’Ç¢Ò—¾ò3–Ş—¢/šr«šnÓšRçœ¤ì4(€€€ô4(€ôì4(4(€½¹ÍĞ…ÁÁ±å¥I•Ù¥•Ü€ô…Íå¹Œ€¡Í•±•Ñ•‘%¹‘•á•Ìè¹Õµ‰•Émt¤€ôøì4(€€€¥˜€ …•‘¥Ñ½Èñğ…¥I•Ù¥•İMÑ…Ñ”ü¹µ½‘”€„ôô€¥µÁ½ÉĞœñğ€…Í•±•Ñ•‘%¹‘•á•Ì¹±•¹Ñ ¤É•ÑÕÉ¸ì4(€€€Í•Ñ¥I•Ù¥•İ	ÕÍä¡ÑÉÕ”¤ì4(€€€ÑÉäì4(€€€€€½¹ÍĞÕÉÉ•¹Ğ€ôÁÉ½©•ĞV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅå&Vbæ7W'&VçC°Ğ¢6öç7BfW&–f–VBÒv—BfÆ–FFU&Wf–Wt6†ævW2†7W'&VçBÂ•&Wf–Wu7FFRç&uFW‡BÂ7W'&VçBæ76WG2“°Ğ¢6öç7B6VÆV7FVD6†ævW2ÒfW&–f–VBæ6†ævW2æf–ÇFW"‚…ö6†ævS¢ç’Â–æFWƒ¢çVÖ&W"’Óâ6VÆV7FVD–æFW†W2æ–æ6ÇVFW2†–æFW‚’“°Ğ¢–b‚6VÆV7FVD6†ævW2æÆVæwF‚’F‡&÷ræWrW'&÷"‚~Šû~ˆ{>[	X»î˜KˆiÚ[»®Šêî8"r“°Ğ¢6öç7B&÷÷6ÂÒ²ââçfW&–f–VBÂ6†ævW3¢6VÆV7FVD6†ævW2Ó°Ğ¢6öç7BæW‡BÒÇ•&Wf–Wt6†ævW2†7W'&VçBÂ&÷÷6Â“°Ğ¢6öç7BæW‡D6†FW"Ò7F—fT6†FW"†æW‡B“°Ğ¢6öç7B†—7F÷'•Fö¶VâÒÖ¶T–B‚v’×&Wf–Wrr“°Ğ¢&Wf–Wt6†ævT†—7F÷'•&Vbæ7W'&VçBç6WB††—7F÷'•Fö¶VâÂ²&÷÷6ÂÂ6†FW$–C¢7W'&VçBæ7F—fT6†FW$–BÒ“°Ğ¢Æ–W%&Vbæ7W'&VçCòç7F÷‚“°Ğ¢ÖVF–6W76–öå&Vbæ7W'&VçCòç7F÷‚“°Ğ¢×W6–56W76–öå&Vbæ7W'&VçCòç7F÷‚“°Ğ¢&WÆ6TVF—F÷$Fö7VÖVçB†VF—F÷"ÂæW‡D6†FW"æFö7VÖVçBÂæW‡D6†FW"æw&÷W2ÂæW‡D6†FW"æ×W6–5&ævW2Â†—7F÷'•Fö¶VâÂ7W'&VçBæ7F—fT6†FW$–B“°Ğ¢6öÖÖ—E&ö¦V7B†æW‡B“°Ğ¢6WD•&Wf–Wu7FFR†çVÆÂ“°Ğ¢6WDæ÷F–6R†[{.[©NyJ‚G·6VÆV7FVD6†ævW2æÆVæwF‡ÒiÚ’[»®Šêî8.XúşyJ‚7G&Âµ¢KˆjÊi*N™Hi[Nh›KúîiK8&“°Ğ¢Ò6F6‚†W'&÷"’°Ğ¢6WDæ÷F–6R†W'&÷"–ç7Fæ6VöbW'&÷"ò[©NyJZK‹J^ûÈÎ[z^zˆ¾iÊ®i»NiKûÉ¢G¶W'&÷"æÖW76vWÖ¢~[©NyJZK‹J^ûÈÎ[z^zˆ¾iÊ®i»NiK8"r“°Ğ¢Òf–æÆÇ’²6WD•&Wf–Wt'W7’†fÇ6R“²ĞĞ¢Ó°Ğ Ğ¢6öç7B7F'EÆ–&6²Ò†ÖöFS¢7G&–ærÂçVÆÂ’Óâ°Ğ¢6öç7B–æFW‚ÒÆ–&6µ7F'D–æFW‚†7W'&VçEÆâÂ6VÆV7FVD7VT–BÂÖöFR“°Ğ¢6WEÆ•6W76–öå&Wf—6–öâ‚†7W'&VçB’Óâ7W'&VçB²“°Ğ¢Æ–W%&Vbæ7W'&VçBçÆ”g&öÒ†–æFW‚ÂÖöFR“°Ğ¢Ó°Ğ Ğ¢W6TVffV7B‚‚’Óâ°Ğ¢6öç7B¶W–F÷vâÒ†WfVçC¢¶W–&ö&DWfVçB’Óâ°Ğ¢–b†WfVçBæ¶W’ÓÓÒtW66RrbbG&t7F—fU&Vbæ7W'&VçB’°Ğ¢6æ6VÆÆVDG&u&Vbæ7W'&VçBÒG'VS°Ğ¢G&t7F—fU&Vbæ7W'&VçBÒfÇ6S°Ğ¢7F÷VFvTWF÷67&öÆÂ‚“°Ğ¢6WDG&÷†–çB†çVÆÂ“°Ğ¢&WGW&ã°Ğ¢ĞĞ¢–b‚6†÷VÆD†æFÆUÆ–&6µ76R†WfVçB’ÇÂæÖTF–ÆörÇÂ&W7F÷&UfW'6–öç2ÇÂVæF–æt×W6–2ÇÂ•&Wf–Wu7FFRÇÂ'F–6ÆU&Wf–WrÇÂ6öæf—&ÖF–öâÇÂw&÷W×W6–4F–ÆörÇÂ&ö¦V7D÷W&F–öâ’&WGW&ã°Ğ¢WfVçBç&WfVçDFVfVÇB‚“°Ğ¢6öç7B7FGW2ÒÆ–W%&Vbæ7W'&VçBç6æ6†÷Còâ‚’ç7FGW2óòÆ–W%7FFRç7FGW3°Ğ¢–b‡7FGW2ÓÓÒwÆ––ærr’Æ–W%&Vbæ7W'&VçBçW6R‚“°Ğ¢VÇ6R–b‡7FGW2ÓÓÒwW6VBr’Æ–W%&Vbæ7W'&VçBç&W7VÖR‚“°Ğ¢VÇ6R7F'EÆ–&6²†çVÆÂ“°Ğ¢Ó°Ğ¢v–æF÷ræFDWfVçDÆ—7FVæW"‚v¶W–F÷vârÂ¶W–F÷vâ“°Ğ¢&WGW&â‚’Óâv–æF÷rç&VÖ÷fTWfVçDÆ—7FVæW"‚v¶W–F÷vârÂ¶W–F÷vâ“°Ğ¢ÒÂ·Æ–W%7FFRç7FGW2Â6VÆV7FVD7VT–BÂ6†FW"æ–BÂæÖTF–ÆörÂ&W7F÷&UfW'6–öç2ÂVæF–æt×W6–2Â•&Wf–Wu7FFRÂ'F–6ÆU&Wf–WrÂ6öæf—&ÖF–öâÂw&÷W×W6–4F–ÆörÂ&ö¦V7D÷W&F–öåÒ“°Ğ Ğ¢6öç7B7FvT&6¶w&÷VæBÒ&6¶w&÷VæD76WBò°Ğ¢&6¶w&÷VæD–ÖvS¢Æ–æV"Öw&F–VçBƒ“FVrÇ&v&ƒBÃ‚ÃrÂã3’Ç&v&ƒBÃ‚ÃrÂã‚’’ÇW&Â‚"G¶ö&¦V7EW&Â†&6¶w&÷VæD76WB—Ò"–ÀĞ¢Ò¢·Ó°Ğ¢ò¢¢x+ZèÎšn˜:8Î[z^zˆ¾8ŞˆùÎXÙ^˜xÎy¨NXªKÙÎYîiKn‹[~ˆùÎXÙ^ûÈÎ˜şXXŞhÊKØş[z^KÙÎXË¢¢ğĞ¢6öç7B6Æ÷6UFööÆ&$ÖVçRÒ†WfVçC¢&V7BäÖ÷W6TWfVçCÄ…DÔÄVÆVÖVçCâ’Óâ°Ğ¢†WfVçBæ7W'&VçEF&vWBæ6Æ÷6W7B‚vFWF–Ç2r’2…DÔÄFWF–Ç4VÆVÖVçBÂçVÆÂ“òç&VÖ÷fTGG&–'WFR‚v÷Vâr“°Ğ¢Ó°Ğ¢ò¢¢{¸Nyºî[Ù^Xû>™JîûÉ®yºîj~iŠşŠ*¾Xû>™Jîy¨N˜*>KŠ®{¸NûÈÎKˆŞiŠşiùKˆjëR¢ğĞ¢6öç7B÷Väw&÷WÖVçRÒ†WfVçC¢&V7BäÖ÷W6TWfVçBÂw&÷W–C¢7G&–ær’Óâ°Ğ¢WfVçBç&WfVçDFVfVÇB‚“°Ğ¢WfVçBç7F÷&÷vF–öâ‚“°Ğ¢÷Våv÷&·76TÖVçR‡²¶–æC¢vw&÷WrÂ&ö¦V7D–C¢&ö¦V7Bæ–BÂ6†FW$–C¢6†FW"æ–BÂw&÷W–BÒÂWfVçBÂWfVçBæ7W'&VçEF&vWB“°Ğ¢Ó°Ğ¢ò¢¢[znKê~yºî[Ù^ûÉ®zºˆ¨"(i"{¸N8.š®[¨şhÈKÙÎY8˜xÎy¨NZéî™˜^{¸Nš®[¨şhêZûÎûÈÎKˆŞXúnZÙKˆK»Şyºî[Ù^š®[¨ş8"¢ğĞ¢6öç7B÷WFÆ–æUG&VRÒW6TÖVÖóÄ'&“Ç²6†FW#¢ç“²w&÷W3¢ç•µÓ²Væw&÷WVD6÷VçC¢çVÖ&W#²Væw&÷WVDf—'7D–C¢7G&–ærÂçVÆÂÓãâ‚‚’Óâ&ö¦V7Bæ6†FW'2æÖ‚‡6÷W&6S¢ç’’Óâ°Ğ¢6öç7B÷6—F–öç2ÒæWrÖÇ7G&–ærÂçVÖ&W#â‡6÷W&6RæFö7VÖVçBæ&Æö6·2æÖ‚†&Æö6³¢ç’Â–æFWƒ¢çVÖ&W"’Óâµ7G&–ær†&Æö6²æ–B’Â–æFW…Ò26öç7B’“°Ğ¢6öç7Bw&÷W2Ò²ââç6÷W&6Ræw&÷W5Òç6÷'B‚†¢ç’Â#¢ç’’Óâ‡÷6—F–öç2ævWB†ç&w&„–G5³Ò’óòÓ’Ò‡÷6—F–öç2ævWB†"ç&w&„–G5³Ò’óòÓ’“°Ğ¢6öç7Bw&÷WVBÒæWr6WB†w&÷W2æfÆDÖ‚†w&÷W¢ç’’Óâw&÷Wç&w&„–G2’“°Ğ¢6öç7BVæw&÷WVBÒ6÷W&6RæFö7VÖVçBæ&Æö6·2æf–ÇFW"‚†&Æö6³¢ç’’Óâw&÷WVBæ†2†&Æö6²æ–B’“°Ğ¢&WGW&â°Ğ¢6†FW#¢6÷W&6RÀĞ¢w&÷W3¢w&÷W2æÖ‚†w&÷W¢ç’’Óâ°Ğ¢6öç7B&ævRÒ×W6–5&ævTB‡6÷W&6RÂw&÷Wç&w&„–G5³Ò“°Ğ¢&WGW&â²ââæw&÷WÂ6÷VçC¢w&÷Wç&w&„–G2æÆVæwF‚ÂVF–ôæÖS¢76WG2æf–æB‚†76WB’Óâ76WBæ–BÓÓÒ&ævSòæ76WD–B“òææÖRóòçVÆÂÓ°Ğ¢Ò’ÀĞ¢Væw&÷WVD6÷VçC¢Væw&÷WVBæÆVæwF‚ÀĞ¢Væw&÷WVDf—'7D–C¢Væw&÷WVE³Óòæ–BóòçVÆÂÀĞ¢Ó°Ğ¢Ò’Â·&ö¦V7BÂ76WG5Ò“°Ğ¢ò¢¢[Ù>X˜Şh˜YÊ{¸NûÉ®‹yş™¨ş˜KŠŞy¨N˜*>KˆXú^ûÈÎKˆŞXúnZÙKˆK»Şx«nh¢ğĞ¢6öç7B7W'&VçDw&÷W–BÒ6VÆV7FVD7VPĞ¢ò†6†FW"æw&÷W2æf–æB‚†w&÷W¢ç’’Óâw&÷Wç&w&„–G2æ–æ6ÇVFW2‡6VÆV7FVD7VRç&w&„–B’“òæ–BóòçVÆÂĞ¢¢çVÆÃ°Ğ Ğ¢&WGW&â€Ğ¢ÆF—b6Æ74æÖSÒ&×6†VÆÂ#àĞ¢Æ†VFW"6Æ74æÖSÒ'F÷&"#àĞ¢ÆF—b6Æ74æÖSÒ&'&æB#ãÇ7â6Æ74æÖSÒ&'&æBÖÖ&²#îXšsÂ÷7ããÆF—cãÇ7G&öæsîXš~h8^X‰¾KÑZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{§9méy/g9cìÜİ›Û™ÏÛX[”ÕÔ–HÓÔ’Ğ‘SÒÜÛX[Ù]Ù]ƒBˆÙ[XİÛ\ÜÓ˜[YOH˜Ú\\‹X]Ûˆˆ\šXK[X™[H¹odùbcyêè:" ˆˆ˜[YO^Ü›Ú™Xİ˜Xİ]™PÚ\\’YHÛÚ[™ÙO^Ê]™[
-HOˆİÚ]ÚÚ\\Š]™[\™Ù]˜[YJ_OÜ›Ú™Xİ˜Ú\\œË›X\
+      await window.storyWorkbench.library.restoreApply(key, bytes);
+      playerRef.current.stop();
+      projectRef.current = restored.project;
+      assetsRef.current = restored.assets;
+      setProject(restored.project);
+      setAssets(restored.assets);
+      currentReviewTokenRef.current = null;
+      setEditorEpoch((current) => current + 1);
+      setSelectedLayerId(null);
+      setSelectedCueId(compileDocument(activeChapter(restored.project).document)[0]?.id ?? null);
+      savedTextLengthRef.current = chapterTextCounts(restored.project);
+      savedSnapshotRef.current = { key, project: restored.project, assets: restored.assets };
+      updateSaveLabel('å·²ä¿å­˜ Â· æ¢å¤ç‰ˆæœ¬');
+      setRestoreVersions(null);
+      setNotice('å·²æ¢å¤æ‰€é€‰å†å²ç‰ˆæœ¬ï¼›æ¢å¤å‰çš„å·¥ç¨‹ä¹Ÿå·²ä¿ç•™ä¸ºå†å²ã€‚');
+    } catch (error) {
+      setNotice(error instanceof Error ? `æ¢å¤å¤±è´¥ï¼š${error.message}` : 'æ¢å¤å¤±è´¥ã€‚');
+    } finally {
+      autosaveSuppressed.current = false;
+      setProjectOperation(false);
+    }
+  };
 
-][Nˆ[JHOˆÜ[ÛˆÙ^O^Ú][KšYH˜[YO^Ú][KšYOÚ][K›˜[Y_OÛÜ[ÛŠ_OÜÙ[XİƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ]OHºaãydoyd#yodùbcyêè:" ˆˆÛÛXÚÏ^Ê]™[
-HOˆ™[˜[YPXİ]™PÚ\\Š]™[˜İ\œ™[\™Ù]
-_O¹¥.yd#OØ]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ]OH¹b(:fi9odùbcyêè:" ˆˆ\ØX›Y^Ü›Ú™Xİ˜Ú\\œË›[™İH_HÛÛXÚÏ^Ù[]Pİ\œ™[Ú\\ŸO¹b(:fi9êèØ]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ]OH¹¥¬9nî¹êè:" ˆˆÛÛXÚÏ^Ê]™[
-HOˆÜ™X]S™]ĞÚ\\Š]™[˜İ\œ™[\™Ù]
-_O»ï"ùêè:" Ø]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ]O^ØÚ\\’[™^HÈ	ùmì¹¦+ùë+9. 9êè	Èˆ	ùêè:" ¹."¹éîÉßH\šXK[X™[^ØÚ\\’[™^HÈ	ùêè:" ¹."¹éîûï"9mì¹¦+ùë+9. 9êè;ï"IÈˆ	ùêè:" ¹."¹éîÉßH\ØX›Y^ØÚ\\’[™^HHÛÛXÚÏ^Ê
-HOˆÛÛ[Z]›Ú™Xİ
-™[Ü™\Ú\\Š›Ú™Xİ™Y‹˜İ\œ™[Ú\\‹šYLJJ_O¸¡¤OØ]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ]O^ØÚ\\’[™^H›Ú™Xİ˜Ú\\œË›[™İHHÈ	ùmì¹¦+ù§ 9d#¹. 9êè	Èˆ	ùêè:" ¹."ùéîÉßH\šXK[X™[^ØÚ\\’[™^H›Ú™Xİ˜Ú\\œË›[™İHHÈ	ùêè:" ¹."ùéîûï"9mì¹¦+ù§ 9d#¹. 9êè;ï"IÈˆ	ùêè:" ¹."ùéîÉßH\ØX›Y^ØÚ\\’[™^H›Ú™Xİ˜Ú\\œË›[™İH_HÛÛXÚÏ^Ê
-HOˆÛÛ[Z]›Ú™Xİ
-™[Ü™\Ú\\Š›Ú™Xİ™Y‹˜İ\œ™[Ú\\‹šYJJ_O¸¡¤ÏØ]ÛƒBˆ]ˆÛ\ÜÓ˜[YO^ØØ]™K\İ]H	ÜØ]™SX™[š[˜ÛY\Ê	ùi,z-)IÊHÈ	Ù\œ›Ü‰Èˆ	ÉßXH]O^ÜØ]™U\™Ù]ÏÈ	ù§+9§.º!ê¹bª9/çykf9méyê"ÉßOHÏÜØ]™SX™[OÙ]ƒBˆ]ˆÛ\ÜÓ˜[YOHÜXXİ[ÛœÈƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆÛÛXÚÏ^Ê
-HOˆ›ÚYØ]™S›İÊ
-K˜Ø]Ú
+  const exportProject = async () => {
+    try {
+      const bytes = await packBytes(projectRef.current, assetsRef.current);
+      const target = await window.storyWorkbench.exportProject(bytes);
+      if (target) setNotice(`å·¥ç¨‹åŒ…å·²å¯¼å‡ºï¼š${target}`);
+    } catch (error) {
+      setNotice(error instanceof Error ? `å¯¼å‡ºå¤±è´¥ï¼š${error.message}` : 'å¯¼å‡ºå¤±è´¥ã€‚');
+    }
+  };
 
+  const openAiReviewExport = () => setAiReviewState({ mode: 'export', scopeType: selectedGroupIds.length ? 'groups' : 'chapter', includeMedia: false, goal: '' });
 
-HOˆßJ_O¹/çykfØ]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆÛÛXÚÏ^Ê
-HOˆ›ÚYØ]™S›İÊYJK˜Ø]Ú
+  // ä¾¿è¯»çš„ä½œå“è¯´æ˜ï¼šä¸å®¡é˜…åŒ…å…±ç”¨åŒä¸€ä»½å¿«ç…§ï¼Œä¸ä»ç•Œé¢ DOM å†æŠ„ä¸€æ¬¡æ­£æ–‡ã€‚
+  // ç‹¬ç«‹ .md ä¸é™„åª’ä½“ï¼Œæ‰€ä»¥æ˜ç¡®ä¼  falseï¼Œæ–‡æ¡£é‡Œä¼šå†™æ¸…"æœªé™„å¸¦åª’ä½“"ã€‚
+  const exportWorkDescription = async () => {
+    setAiReviewBusy(true);
+    try {
+      const current = projectRef.current;
+      const scope = selectedGroupIds.length ? { type: 'groups', chapterId: current.activeChapterId, groupIds: [...selectedGroupIds] } : { type: 'chapter', chapterId: current.activeChapterId };
+      const snapshot = createReviewSnapshot(current, scope);
+      const baseHash = await reviewHash(snapshot);
+      const text = createWorkDescription(snapshot, baseHash, '', new Set(), false);
+      const filePath = await window.storyWorkbench.exportDocument({ suggestedName: `${current.name}-ä½œå“è¯´æ˜`, text });
+      if (!filePath) return;
+      setNotice(`ä½œå“è¯´æ˜å·²å¯¼å‡ºï¼š${filePath}ã€‚å¯ç›´æ¥æ‹–è¿›ä»»æ„ AI èŠå¤©ä½¿ç”¨ã€‚`);
+    } catch (error) {
+      setNotice(error instanceof Error ? `ä½œå“è¯´æ˜å¯¼å‡ºå¤±è´¥ï¼š${error.message}` : 'ä½œå“è¯´æ˜å¯¼å‡ºå¤±è´¥ã€‚');
+    } finally { setAiReviewBusy(false); }
+  };
 
+  const exportAiReview = async (options: { scopeType: 'project' | 'chapter' | 'groups'; includeMedia: boolean; goal: string }) => {
+    setAiReviewBusy(true);
+    try {
+      const current = projectRef.current;
+      const scope = options.scopeType === 'project' ? { type: 'project' } : options.scopeType === 'chapter' ? { type: 'chapter', chapterId: current.activeChapterId } : { type: 'groups', chapterId: current.activeChapterId, groupIds: [...selectedGroupIds] };
+      const snapshot = createReviewSnapshot(current, scope);
+      const baseHash = await reviewHash(snapshot);
+      const { bytes, files } = await createReviewArchive(JSZip, snapshot, baseHash, options.goal, assetsRef.current, options.includeMedia);
+      const filePath = await window.storyWorkbench.exportReviewPack(bytes);
+      if (!filePath) {
+        setAiReviewState(null);
+        return;
+      }
+      setAiReviewState({ mode: 'prompt', filePath, prompt: files['æ”¹è¿›æç¤ºè¯.md'] });
+      setNotice(`AI å®¡é˜…åŒ…å·²å¯¼å‡ºï¼š${filePath}`);
+    } catch (error) {
+      setNotice(error instanceof Error ? `AI å®¡é˜…åŒ…å¯¼å‡ºå¤±è´¥ï¼š${error.message}` : 'AI å®¡é˜…åŒ…å¯¼å‡ºå¤±è´¥ã€‚');
+    } finally { setAiReviewBusy(false); }
+  };
 
-HOˆßJ_O¹cé¹kf9..Ø]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ\ØX›Y^ÈYY]ÜË˜Ø[Š
-K[™Ê
-_HÛÛXÚÏ^Ê
-HOˆY]ÜË˜ÚZ[Š
-K™›Øİ\Ê
-K[™Ê
-Kœ[Š
-_O¹¤©:e Ø]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ\ØX›Y^ÈYY]ÜË˜Ø[Š
-Kœ™YÊ
-_HÛÛXÚÏ^Ê
-HOˆY]ÜË˜ÚZ[Š
-K™›Øİ\Ê
-Kœ™YÊ
-Kœ[Š
-_Oºaãy`fØ]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆÛÛXÚÏ^Ê
-HOˆİ\^X˜XÚÊ[
-_O¹.ã¹odùbcycézh¡:)âØ]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆš[X\HˆÛÛXÚÏ^Ê
-HOˆİ\^X˜XÚÊ	Ø]]ÉÊ_O¹¤«y¥/¹§+9êèÛX[º!ê¹bªÜÛX[Ø]ÛƒBˆ]Z[ÈÛ\ÜÓ˜[YOHÛÛ˜\‹[Y[Hˆ™Y^ÛXœ˜\SY[T™YŸOƒBˆİ[[X\O¹b!ù£h¹méyê"ÏÜİ[[X\OƒBˆ]ˆÛ\ÜÓ˜[YOHÛÛ˜\‹[Y[K\[™[Xœ˜\K\[™[ƒBˆÛ\ÜÓ˜[YOH›Xœ˜\KZ[¹§+9g,9méyê"ùn¤È0­È9alHÛXœ˜\T›Ú™XİË›[™İH9.ïxà ¹¥¬9nîº/áùæ¡9méyê"ú`ïy/&¹åfyg*:/æzaã;ï#9alúeëzaãyo 9.gú ïy¢o¹b,8à ÜƒBˆÛXœ˜\T›Ú™XİË›X\
+  const importAiReview = async () => {
+    try {
+      const selected = await window.storyWorkbench.importAiChanges();
+      if (!selected) return;
+      const proposal = await validateReviewChanges(projectRef.current, selected.text, projectRef.current.assets);
+      setAiReviewState({ mode: 'import', fileName: selected.name, rawText: selected.text, proposal, checked: proposal.changes.map(() => true) });
+      setNotice(proposal.changes.length ? `å·²æ ¡éªŒ ${proposal.changes.length} æ¡å»ºè®®ï¼›è¯·é€‰æ‹©è¦åº”ç”¨çš„é¡¹ç›®ã€‚` : 'å»ºè®®æ–‡ä»¶é€šè¿‡åŸºçº¿æ ¡éªŒï¼Œä½†æ²¡æœ‰å¯åº”ç”¨çš„å˜æ›´ã€‚');
+    } catch (error) {
+      setNotice(error instanceof Error ? `å¯¼å…¥å»ºè®®å¤±è´¥ï¼Œå·¥ç¨‹æœªæ›´æ”¹ï¼š${error.message}` : 'å¯¼å…¥å»ºè®®å¤±è´¥ï¼Œå·¥ç¨‹æœªæ›´æ”¹ã€‚');
+    }
+  };
 
-[JHOˆ
-Bˆ]ÛˆÙ^O^Ù[KšÙ^_HÛ\ÜÓ˜[YO^Ù[KšÙ^HOOHXœ˜\RÙ^HÈ	Øİ\œ™[	Èˆ	ÉßH\ØX›Y^Ü›Ú™XİÜ\˜][ÛŸHÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈ›ÚYİÚ]ÚÔ›Ú™Xİ
-[KšÙ^JNÈ_OƒBˆÜ[Ù[K›˜[Y_^Ù[KšÙ^HOOHXœ˜\RÙ^HÈ¹odùbcOØˆˆ[OÜÜ[ƒBˆÛX[Ù›Ü›X]Xœ˜\U[YJ[K\]Y]
-_OÜÛX[ƒBˆØ]ÛƒBˆ
-J_CBˆÈ[Xœ˜\T›Ú™XİË›[™İ	‰ˆÛ\ÜÓ˜[YOH›Xœ˜\KZ[¹méyê"ùn¤ú/æ9¦+ùên¹æ¡8à ÜŸCBˆˆÏƒBˆ]Ûˆ\ØX›Y^Ü›Ú™XİÜ\˜][ÛŸHÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈ›ÚY[\Ü›Ú™Xİ
+  const applyAiReview = async (selectedIndexes: number[]) => {
+    if (!editor || aiReviewState?.mode !== 'import' || !selectedIndexes.length) return;
+    setAiReviewBusy(true);
+    try {
+      const current = projectRef.current;
+      const verified = await validateReviewChanges(current, aiReviewState.rawText, current.assets);
+      const selectedChanges = verified.changes.filter((_change: any, index: number) => selectedIndexes.includes(index));
+      if (!selectedChanges.length) throw new Error('è¯·è‡³å°‘å‹¾é€‰ä¸€æ¡å»ºè®®ã€‚');
+      const proposal = { ...verified, changes: selectedChanges };
+      const next = applyReviewChanges(current, proposal);
+      const nextChapter = activeChapter(next);
+      const historyToken = makeId('ai-review');
+      reviewChangeHistoryRef.current.set(historyToken, { proposal, chapterId: current.activeChapterId });
+      playerRef.current?.stop();
+      mediaSessionRef.current?.stop();
+      musicSessionRef.current?.stop();
+      replaceEditorDocument(editor, nextChapter.document, nextChapter.groups, nextChapter.musicRanges, historyToken, current.activeChapterId);
+      commitProject(next);
+      setAiReviewState(null);
+      setNotice(`å·²åº”ç”¨ ${selectedChanges.length} æ¡ AI å»ºè®®ã€‚å¯ç”¨ Ctrl+Z ä¸€æ¬¡æ’¤é”€æ•´æ‰¹ä¿®æ”¹ã€‚`);
+    } catch (error) {
+      setNotice(error instanceof Error ? `åº”ç”¨å¤±è´¥ï¼Œå·¥ç¨‹æœªæ›´æ”¹ï¼š${error.message}` : 'åº”ç”¨å¤±è´¥ï¼Œå·¥ç¨‹æœªæ›´æ”¹ã€‚');
+    } finally { setAiReviewBusy(false); }
+  };
 
-NÈ_O¹kï9aiyméyê"ùc!OÛX[¹b¨9aiyméyê"ùn¤ÏÜÛX[Ø]ÛƒBˆ]Ûˆ\ØX›Y^Ü›Ú™XİÜ\˜][ÛŸHÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈÜ™X]S™]Ô›Ú™Xİ
-]™[˜İ\œ™[\™Ù]
-NÈ_O¹¥¬9nî¹méyê"ÏÛX[¹b¨9aiyméyê"ùn¤ÏÜÛX[Ø]ÛƒBˆÙ]ƒBˆÙ]Z[ÏƒBˆ]Z[ÈÛ\ÜÓ˜[YOHÛÛ˜\‹[Y[HƒBˆİ[[X\O¹méyê"ÏÜİ[[X\OƒBˆ]ˆÛ\ÜÓ˜[YOHÛÛ˜\‹[Y[K\[™[ƒBˆ]ÛˆÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈ›ÚY^Ü›Ú™Xİ
+  const startPlayback = (mode: string | null) => {
+    const index = playbackStartIndex(currentPlan, selectedCueId, mode);
+    setPlaySessionRevision((current) => current + 1);
+    playerRef.current.playFrom(index, mode);
+  };
 
-NÈ_O¹kï9aî¹méyê"ùc!OÛX[–’T
-È9í(9§dÜÛX[Ø]ÛƒBˆ]ÛˆÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈ›ÚY[\Ü›Ú™Xİ
+  useEffect(() => {
+    const keydown = (event: KeyboardEvent) => {
+      if (event.key === 'Escape' && dragActiveRef.current) {
+        cancelledDragRef.current = true;
+        dragActiveRef.current = false;
+        stopEdgeAutoscroll();
+        setDropHint(null);
+        return;
+      }
+      if (!shouldHandlePlaybackSpace(event) || nameDialog || restoreVersions || pendingMusic || aiReviewState || articlePreview || confirmation || groupMusicDialog || projectOperation) return;
+      event.preventDefault();
+      const status = playerRef.current.snapshot?.().status ?? playerState.status;
+      if (status === 'playing') playerRef.current.pause();
+      else if (status === 'paused') playerRef.current.resume();
+      else startPlayback(null);
+    };
+    window.addEventListener('keydown', keydown);
+    return () => window.removeEventListener('keydown', keydown);
+  }, [playerState.status, selectedCueId, chapter.id, nameDialog, restoreVersions, pendingMusic, aiReviewState, articlePreview, confirmation, groupMusicDialog, projectOperation]);
 
-NÈ_O¹kï9aiyméyê"ÏÛX[¹¢dùo 9mì¹§"yméyê"ùc!OÜÛX[Ø]ÛƒBˆˆÏƒBˆ]Ûˆ\ØX›Y^ØZT™]šY]Ğ\Ş_HÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈ›ÚY^ÜÛÜšÑ\ØÜš\[ÛŠ
-NÈ_O¹kï9aî¹/g9dàz+í9¦#ÛX[¹cey.ïHX\šÙİÛ»ï#RH9cëú+îÏÜÛX[Ø]ÛƒBˆ]Ûˆ\ØX›Y^ØZT™]šY]Ğ\Ş_HÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈÜ[ZT™]šY]Ñ^Ü
+  const stageBackground = backgroundAsset ? {
+    backgroundImage: `linear-gradient(90deg,rgba(14,18,17,.30),rgba(14,18,17,.08)),url("${objectUrl(backgroundAsset)}")`,
+  } : {};
+  /** ç‚¹å®Œé¡¶éƒ¨ã€Œå·¥ç¨‹ã€èœå•é‡Œçš„åŠ¨ä½œåæ”¶èµ·èœå•ï¼Œé¿å…æŒ¡ä½å·¥ä½œåŒº */
+  const closeToolbarMenu = (event: React.MouseEvent<HTMLElement>) => {
+    (event.currentTarget.closest('details') as HTMLDetailsElement | null)?.removeAttribute('open');
+  };
+  /** ç»„ç›®å½•å³é”®ï¼šç›®æ ‡æ˜¯è¢«å³é”®çš„é‚£ä¸ªç»„ï¼Œä¸æ˜¯æŸä¸€æ®µ */
+  const openGroupMenu = (event: React.MouseEvent, groupId: string) => {
+    event.preventDefault();
+    event.stopPropagation();
+    openWorkspaceMenu({ kind: 'group', projectId: project.id, chapterId: chapter.id, groupId }, event, event.currentTarget);
+  };
+  /** å·¦ä¾§ç›®å½•ï¼šç« èŠ‚ â†’ ç»„ã€‚é¡ºåºæŒ‰ä½œå“é‡Œçš„å®é™…ç»„é¡ºåºæ¨å¯¼ï¼Œä¸å¦å­˜ä¸€ä»½ç›®å½•é¡ºåºã€‚ */
+  const outlineTree = useMemo<Array<{ chapter: any; groups: any[]; ungroupedCount: number; ungroupedFirstId: string | null }>>(() => project.chapters.map((source: any) => {
+    const positions = new Map<string, number>(source.document.blocks.map((block: any, index: number) => [String(block.id), index] as const));
+    const groups = [...source.groups].sort((a: any, b: any) => (positions.get(a.paragraphIds[0]) ?? -1) - (positions.get(b.paragraphIds[0]) ?? -1));
+    const grouped = new Set(groups.flatMap((group: any) => group.paragraphIds));
+    const ungrouped = source.document.blocks.filter((block: any) => !grouped.has(block.id));
+    return {
+      chapter: source,
+      groups: groups.map((group: any) => {
+        const range = musicRangeAt(source, group.paragraphIds[0]);
+        return { ...group, count: group.paragraphIds.length, audioName: assets.find((asset) => asset.id === range?.assetId)?.name ?? null };
+      }),
+      ungroupedCount: ungrouped.length,
+      ungroupedFirstId: ungrouped[0]?.id ?? null,
+    };
+  }), [project, assets]);
+  /** å½“å‰æ‰€åœ¨ç»„ï¼šè·Ÿéšé€‰ä¸­çš„é‚£ä¸€å¥ï¼Œä¸å¦å­˜ä¸€ä»½çŠ¶æ€ */
+  const currentGroupId = selectedCue
+    ? (chapter.groups.find((group: any) => group.paragraphIds.includes(selectedCue.paragraphId))?.id ?? null)
+    : null;
 
-NÈ_O¹kï9aî¹k£9¥m9k¨zf!yc!OÛX[–’T
-È9£ä9é.º+ã{ï#9cëú`"yj¤¹/dÏÜÛX[Ø]ÛƒBˆ]Ûˆ\ØX›Y^ØZT™]šY]Ğ\Ş_HÛÛXÚÏ^Ê]™[
-HOˆÈÛÜÙUÛÛ˜\“Y[J]™[
-NÈ›ÚY[\ÜZT™]šY]Ê
-NÈ_O¹kï9aiy¥.z/æùnîº+«ÛX[¹£"ymë¹o ¹n¥9å*ÜÛX[Ø]ÛƒBˆÙ]ƒBˆÙ]Z[ÏƒBˆ]ÛˆÛ\ÜÓ˜[YOH[YK]ÙÙÛHˆ]OHº$çznäz` ¹d":eoù¥íºeí9b&ù/g9.#¹ç"ùå.úgh»ï#:$çyæoz` ¹d":+îúeoù¥¡ÈˆÛÛXÚÏ^ÛÛ•ÙÙÛU[Y_Oºacz"lj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^b>{theme === 'ink' ? 'è“é»‘' : 'è“ç™½'}</b></button>
+  return (
+    <div className="app-shell">
+      <header className="topbar">
+        <div className="brand"><span className="brand-mark">å‰§</span><div><strong>å‰§æƒ…åˆ›ä½œå·¥ä½œå°</strong><small>STORY WORKBENCH</small></div></div>
+        <select className="chapter-button" aria-label="å½“å‰ç« èŠ‚" value={project.activeChapterId} onChange={(event) => switchChapter(event.target.value)}>{project.chapters.map((item: any) => <option key={item.id} value={item.id}>{item.name}</option>)}</select>
+        <button className="button quiet" title="é‡å‘½åå½“å‰ç« èŠ‚" onClick={(event) => renameActiveChapter(event.currentTarget)}>æ”¹å</button>
+        <button className="button quiet" title="åˆ é™¤å½“å‰ç« èŠ‚" disabled={project.chapters.length <= 1} onClick={deleteCurrentChapter}>åˆ é™¤ç« </button>
+        <button className="button quiet" title="æ–°å»ºç« èŠ‚" onClick={(event) => createNewChapter(event.currentTarget)}>ï¼‹ç« èŠ‚</button>
+        <button className="button quiet" title={chapterIndex <= 0 ? 'å·²æ˜¯ç¬¬ä¸€ç« ' : 'ç« èŠ‚ä¸Šç§»'} aria-label={chapterIndex <= 0 ? 'ç« èŠ‚ä¸Šç§»ï¼ˆå·²æ˜¯ç¬¬ä¸€ç« ï¼‰' : 'ç« èŠ‚ä¸Šç§»'} disabled={chapterIndex <= 0} onClick={() => commitProject(reorderChapter(projectRef.current, chapter.id, -1))}>â†‘</button>
+        <button className="button quiet" title={chapterIndex >= project.chapters.length - 1 ? 'å·²æ˜¯æœ€åä¸€ç« ' : 'ç« èŠ‚ä¸‹ç§»'} aria-label={chapterIndex >= project.chapters.length - 1 ? 'ç« èŠ‚ä¸‹ç§»ï¼ˆå·²æ˜¯æœ€åä¸€ç« ï¼‰' : 'ç« èŠ‚ä¸‹ç§»'} disabled={chapterIndex >= project.chapters.length - 1} onClick={() => commitProject(reorderChapter(projectRef.current, chapter.id, 1))}>â†“</button>
+        <div className={`save-state ${saveLabel.includes('å¤±è´¥') ? 'error' : ''}`} title={saveTarget ?? 'æœ¬æœºè‡ªåŠ¨ä¿å­˜å·¥ç¨‹'}><i />{saveLabel}</div>
+        <div className="top-actions">
+          <button className="button quiet" onClick={() => void saveNow().catch(() => {})}>ä¿å­˜</button>
+          <button className="button quiet" onClick={() => void saveNow(true).catch(() => {})}>å¦å­˜ä¸º</button>
+          <button className="button quiet" disabled={!editor?.can().undo()} onClick={() => editor?.chain().focus().undo().run()}>æ’¤é”€</button>
+          <button className="button quiet" disabled={!editor?.can().redo()} onClick={() => editor?.chain().focus().redo().run()}>é‡åš</button>
+          <button className="button quiet" onClick={() => startPlayback(null)}>ä»å½“å‰å¥é¢„è§ˆ</button>
+          <button className="button primary" onClick={() => startPlayback('auto')}>æ’­æ”¾æœ¬ç«  <small>è‡ªåŠ¨</small></button>
+          <details className="toolbar-menu" ref={libraryMenuRef}>
+            <summary>åˆ‡æ¢å·¥ç¨‹</summary>
+            <div className="toolbar-menu-panel library-panel">
+              <p className="library-hint">æœ¬åœ°å·¥ç¨‹åº“ Â· å…± {libraryProjects.length} ä»½ã€‚æ–°å»ºè¿‡çš„å·¥ç¨‹éƒ½ä¼šç•™åœ¨è¿™é‡Œï¼Œå…³é—­é‡å¼€ä¹Ÿèƒ½æ‰¾åˆ°ã€‚</p>
+              {libraryProjects.map((entry) => (
+                <button key={entry.key} className={entry.key === libraryKey ? 'current' : ''} disabled={projectOperation} onClick={(event) => { closeToolbarMenu(event); void switchToProject(entry.key); }}>
+                  <span>{entry.name}{entry.key === libraryKey ? <b>å½“å‰</b> : null}</span>
+                  <small>{formatLibraryTime(entry.updatedAt)}</small>
+                </button>
+              ))}
+              {!libraryProjects.length && <p className="library-hint">å·¥ç¨‹åº“è¿˜æ˜¯ç©ºçš„ã€‚</p>}
+              <hr />
+              <button disabled={projectOperation} onClick={(event) => { closeToolbarMenu(event); void importProject(); }}>å¯¼å…¥å·¥ç¨‹åŒ…<small>åŠ å…¥å·¥ç¨‹åº“</small></button>
+              <button disabled={projectOperation} onClick={(event) => { closeToolbarMenu(event); createNewProject(event.currentTarget); }}>æ–°å»ºå·¥ç¨‹<small>åŠ å…¥å·¥ç¨‹åº“</small></button>
+            </div>
+          </details>
+          <details className="toolbar-menu">
+            <summary>å·¥ç¨‹</summary>
+            <div className="toolbar-menu-panel">
+              <button onClick={(event) => { closeToolbarMenu(event); void exportProject(); }}>å¯¼å‡ºå·¥ç¨‹åŒ…<small>ZIP + ç´ æ</small></button>
+              <button onClick={(event) => { closeToolbarMenu(event); void importProject(); }}>å¯¼å…¥å·¥ç¨‹<small>æ‰“å¼€å·²æœ‰å·¥ç¨‹åŒ…</small></button>
+              <hr />
+              <button disabled={aiReviewBusy} onClick={(event) => { closeToolbarMenu(event); void exportWorkDescription(); }}>å¯¼å‡ºä½œå“è¯´æ˜<small>å•ä»½ Markdownï¼ŒAI å¯è¯»</small></button>
+              <button disabled={aiReviewBusy} onClick={(event) => { closeToolbarMenu(event); openAiReviewExport(); }}>å¯¼å‡ºå®Œæ•´å®¡é˜…åŒ…<small>ZIP + æç¤ºè¯ï¼Œå¯é€‰åª’ä½“</small></button>
+              <button disabled={aiReviewBusy} onClick={(event) => { closeToolbarMenu(event); void importAiReview(); }}>å¯¼å…¥æ”¹è¿›å»ºè®®<small>æŒ‰å·®å¼‚åº”ç”¨</small></button>
+            </div>
+          </details>
+          <button className="theme-toggle" title="è“é»‘é€‚åˆé•¿æ—¶é—´åˆ›ä½œä¸çœ‹ç”»é¢ï¼Œè“ç™½é€‚åˆè¯»é•¿æ–‡" onClick={onToggleTheme}>é…è‰²<b>{theme === 'ink' ? 'è“é»‘' : 'è“ç™½'}</b></button>
         </div>
       </header>
 
@@ -1199,53 +2284,113 @@ NÈ_O¹kï9aiy¥.z/æùnîº+«ÛX[¹£"ymë¹o ¹n¥9å*ÜÛX[Ø]ÛƒBˆÙ
                     <span>{item.chapter.name}</span>
                     <small>{item.chapter.document.blocks.length} æ®µ Â· {item.groups.length} ç»„</small>
                   </button>
-                  <div className="o¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±yÕÑ±¥¹”µ¡…ÁÑ•ÈµÉ½ÕÁÌˆø4(€€€€€€€€€€€€€€€€€€€í¥Ñ•´¹É½ÕÁÌ¹µ…À ¡É½ÕÀè…¹ä°¥¹‘•àè¹Õµ‰•È¤€ôø€ 4(€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”õí½ÕÑ±¥¹”µÉ½ÕÀµÉ½Ü€‘íÕÉÉ•¹ÑÉ½ÕÁ%€ôôôÉ½ÕÀ¹¥€ü€…Ñ¥Ù”œ€è€œô€‘í±½…Ñ•‘É½ÕÁ%€ôôôÉ½ÕÀ¹¥€ü€±½…Ñ•œ€è€œô€‘í‘É½Á!¥¹Ğü¹É½ÕÁ%€ôôôÉ½ÕÀ¹¥€ü€‘É½ÀµÑ…É•Ğœ€è€œõô­•äõíÉ½ÕÀ¹¥‘ô4(€€€€€€€€€€€€€€€€€€€€€€€½¹É…=Ù•Èõì¡•Ù•¹Ğ¤€ôøÉ½ÕÁÉ…=Ù•È¡•Ù•¹Ğ°É½ÕÀ¹¥¥ô4(€€€€€€€€€€€€€€€€€€€€€€€½¹É…1•…Ù”õì¡•Ù•¹Ğ¤€ôøì¥˜€ …•Ù•¹Ğ¹ÕÉÉ•¹ÑQ…É•Ğ¹½¹Ñ…¥¹Ì¡•Ù•¹Ğ¹É•±…Ñ•‘Q…É•Ğ…Ì9½‘”¤¤Í•ÑÉ½Á!¥¹Ğ¡¹Õ±°¤ìõô4(€€€€€€€€€€€€€€€€€€€€€€€½¹É½Àõì¡•Ù•¹Ğ¤€ôø…•ÁÑÉ½ÕÁÉ½À¡•Ù•¹Ğ°É½ÕÀ¹¥¥ôø4(€€€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸±…ÍÍ9…µ”ô‰½ÕÑ±¥¹”µÉ½ÕÀµµ…¥¸ˆ½¹±¥¬õì ¤€ôø±½…Ñ•É½ÕÀ¡¥Ñ•´¹¡…ÁÑ•È¹¥°É½ÕÀ¹¥¥ô½¹½¹Ñ•áÑ5•¹Ôõì¡•Ù•¹Ğ¤€ôø½Á•¹É½ÕÁ5•¹Ô¡•Ù•¹Ğ°É½ÕÀ¹¥¥ôÑ¥Ñ±”õíƒ–ºk’ö7–"ÃŠp‘íÉ½ÕÀ¹¹…µ•÷Šwjî–’Ñôø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ¤û²°í¥¹‘•à€¬€Åôƒîğ½¤ø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñÍÁ…¸ùíÉ½ÕÀ¹¹…µ•ôğ½ÍÁ…¸ø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñÍµ…±°ùíÉ½ÕÀ¹½Õ¹ÑôƒšºÕíÉ½ÕÀ¹½±±…ÁÍ•€ü€œƒ
-Üƒ–ŞËš*c–>€œ€è€œõíÉ½ÕÀ¹…Õ‘¥½9…µ”€ü€ƒ
-ÜƒŠf¬€‘íÉ½ÕÀ¹…Õ‘¥½9…µ•õ€€è€œôğ½Íµ…±°ø4(€€€€€€€€€€€€€€€€€€€€€€€€ğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰½ÕÑ±¥¹”µÉ½ÕÀµ…Ñ¥½¹Ìˆø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸Ñ¥Ñ±”õíÉ½ÕÀ¹½±±…ÁÍ•€ü€Ÿ–ÆW–òš¶“îœ€è€Ÿš*c–>ƒš¶“îô…É¥„µ±…‰•°õí€‘íÉ½ÕÀ¹½±±…ÁÍ•€ü€Ÿ–ÆW–ò œ€è€Ÿš*c–>€ô‘íÉ½ÕÀ¹¹…µ•õô½¹±¥¬õì ¤€ôøÑ½±•É½ÕÁ½±±…ÁÍ•‘%¹¡…ÁÑ•È¡¥Ñ•´¹¡…ÁÑ•È¹¥°É½ÕÀ¹¥¥ôùíÉ½ÕÀ¹½±±…ÁÍ•€ü€ŸŠZàœ€è€ŸŠZøôğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸Ñ¥Ñ±”ô‹¦7–F÷–B4ˆ½¹±¥¬õì¡•Ù•¹Ğ¤€ôøÉ•¹…µ•É½ÕÁ%¹¡…ÁÑ•È¡¥Ñ•´¹¡…ÁÑ•È¹¥°É½ÕÀ¹¥°É½ÕÀ¹¹…µ”°•Ù•¹Ğ¹ÕÉÉ•¹ÑQ…É•Ğ¥ôûšRäğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸Ñ¥Ñ±”ô‹’â+ïšº×¢B÷îˆ…É¥„µ±…‰•°õí€‘íÉ½ÕÀ¹¹…µ•÷’â+íô½¹±¥¬õì ¤€ôøµ½Ù•É½ÕÁ%¹¡…ÁÑ•È¡¥Ñ•´¹¡…ÁÑ•È¹¥°É½ÕÀ¹¥°€´Ä¥ôûŠDğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸Ñ¥Ñ±”ô‹’â/ïšº×¢B÷îˆ…É¥„µ±…‰•°õí€‘íÉ½ÕÀ¹¹…µ•÷’â/íô½¹±¥¬õì ¤€ôøµ½Ù•É½ÕÁ%¹¡…ÁÑ•È¡¥Ñ•´¹¡…ÁÑ•È¹¥°É½ÕÀ¹¥°€Ä¥ôûŠLğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸Ñ¥Ñ±”ô‹–>[šÚ#–"î¾ò3’şwVgš¶šZˆ½¹±¥¬õì ¤€ôøÉ•µ½Ù•É½ÕÁ%¹¡…ÁÑ•È¡¥Ñ•´¹¡…ÁÑ•È¹¥°É½ÕÀ¹¥¥ôû\ğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø4(€€€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø4(€€€€€€€€€€€€€€€€€€€€¤¥ô4(€€€€€€€€€€€€€€€€€€€í¥Ñ•´¹Õ¹É½ÕÁ•‘½Õ¹Ğ€ø€À€˜˜€ñ‰ÕÑÑ½¸±…ÍÍ9…µ”ô‰½ÕÑ±¥¹”µÉ½ÕÀµÉ½ÜÕ¹É½ÕÁ•ˆ½¹±¥¬õì ¤€ôø±½…Ñ•A…É…É…Á ¡¥Ñ•´¹¡…ÁÑ•È¹¥°¥Ñ•´¹Õ¹É½ÕÁ•‘¥ÉÍÑ%¥ôûšr«–"î¾ò!í¥Ñ•´¹Õ¹É½ÕÁ•‘½Õ¹Ñôƒšº×¾ò$ğ½‰ÕÑÑ½¸ùô4(€€€€€€€€€€€€€€€€€€€ì…¥Ñ•´¹É½ÕÁÌ¹±•¹Ñ €˜˜€…¥Ñ•´¹Õ¹É½ÕÁ•‘½Õ¹Ğ€˜˜€ñÀ±…ÍÍ9…µ”ô‰½ÕÑ±¥¹”µ•µÁÑäˆû¢şg’â®ƒ¢şcšÊ‡šr'šº×¢B÷ğ½Àùô4(€€€€€€€€€€€€€€€€€€ğ½‘¥Øø4(€€€€€€€€€€€€€€€€ğ½Í•Ñ¥½¸ø4(€€€€€€€€€€€€€€¤¥ô4(€€€€€€€€€€€€€ì…ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹±•¹Ñ €˜˜€ñÀ±…ÍÍ9…µ”ô‰½ÕÑ±¥¹”µ•µÁÑäˆû¢şcšÊ‡šr'®ƒ¢*¾ò3–#–r£¦†Û¦£šZÃ–îë’â’â«ğ½Àùô4(€€€€€€€€€€€€ğ½‘¥Øø4(€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰µÕÍ¥ŒµÉ…¹”µ±¥ÍĞˆøñÍÑÉ½¹œû¢3šf¿¦~Ï’æC¢2–nĞğ½ÍÑÉ½¹œùí¡…ÁÑ•È¹µÕÍ¥I…¹•Ì¹±•¹Ñ €ü¡…ÁÑ•È¹µÕÍ¥I…¹•Ì¹µ…À ¡É…¹”è…¹ä¤€ôøì½¹ÍĞµ•µ‰•É%‘Ì€ôµÕÍ¥I…¹•A…É…É…Á¡%‘Ì¡¡…ÁÑ•È°É…¹”¤ì½¹ÍĞÍÑ…ÉĞ€ô‘½Õµ•¹Ğ¹‰±½­Ì¹™¥¹‘%¹‘•à ¡‰±½¬è…¹ä¤€ôø‰±½¬¹¥€ôôôµ•µ‰•É%‘ÍlÁt¤ì½¹ÍĞ•¹€ô‘½Õµ•¹Ğ¹‰±½­Ì¹™¥¹‘%¹‘•à ¡‰±½¬è…¹ä¤€ôø‰±½¬¹¥€ôôôµ•µ‰•É%‘Ì¹…Ğ ´Ä¤¤ì½¹ÍĞÉ…¹•1…‰•°€ôÉ…¹”¹É½ÕÁ%‘Ìü¹±•¹Ñ €üÉ…¹”¹É½ÕÁ%‘Ì¹µ…À ¡¥èÍÑÉ¥¹œ¤€ôø¡…ÁÑ•È¹É½ÕÁÌ¹™¥¹ ¡É½ÕÀè…¹ä¤€ôøÉ½ÕÀ¹¥€ôôô¥¤ü¹¹…µ”¤¹™¥±Ñ•È¡	½½±•…¸¤¹©½¥¸ Ÿœ¤€¬€œƒîœ€è€‘íÍÑ…ÉĞ€¬€Å÷ŠL‘í•¹€¬€ÅôƒšºÕ€ìÉ•ÑÕÉ¸€ñ‘¥Ø±…ÍÍ9…µ”ô‰µÕÍ¥ŒµÉ…¹”µ¥Ñ•´ˆ­•äõíÉ…¹”¹¥‘ôøñÍÁ…¸ùí…ÍÍ•ÑÌ¹™¥¹ ¡…ÍÍ•Ğ¤€ôø…ÍÍ•Ğ¹¥€ôôôÉ…¹”¹…ÍÍ•Ñ%¤ü¹¹…µ”€üü€Ÿòë–’Ç¦~Ï¦ŠDôƒ
-ÜíÉ…¹•1…‰•±ôğ½ÍÁ…¸øñÍ•±•Ğ…É¥„µ±…‰•°ô‹šnÿš6‹¢şgšº×¢3šf¿¦~Ï’æ@ˆÙ…±Õ”ôˆˆ½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•5ÕÍ¥ÍÍ•Ğ¡É…¹”°•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¥ôøñ½ÁÑ¥½¸Ù…±Õ”ôˆˆûšnÿš6‹Š˜ğ½½ÁÑ¥½¸ùí…ÍÍ•ÑÌ¹™¥±Ñ•È ¡…ÍÍ•Ğ¤€ôø…ÍÍ•Ğ¹­¥¹€ôôô€…Õ‘¥¼œ¤¹µ…À ¡…ÍÍ•Ğ¤€ôø€ñ½ÁÑ¥½¸­•äõí…ÍÍ•Ğ¹¥‘ôÙ…±Õ”õí…ÍÍ•Ğ¹¥‘ôùí…ÍÍ•Ğ¹¹…µ•ôğ½½ÁÑ¥½¸ø¥ôğ½Í•±•Ğøñ±…‰•°û¦~Ï¦<€ñ¥¹ÁÕĞÑåÁ”ô‰É…¹”ˆµ¥¸ôˆÀˆµ…àôˆÄÀÀˆÙ…±Õ”õí5…Ñ ¹É½Õ¹¡É…¹”¹Ù½±Õµ”€¨€ÄÀÀ¥ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•5ÕÍ¥=ÁÑ¥½¹Ì¡É…¹”°ìÙ½±Õµ”è9Õµ‰•È¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤€¼€ÄÀÀô¥ô€¼øğ½±…‰•°øñ±…‰•°øñ¥¹ÁÕĞÑåÁ”ô‰¡•­‰½àˆ¡•­•õíÉ…¹”¹±½½Áô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•5ÕÍ¥=ÁÑ¥½¹Ì¡É…¹”°ì±½½Àè•Ù•¹Ğ¹Ñ…É•Ğ¹¡•­•ô¥ô€¼û–ú«:¼ğ½±…‰•°øñ‰ÕÑÑ½¸Ñ¥Ñ±”ô‹ï¦f“¢2–nĞˆ½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•Ñ¥Ù•¡…ÁÑ•È ¡ÕÉÉ•¹Ğ¤€ôøÉ•µ½Ù•5ÕÍ¥I…¹”¡ÕÉÉ•¹Ğ°É…¹”¹¥¤¥ôûï¦fğ½‰ÕÑÑ½¸øğ½‘¥Øøìô¤€è€ñÍµ…±°û¦'š.§¢ş{î·šº×¢B÷š"[šº×¢B÷î–B;¾ò3–>¿–r£’â+šZç¢ºûö»¦~Ï’æCğ½Íµ…±°ùôğ½‘¥Øø4(€€€€€€€€€€ğ¼ùô4(€€€€€€€€ğ½…Í¥‘”ø4(4(€€€€€€€€ñÍ•Ñ¥½¸±…ÍÍ9…µ”ô‰İÉ¥Ñ¥¹œµÁ…¹•°ˆø4(€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰Í•Ñ¥½¸µÑ¥Ñ±”ˆøñ‘¥ØøñÍÁ…¸±…ÍÍ9…µ”ô‰•å•‰É½Üˆùƒ
-Üƒ–g–&Ÿšğ½ÍÁ…¸øñÀû¢ş{î·¢úO–—–&Ÿš¾ò3¦'’â·’â–>—–7¢ºûö»šV#šzsğ½Àøğ½‘¥Øøñ‘¥Ø±…ÍÍ9…µ”ô‰İÉ¥Ñ¥¹œµ½Õ¹ĞˆøñÍÁ…¸±…ÍÍ9…µ”ô‰½Õ¹ĞµÁ¥±°ˆùí‘½Õµ•¹Ğ¹‰±½­Ì¹±•¹Ñ¡ôƒšº×–&Ÿšğ½ÍÁ…¸øñÍÁ…¸±…ÍÍ9…µ”ô‰ÕÉÉ•¹ĞµÉ½ÕÀˆÑ¥Ñ±”õíÉ½ÕÁMÕµµ…ÉåôùíÉ½ÕÁMÕµµ…Éåôğ½ÍÁ…¸øğ½‘¥Øøğ½‘¥Øø4(€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰•‘¥Ñ½ÈµÑ½½±‰…Èˆø4(€€€€€€€€€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰Ñ½½°Í•±•Ñ•ˆ…É¥„µ±…‰•°ô‹–öO–&7–g’ösš¢‡–ò<ˆû¢ş{î·–g’öpğ½ÍÁ…¸ø4(€€€€€€€€€€€€ñ‰ÕĞV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅçFöâ6Æ74æÖSÒ'FööÂ"öäÖ÷W6TF÷vã×²†WfVçB’ÓâWfVçBç&WfVçDFVfVÇB‚—Òöä6Æ–6³×²‚’Óâ6WDÖöFR‚vF–ÆöwVRr—ÓîŠëîK‹®ZûŠùŞjcÂö'WGFöãàĞ¢Æ'WGFöâ6Æ74æÖSÒ'FööÂ"öäÖ÷W6TF÷vã×²†WfVçB’ÓâWfVçBç&WfVçDFVfVÇB‚—Òöä6Æ–6³×²‚’Óâ6WDÖöFR‚vg&VRr—ÓîŠëîK‹®ˆz®yKkÉNX{£Âö'WGFöãàĞ¢ÆÆ&VÂ6Æ74æÖSÒ&6öÆ÷"×FööÂ"F—FÆSÒ.[nš)Îˆ›.[©NyJK¨î˜KŠŞih~ZÙr#ãÆ–çWBG—SÒ&6öÆ÷""fÇVS×·6VÆV7FVD7VSòç6WGF–æw2æ6öÆ÷"óòr6VcsScRwÒöä6†ævS×²†WfVçB’Óâ6WD6öÆ÷"†WfVçBçF&vWBçfÇVR—ÒóãÇ7ãîŠëî{Úîih~ZÙ~š)Îˆ›#Â÷7ããÂöÆ&VÃàĞ¢ÂöF—càĞ¢ÆF—b6Æ74æÖSÒ'&w&‚×6VÆV7F–öâ×FööÆ&"#àĞ¢¶†4w&÷W–æu6VÆV7F–öâòÃàĞ¢Ç7ãî[{.˜’·6VÆV7FVE&w&‡2æÆVæwF‡ÒjëW·6VÆV7FVDw&÷W–G2æÆVæwF‚ò+rG·6VÆV7FVDw&÷W–G2æÆVæwF‡ÒKŠ®{¸F¢rwÓÂ÷7ãàĞ¢Æ'WGFöâ6Æ74æÖSÒ'&–Ö'’"F—FÆS×²6VÆV7FVE&w&‡2æÆVæwF‚ò~XXX»î˜Kˆjë^h‰nZI®jë^jÚ>ihrr¢~X‰¾[»®jë^‰Ş{¸N[›n[Ù.XZ^˜KŠŞXh^Zë’wÒF—6&ÆVC×²6VÆV7FVE&w&‡2æÆVæwF‡Òöä6Æ–6³×²†WfVçB’Óâ7&VFTw&÷Wg&öÕ6VÆV7F–öâ†WfVçBæ7W'&VçEF&vWB—Óî[Ù.XZ^ik{¸CÂö'WGFöãàĞ¢Ç6VÆV7B&–ÖÆ&VÃÒ.z{¾XZ^[{.iÈ{¸B"F—FÆS×²6VÆV7FVE&w&‡2æÆVæwF‚ò~XXX»î˜Kˆjë^h‰nZI®jë^jÚ>ihrr¢VæFVf–æVGÒfÇVSÒ""F—6&ÆVC×²6VÆV7FVE&w&‡2æÆVæwF‚ÇÂ÷&FW&VDw&÷W2æÆVæwF‡Òöä6†ævS×²†WfVçB’ÓâÖ÷fU6VÆV7F–öåFôw&÷W†WfVçBçF&vWBçfÇVR—ÓãÆ÷F–öâfÇVSÒ"#îz{¾XZ^[{.iÈ{¸N(
-cÂö÷F–öãç¶÷&FW&VDw&÷W2æÖ‚†w&÷W¢ç’Â–æFWƒ¢çVÖ&W"’ÓâÆ÷F–öâ¶W“×¶w&÷Wæ–GÒfÇVS×¶w&÷Wæ–GÓîzÊÂ¶–æFW‚²Ò{¸B+r¶w&÷WææÖWÓÂö÷F–öãâ—ÓÂ÷6VÆV7CàĞ¢Æ'WGFöâöä6Æ–6³×²‚’Óâ²6WE6VÆV7FVE&w&‡2…µÒ“²6WE6VÆV7FVDw&÷W–G2…µÒ“²6WE6VÆV7FVDw&÷W–B†çVÆÂ“²&w&„æ6†÷%&Vbæ7W'&VçBÒçVÆÃ²×Óîkˆ^™šN˜hº“Âö'WGFöãàĞ¢Âóâ¢ÃàĞ¢Ç7â6Æ74æÖSÒ&–FÆRÖ†–çB#îX»î˜jÚ>ih~jë^‰Ş[znKê~y¨NikjnûÈÎ[ˆ;Şh¨®ZI®jë^[Ù.h‰Kˆ{¸NûÉ¾K™şXúşKº^XX[»®KˆKŠ®z›®{¸NXhŞ[è˜xÎXi8#Â÷7ãàĞ¢Æ'WGFöâöä6Æ–6³×²†WfVçB’Óâ7&VFTV×G”w&÷W†WfVçBæ7W'&VçEF&vWB—ÓîûÈ¾ik[»®z›®{¸CÂö'WGFöãàĞ¢ÂóçĞĞ¢ÂöF—càĞ¢ÆF—b6Æ74æÖSÒ&VF—F÷"×67&öÆÂ"&Vc×¶VF—F÷%67&öÆÅ&VgÒöä6öçFW‡DÖVçS×¶öäVF—F÷$6öçFW‡DÖVçWÒöäG&u7F'D6GW&S×²†WfVçB’Óâ&Vv–å&w&„G&r†WfVçB—ÒöäG&tVæC×²‚’Óâ²6æ6VÆÆVDG&u&Vbæ7W'&VçBÒfÇ6S²G&t7F—fU&Vbæ7W'&VçBÒfÇ6S²7F÷VFvTWF÷67&öÆÂ‚“²6WDG&÷†–çB†çVÆÂ“²×ÒöäG&t÷fW#×¶öäVF—F÷$G&t÷fW'ÒöäG&tÆVfS×²†WfVçB’Óâ²–b‚WfVçBæ7W'&VçEF&vWBæ6öçF–ç2†WfVçBç&VÆFVEF&vWB2æöFR’’²G&t7F—fU&Vbæ7W'&VçBÒfÇ6S²7F÷VFvTWF÷67&öÆÂ‚“²6WDG&÷†–çB†çVÆÂ“²Ò×ÒöäG&÷6GW&S×¶öäVF—F÷$G&÷ÓãÄVF—F÷$6öçFVçBVF—F÷#×¶VF—F÷'ÒóãÂöF—càĞ¢ÆF—b6Æ74æÖSÒ&VF—F÷"Öfö÷B#ãÇ7ãäVçFW"hÚ.jëR+r˜KŠŞKˆXú^Šëî{ÚîiXiéÂ+r7G&Âµ¢i*N™HÂ÷7ããÇ7ãç¶Fö7VÖVçBæ&Æö6·2æÆVæwF‡ÒKŠ®jÚ>ih~jë^‰ÓÂ÷7ããÂöF—càĞ¢Â÷6V7F–öãàĞ Ğ¢Ç6V7F–öâ6Æ74æÖSÒ'7FvR×æVÂ#àĞ¢ÆF—b6Æ74æÖSÒ'7FvRÖ†VF–ær#ãÆF—cãÇ7â6Æ74æÖSÒ&W–V'&÷r#äB+rˆ‰îXûš(NŠxƒÂ÷7ããÇ7G&öæsç·&Wf–Wt7VRòG·&Wf–Wt7VRç6WGF–æw2æÖöFRÓÓÒvF–ÆöwVRrò~ZûŠùŞjbr¢~ˆz®yKih~ZÙrwÒ+rG·&Wf–Wt7VRçFW‡Bç6Æ–6RƒÂ#‚—Ö¢~˜hºjÚ>ih~KŠŞy¨NKˆXúRwÓÂ÷7G&öæsãÂöF—cãÇ7â6Æ74æÖSÒ'7FvRÖ†–çB#ç·Æ–W%7FFRç7FGW2ÓÓÒwÆ––ærrò~i*ŞiKîKŠÒr¢Æ–W%7FFRç7FGW2ÓÓÒwW6VBrò~[{.i¨.XÂr¢&Wf–Wt7VSòç6WGF–æw2æÖöFRÓÓÒvg&VRrò~Xúşh¹nXªˆ‰îXûih~ZÙ~‹>i[NKØŞ{Úâr¢~˜KŠŞjÚ>ih~XÛ>Xúşš(NŠx‚wÓÂ÷7ããÂöF—càĞ¢ÆF—b6Æ74æÖS×¶7FvRÖg&ÖRG·Æ–W%7FFRç7FGW2ÓÒw7F÷VBròv—2×Æ––ærr¢rwÖÓàĞ¢ÆF—b6Æ74æÖSÒ'7FvRÖ6çf2"7G–ÆS×·7FvT&6¶w&÷VæGÒöä6öçFW‡DÖVçS×²†WfVçB’Óâ²–b†WfVçBçF&vWB–ç7Fæ6VöbVÆVÖVçBbbWfVçBçF&vWBæ6Æ÷6W7B‚rç66VæRÖÆ–W"Ö†æFÆRr’’&WGW&ã²÷Våv÷&·76TÖVçR‡²¶–æC¢w7FvRrÂ&ö¦V7D–C¢&ö¦V7Bæ–BÂ6†FW$–C¢6†FW"æ–BÂ7VT–C¢&Wf–Wt7VSòæ–BÒÂWfVçBÂWfVçBæ7W'&VçEF&vWB“²×Òöä6Æ–6³×²‚’ÓâÆ–W%7FFRç7FGW2ÓÓÒwÆ––ærrbbÆ–W%&Vbæ7W'&VçBæGfæ6R‚—ÓàĞ¢¶F—7Æ”Æ–W'2æf–ÇFW"‚†Æ–W#¢ç’’ÓâÆ–W"æ†–FFVâ’ç6Æ–6R‚’ç6÷'B‚†¢ç’Â#¢ç’’Óâç¤–æFW‚Ò"ç¤–æFW‚’æÖ‚†Æ–W#¢ç’’Óâ°Ğ¢6öç7BÖVF–Ò76WG2æf–æB‚†76WB’Óâ76WBæ–BÓÓÒÆ–W"æ76WD–B“°Ğ¢–b‚ÖVF–’&WGW&âçVÆÃ°Ğ¢&WGW&âÅ7FvT–ÖvTÆ–W"¶W“×¶Æ–W"æ–GÒÆ–W#×¶Æ–W'Ò76WC×¶ÖVF–Ò6VÆV7FVC×·6VÆV7FVDÆ–W$–BÓÓÒÆ–W"æ–GÒVF—F&ÆS×·Æ–W%7FFRç7FGW2ÓÓÒw7F÷VBwÒ7FGW3×·Æ–W%7FFRç7FGW7Ò7VT–C×·&Wf–Wt7VSòæ–GÒÆ•6W76–öå&Wf—6–öã×·Æ•6W76–öå&Wf—6–öçÒ6VVµ&Wf—6–öã×·6VVµ&Wf—6–öçÒVÆ6VD×3×·Æ–&6´6Æö6µ&Vbæ7W'&VçBç6æ6†÷BæVÆ6VD×7Òöäæ÷F–6S×·6WDæ÷F–6WÒöå6VÆV7C×²‚’Óâ6WE6VÆV7FVDÆ–W$–B†Æ–W"æ–B—Òöä6öÖÖ—C×²‡F6‚’ÓâWFFTÆ–W"‡F6‚ÂÆ–W"æ–B—Òöä6öçFW‡DÖVçS×²†WfVçB’Óâ÷Våv÷&·76TÖVçR‡²¶–æC¢vÆ–W"rÂ&ö¦V7D–C¢&ö¦V7Bæ–BÂ6†FW$–C¢6†FW"æ–BÂÆ–W$–C¢Æ–W"æ–BÂ7VT–C¢&Wf–Wt7VSòæ–BÒÂWfVçBÂWfVçBæ7W'&VçEF&vWB—Òóã°Ğ¢Ò—ĞĞ¢·&Wf–Wt7VRbbÄ6Æö6¶VE7FvT7VR¶W“×·&Wf–Wt7VRæ–GÒ7VS×·&Wf–Wt7VWÒ6Æö6³×·Æ–&6´6Æö6µ&Vbæ7W'&VçGÒ6VVµ&Wf—6–öã×·6VVµ&Wf—6–öçÒÆ•6W76–öå&Wf—6–öã×·Æ•6W76–öå&Wf—6–öçÒöäGfæ6S×²‚’ÓâÆ–W%&Vbæ7W'&VçBæGfæ6R‚—ÒñZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{›“[İ™O^ÊÜÚ][ÛŠHOˆ]ÚİYJÜÚ][ÛŠ_HÏŸCBˆÈX˜XÚÙÜ›İ[™\ÜÙ]	‰ˆY\Ü^S^Y\œËœÛÛYJ
-^Y\ˆ[JHOˆ[^Y\‹šY[ŠH	‰ˆ]ˆÛ\ÜÓ˜[YOHœİYÙK\XÙZÛ\ˆÜ[ŒMOÜÜ[İ›Û™Ïº"'¹cì9å.úghÜİ›Û™ÏÛX[¹..¹odùbcycéz`"y¢êz ã9¦kù¢%¹­îùb¨9fï¹âaùfï¹l`ÜÛX[Ù]ŸCBˆÜ™]šY]ĞİYH	‰ˆÜ[ˆÛ\ÜÓ˜[YOHœİYÙKXÛİ[\ˆÜ^Y\”İ]Kœİ]\ÈOOH	ÜİÜY	ÈÈ9ï%º/¤zh¡:)â0­È	Ôİš[™ÊİYR[™^
-ÈJKœYİ\
-‹	Ì	Ê_HÈ	Ôİš[™Êİ\œ™[[‹›[™İ
-KœYİ\
-‹	Ì	Ê_Xˆ	Ü^Y\”İ]Kœİ]\ÈOOH	Ü]\ÙY	ÈÈ	ùmì¹¦ ¹`g	Èˆ	ù¯%9aî¹.+IßH0­È	Ôİš[™Ê^Y\”İ]Kš[™^
-ÈJKœYİ\
-‹	Ì	Ê_HÈ	Ôİš[™Êİ\œ™[[‹›[™İ
-KœYİ\
-‹	Ì	Ê_XOÜÜ[ŸCBˆÙ]ƒBˆÙ]ƒBƒBˆ]ˆÛ\ÜÓ˜[YOH˜[œÜÜX˜\ˆƒBˆ]ˆÛ\ÜÓ˜[YOH˜[œÜÜX]ÛœÈƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜[œÜÜ\^Hˆ]O^Ü^Y\”İ]Kœİ]\ÈOOH	Ü^Z[™ÉÈÈ	ù¦ ¹`g	Èˆ^Y\”İ]Kœİ]\ÈOOH	Ü]\ÙY	ÈÈ	ùîéùîëIÈˆ	ù¤«y¥/¹odùbcycéIßHÛÛXÚÏ^Ê
-HOˆ^Y\”İ]Kœİ]\ÈOOH	Ü^Z[™ÉÈÈ^Y\”™Y‹˜İ\œ™[œ]\ÙJ
-Hˆ^Y\”İ]Kœİ]\ÈOOH	Ü]\ÙY	ÈÈ^Y\”™Y‹˜İ\œ™[œ™\İ[YJ
-Hˆİ\^X˜XÚÊ[
-_OÜ^Y\”İ]Kœİ]\ÈOOH	Ü^Z[™ÉÈÈ	ø¡hIÈˆ	ø¥­‰ßOØ]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜[œÜÜ\İÜˆ]OH¹`g9«h¹nmºaãyïkˆˆÛÛXÚÏ^Ê
-HOˆ^Y\”™Y‹˜İ\œ™[œİÜ
+                  <div className="outline-chapter-groups">
+                    {item.groups.map((group: any, index: number) => (
+                      <div className={`outline-group-row ${currentGroupId === group.id ? 'active' : ''} ${locatedGroupId === group.id ? 'located' : ''} ${dropHint?.groupId === group.id ? 'drop-target' : ''}`} key={group.id}
+                        onDragOver={(event) => groupDragOver(event, group.id)}
+                        onDragLeave={(event) => { if (!event.currentTarget.contains(event.relatedTarget as Node)) setDropHint(null); }}
+                        onDrop={(event) => acceptGroupDrop(event, group.id)}>
+                        <button className="outline-group-main" onClick={() => locateGroup(item.chapter.id, group.id)} onContextMenu={(event) => openGroupMenu(event, group.id)} title={`å®šä½åˆ°â€œ${group.name}â€çš„ç»„å¤´`}>
+                          <i>ç¬¬ {index + 1} ç»„</i>
+                          <span>{group.name}</span>
+                          <small>{group.count} æ®µ{group.collapsed ? ' Â· å·²æŠ˜å ' : ''}{group.audioName ? ` Â· â™« ${group.audioName}` : ''}</small>
+                        </button>
+                        <div className="outline-group-actions">
+                          <button title={group.collapsed ? 'å±•å¼€æ­¤ç»„' : 'æŠ˜å æ­¤ç»„'} aria-label={`${group.collapsed ? 'å±•å¼€' : 'æŠ˜å '}${group.name}`} onClick={() => toggleGroupCollapsedInChapter(item.chapter.id, group.id)}>{group.collapsed ? 'â–¸' : 'â–¾'}</button>
+                          <button title="é‡å‘½å" onClick={(event) => renameGroupInChapter(item.chapter.id, group.id, group.name, event.currentTarget)}>æ”¹</button>
+                          <button title="ä¸Šç§»æ®µè½ç»„" aria-label={`${group.name}ä¸Šç§»`} onClick={() => moveGroupInChapter(item.chapter.id, group.id, -1)}>â†‘</button>
+                          <button title="ä¸‹ç§»æ®µè½ç»„" aria-label={`${group.name}ä¸‹ç§»`} onClick={() => moveGroupInChapter(item.chapter.id, group.id, 1)}>â†“</button>
+                          <button title="å–æ¶ˆåˆ†ç»„ï¼Œä¿ç•™æ­£æ–‡" onClick={() => removeGroupInChapter(item.chapter.id, group.id)}>Ã—</button>
+                        </div>
+                      </div>
+                    ))}
+                    {item.ungroupedCount > 0 && <button className="outline-group-row ungrouped" onClick={() => locateParagraph(item.chapter.id, item.ungroupedFirstId)}>æœªåˆ†ç»„ï¼ˆ{item.ungroupedCount} æ®µï¼‰</button>}
+                    {!item.groups.length && !item.ungroupedCount && <p className="outline-empty">è¿™ä¸€ç« è¿˜æ²¡æœ‰æ®µè½ã€‚</p>}
+                  </div>
+                </section>
+              ))}
+              {!project.chapters.length && <p className="outline-empty">è¿˜æ²¡æœ‰ç« èŠ‚ï¼Œå…ˆåœ¨é¡¶éƒ¨æ–°å»ºä¸€ä¸ªã€‚</p>}
+            </div>
+            <div className="music-range-list"><strong>èƒŒæ™¯éŸ³ä¹èŒƒå›´</strong>{chapter.musicRanges.length ? chapter.musicRanges.map((range: any) => { const memberIds = musicRangeParagraphIds(chapter, range); const start = document.blocks.findIndex((block: any) => block.id === memberIds[0]); const end = document.blocks.findIndex((block: any) => block.id === memberIds.at(-1)); const rangeLabel = range.groupIds?.length ? range.groupIds.map((id: string) => chapter.groups.find((group: any) => group.id === id)?.name).filter(Boolean).join('ã€') + ' ç»„' : `${start + 1}â€“${end + 1} æ®µ`; return <div className="music-range-item" key={range.id}><span>{assets.find((asset) => asset.id === range.assetId)?.name ?? 'ç¼ºå¤±éŸ³é¢‘'} Â· {rangeLabel}</span><select aria-label="æ›¿æ¢è¿™æ®µèƒŒæ™¯éŸ³ä¹" value="" onChange={(event) => updateMusicAsset(range, event.target.value)}><option value="">æ›¿æ¢â€¦</option>{assets.filter((asset) => asset.kind === 'audio').map((asset) => <option key={asset.id} value={asset.id}>{asset.name}</option>)}</select><label>éŸ³é‡ <input type="range" min="0" max="100" value={Math.round(range.volume * 100)} onChange={(event) => updateMusicOptions(range, { volume: Number(event.target.value) / 100 })} /></label><label><input type="checkbox" checked={range.loop} onChange={(event) => updateMusicOptions(range, { loop: event.target.checked })} />å¾ªç¯</label><button title="ç§»é™¤èŒƒå›´" onClick={() => updateActiveChapter((current) => removeMusicRange(current, range.id))}>ç§»é™¤</button></div>; }) : <small>é€‰æ‹©è¿ç»­æ®µè½æˆ–æ®µè½ç»„åï¼Œå¯åœ¨ä¸Šæ–¹è®¾ç½®éŸ³ä¹ã€‚</small>}</div>
+          </>}
+        </aside>
 
-_O¸¥¨Ø]ÛƒBˆ]ÛˆÛ\ÜÓ˜[YOH˜[œÜÜ\™\^Hˆ]OH¹.ã¹odùbcycézaãy¤«HˆÛÛXÚÏ^Ê
-HOˆİ\^X˜XÚÊ[
-_Oºaãy¤«OØ]ÛƒBˆÙ]ƒBˆ^X˜XÚÔ›ÙÜ™\ÜÈÛØÚÏ^Ü^X˜XÚĞÛØÚÔ™Y‹˜İ\œ™[HÛ”ÙYZÏ^Êœ˜Xİ[ÛŠHOˆÈ^Y\”™Y‹˜İ\œ™[œÙYZÊœ˜Xİ[ÛŠNÈÙ]ÙYZÔ™]š\Ú[ÛŠ
-˜[YJHOˆ˜[YH
-ÈJNÈ_HÏƒBˆÙ]ƒBƒBˆ]ˆÛ\ÜÓ˜[YO^Ø›İÛK\[™[È	ÜÙ\]Y[˜ÙPÛÛ\ÙYÈ	ÜÙ\]Y[˜ÙKXÛÛ\ÙY	Èˆ	ÉßXOƒBˆÙXİ[ÛˆÛ\ÜÓ˜[YO^ØÙ\]Y[˜ÙK\[™[	ÜÙ\]Y[˜ÙPÛÛ\ÙYÈ	Ú\ËXÛÛ\ÙY	Èˆ	ÉßXOƒBˆ]ˆÛ\ÜÓ˜[YOHœ[™[]]Hİ›Û™ÏÜÙ\]Y[˜ÙPÛÛ\ÙYÈ	ÑIÈˆ	ÑH0­È9¯%9aîºhn¹n£ÉßOÜİ›Û™ÏÈ\Ù\]Y[˜ÙPÛÛ\ÙY	‰ˆÜ[Øİ\œ™[[‹›[™İH9céOÜÜ[ŸO]Ûˆ]O^ÜÙ\]Y[˜ÙPÛÛ\ÙYÈ	ùleyo 9¯%9aî¹b%ú(j	Èˆ	ù¥-º-mù¯%9aî¹b%ú(j;ï#9¢¢¹ênºeí:+ªyîæycìù/©ú+¯¹ïk‰ßHÛÛXÚÏ^Ê
-HOˆÙ]Ù\]Y[˜ÙPÛÛ\ÙY
+        <section className="writing-panel">
+          <div className="section-title"><div><span className="eyebrow">C Â· å†™å‰§æƒ…</span><p>è¿ç»­è¾“å…¥å‰§æƒ…ï¼Œé€‰ä¸­ä¸€å¥å†è®¾ç½®æ•ˆæœã€‚</p></div><div className="writing-count"><span className="count-pill">{document.blocks.length} æ®µå‰§æƒ…</span><span className="current-group" title={groupSummary}>{groupSummary}</span></div></div>
+          <div className="editor-toolbar">
+            <span className="tool selected" aria-label="å½“å‰å†™ä½œæ¨¡å¼">è¿ç»­å†™ä½œ</span>
+            <button className="tool" onMouseDown={(event) => event.preventDefault()} onClick={() => setMode('dialogue')}>è®¾ä¸ºå¯¹è¯æ¡†</button>
+            <button className="tool" onMouseDown={(event) => event.preventDefault()} onClick={() => setMode('free')}>è®¾ä¸ºè‡ªç”±æ¼”å‡º</button>
+            <label className="color-tool" title="å°†é¢œè‰²åº”ç”¨äºé€‰ä¸­æ–‡å­—"><input type="color" value={selectedCue?.settings.color ?? '#ef7565'} onChange={(event) => setColor(event.target.value)} /><span>è®¾ç½®æ–‡å­—é¢œè‰²</span></label>
+          </div>
+          <div className="paragraph-selection-toolbar">
+            {hasGroupingSelection ? <>
+              <span>å·²é€‰ {selectedParagraphs.length} æ®µ{selectedGroupIds.length ? ` Â· ${selectedGroupIds.length} ä¸ªç»„` : ''}</span>
+              <button className="primary" title={!selectedParagraphs.length ? 'å…ˆå‹¾é€‰ä¸€æ®µæˆ–å¤šæ®µæ­£æ–‡' : 'åˆ›å»ºæ®µè½ç»„å¹¶å½’å…¥é€‰ä¸­å†…å®¹'} disabled={!selectedParagraphs.length} onClick={(event) => createGroupFromSelection(event.currentTarget)}>å½’å…¥æ–°ç»„</button>
+              <select aria-label="ç§»å…¥å·²æœ‰ç»„" title={!selectedParagraphs.length ? 'å…ˆå‹¾é€‰ä¸€æ®µæˆ–å¤šæ®µæ­£æ–‡' : undefined} value="" disabled={!selectedParagraphs.length || !orderedGroups.length} onChange={(event) => moveSelectionToGroup(event.target.value)}><option value="">ç§»å…¥å·²æœ‰ç»„â€¦</option>{orderedGroups.map((group: any, index: number) => <option key={group.id} value={group.id}>ç¬¬ {index + 1} ç»„ Â· {group.name}</option>)}</select>
+              <button onClick={() => { setSelectedParagraphs([]); setSelectedGroupIds([]); setSelectedGroupId(null); paragraphAnchorRef.current = null; }}>æ¸…é™¤é€‰æ‹©</button>
+            </> : <>
+              <span className="idle-hint">å‹¾é€‰æ­£æ–‡æ®µè½å·¦ä¾§çš„æ–¹æ¡†ï¼Œå°±èƒ½æŠŠå¤šæ®µå½’æˆä¸€ç»„ï¼›ä¹Ÿå¯ä»¥å…ˆå»ºä¸€ä¸ªç©ºç»„å†å¾€é‡Œå†™ã€‚</span>
+              <button onClick={(event) => createEmptyGroup(event.currentTarget)}>ï¼‹æ–°å»ºç©ºç»„</button>
+            </>}
+          </div>
+          <div className="editor-scroll" ref={editorScrollRef} onContextMenu={onEditorContextMenu} onDragStartCapture={(event) => beginParagraphDrag(event)} onDragEnd={() => { cancelledDragRef.current = false; dragActiveRef.current = false; stopEdgeAutoscroll(); setDropHint(null); }} onDragOver={onEditorDragOver} onDragLeave={(event) => { if (!event.currentTarget.contains(event.relatedTarget as Node)) { dragActiveRef.current = false; stopEdgeAutoscroll(); setDropHint(null); } }} onDropCapture={onEditorDrop}><EditorContent editor={editor} /></div>
+          <div className="editor-foot"><span>Enter æ¢æ®µ Â· é€‰ä¸­ä¸€å¥è®¾ç½®æ•ˆæœ Â· Ctrl+Z æ’¤é”€</span><span>{document.blocks.length} ä¸ªæ­£æ–‡æ®µè½</span></div>
+        </section>
 
-˜[YJHOˆ]˜[YJ_OÜÙ\]Y[˜ÙPÛÛ\ÙYÈ	ùleyo 	Èˆ	ù¥-º-mÉßOØ]ÛÙ]ƒBˆÈ\Ù\]Y[˜ÙPÛÛ\ÙY	‰ˆƒBˆ]ˆÛ\ÜÓ˜[YOHœÙ\]Y[˜ÙK[\İƒBˆØİ\œ™[[‹›X\
+        <section className="stage-panel">
+          <div className="stage-heading"><div><span className="eyebrow">D Â· èˆå°é¢„è§ˆ</span><strong>{previewCue ? `${previewCue.settings.mode === 'dialogue' ? 'å¯¹è¯æ¡†' : 'è‡ªç”±æ–‡å­—'} Â· ${previewCue.text.slice(0, 28)}` : 'é€‰æ‹©æ­£æ–‡ä¸­çš„ä¸€å¥'}</strong></div><span className="stage-hint">{playerState.status === 'playing' ? 'æ’­æ”¾ä¸­' : playerState.status === 'paused' ? 'å·²æš‚åœ' : previewCue?.settings.mode === 'free' ? 'å¯æ‹–åŠ¨èˆå°æ–‡å­—è°ƒæ•´ä½ç½®' : 'é€‰ä¸­æ­£æ–‡å³å¯é¢„è§ˆ'}</span></div>
+          <div className={`stage-frame ${playerState.status !== 'stopped' ? 'is-playing' : ''}`}>
+            <div className="stage-canvas" style={stageBackground} onContextMenu={(event) => { if (event.target instanceof Element && event.target.closest('.scene-layer-handle')) return; openWorkspaceMenu({ kind: 'stage', projectId: project.id, chapterId: chapter.id, cueId: previewCue?.id }, event, event.currentTarget); }} onClick={() => playerState.status === 'playing' && playerRef.current.advance()}>
+              {displayLayers.filter((layer: any) => !layer.hidden).slice().sort((a: any, b: any) => a.zIndex - b.zIndex).map((layer: any) => {
+                const media = assets.find((asset) => asset.id === layer.assetId);
+                if (!media) return null;
+                return <StageImageLayer key={layer.id} layer={layer} asset={media} selected={selectedLayerId === layer.id} editable={playerState.status === 'stopped'} status={playerState.status} cueId={previewCue?.id} playSessionRevision={playSessionRevision} seekRevision={seekRevision} elapsedMs={playbackClockRef.current.snapshot.elapsedMs} onNotice={setNotice} onSelect={() => setSelectedLayerId(layer.id)} onCommit={(patch) => updateLayer(patch, layer.id)} onContextMenu={(event) => openWorkspaceMenu({ kind: 'layer', projectId: project.id, chapterId: chapter.id, layerId: layer.id, cueId: previewCue?.id }, event, event.currentTarget)} />;
+              })}
+              {previewCue && <ClockedStageCue key={previewCue.id} cue={previewCue} clock={playbackClockRef.current} seekRevision={seekRevision} playSessionRevision={playSessionRevision} onAdvance={() => playerRef.current.advance()} onMove={(position) => patchCue(position)} />}
+              {!backgroundAsset && !displayLayers.some((layer: any) => !layer.hidden) && <div className="stage-placeholder"><span>16:9</span><strong>èˆå°ç”»é¢</strong><small>ä¸ºå½“å‰å¥é€‰æ‹©èƒŒæ™¯æˆ–æ·»åŠ å›¾ç‰‡å›¾å±‚</small></div>}
+              {previewCue && <span className="stage-counter">{playerState.status === 'stopped' ? `ç¼–è¾‘é¢„è§ˆ Â· ${String(cueIndex + 1).padStart(2, '0')} / ${String(currentPlan.length).padStart(2, '0')}` : `${playerState.status === 'paused' ? 'å·²æš‚åœ' : 'æ¼”å‡ºä¸­'} Â· ${String(playerState.index + 1).padStart(2, '0')} / ${String(currentPlan.length).padStart(2, '0')}`}</span>}
+            </div>
+          </div>
 
-İYNˆ[K[™^ˆ[X™\ŠHOˆ]ÛˆÙ^O^ØİYKšYHÛ\ÜÓ˜[YO^ØÙ\]Y[˜ÙK\›İÈ	ØİYKšYOOHÙ[XİYİYRYÈ	ØXİ]™IÈˆ	ÉßXHÛÛXÚÏ^Ê
-HOˆÙ[XİİYJİYKšY
-_OOÔİš[™Ê[™^
-ÈJKœYİ\
-‹	Ì	Ê_OÚOÜ[ØİYK^	ûï"9ên¹«­z$/{ï"IßOÜÜ[ØİYKœÙ][™ÜË›[ÙHOOH	ÙX[ÙİYIÈÈ	ùkîyæoIÈˆ	ú!ê¹å,IßOØØ]ÛŠ_CBˆÈXİ\œ™[[‹›[™İ	‰ˆÛ\ÜÓ˜[YOH™[\K\Ù\]Y[˜ÙH¹a¦y."ù«hù¥¡ùd#»ï#9¯%9aîºhn¹n£ù/&¹aî¹ã¬9g*:/æzaã8à ÜŸCBˆÙ]ƒBˆ]ˆÛ\ÜÓ˜[YOHœÙ\]Y[˜ÙKY›Ûİ\ˆÜ[Ü™]šY]ĞİYOËœÙ][™ÜË˜Y˜[˜ÙHOOH	İ[YY	ÈÈ	ú!ê¹bª9£ª:/æÉÈˆ	ùëbyo¡yà®yaîùîéùîëIßOÜÜ[]ÛˆÛÛXÚÏ^Ê
-HOˆİ\^X˜XÚÊ	Ø]]ÉÊ_O¹§+9êè:!ê¹bª9¤«y¥/Ø]ÛÙ]ƒBˆÏŸCBˆÜÙXİ[ÛƒBƒBˆÙXİ[ÛˆÛ\ÜÓ˜[YOHœÙ][™ÜË\[™[ƒBˆ]ˆÛ\ÜÓ˜[YOHœ[™[]]Hİ›Û™Ï‘ˆ0­È9odùbcycéz+¯¹ïkÜİ›Û™ÏÜ[ÜÙ[XİYİYHÈ9ë+	Ôİš[™ÊÙ[XİYİYR[™^
-ÈJKœYİ\
-‹	Ì	Ê_H9céXˆ	ù§*º`"y¢êIßOÜÜ[Ù]ƒBˆ]ˆÛ\ÜÓ˜[YOHœÙ][™ÜË\ØÜ›ÛƒBˆÈ\Ù[XİYİYHÈÛ\ÜÓ˜[YOHœÙ][™ÜËY[\Hº`"y.+y«hù¥¡ù.+yæ¡9. 9céyd#»ï#9cëù.éz+¯¹ïk¹¯%9aî¸à yå.úgh¹d£9hì:gìøà ÜˆˆƒBˆ]ˆÛ\ÜÓ˜[YOHœØÛÜK[[™HƒBˆ¹ë+Ôİš[™ÊÙ[XİYİYR[™^
-ÈJKœYİ\
-‹	Ì	Ê_H9céOØƒBˆÜ[ÜÙ[XİYİYKœÙ][™ÜË›[ÙHOOH	ÙX[ÙİYIÈÈ	ùkîz+çy¨a‰Èˆ	ú!ê¹å,y¥¡ùkeÉßOÜÜ[ƒBˆÜ[ˆÛ\ÜÓ˜[YOHœØÛÜK[]]YØİYQÜ›İ\È9ë+	ØİYQÜ›İ\[™^
-È_H9îá0­È	ØİYQÜ›İ\›˜[Y_Xˆ	ù§*¹b!¹îá	ßOÜÜ[ƒBˆÜ[ˆÛ\ÜÓ˜[YOHœØÛÜK[]]Y¹."úgh¹cê¹¥.z/æy. 9céOÜÜ[ƒBˆÙ]ƒBˆ]ˆÛ\ÜÓ˜[YOH›[ÙK\İÚ]Ú]ÛˆÛ\ÜÓ˜[YO^ÜÙ[XİYİYKœÙ][™ÜË›[ÙHOOH	ÙX[ÙİYIÈÈ	ØXİ]™IÈˆ	ÉßHÛÛXÚÏ^Ê
-HOˆÙ][ÙJ	ÙX[ÙİYIÊ_O¹kîyæoOØ]Û]ÛˆÛ\ÜÓ˜[YO^ÜÙ[XİYİYKœÙ][™ÜË›[ÙHOOH	Ùœ™YIÈÈ	ØXİ]™IÈˆ	ÉßHÛÛXÚÏ^Ê
-HOˆÙ][ÙJ	Ùœ™YIÊ_Oº!ê¹å,y¯%9aîØ]ÛÙ]ƒBˆÙXİ[ÛˆÛ\ÜÓ˜[YOHœÙ][™ÜË\ÙXİ[ÛˆƒBˆ¹¥¡ùkeÏÚƒBˆ]ˆÛ\ÜÓ˜[YOHœÙ][™ËYÜšYƒBˆX™[º+í:+çy.®[œ]˜[YO^ÜÙ[XİYİYKœÙ][™ÜËœÜXZÙ\ŸHÛÚ[™ÙO^Ê]™[
-HOˆ]ÚİYJÈÜXZÙ\ˆ]™[\™Ù]˜[YHJ_HXÙZÛ\H¹/¢ùi »ï&¹n¥9kd9¬dˆÏÛX™[ƒBˆX™[¹keùcíûï";ï"O[Y\šXÑšY[Z[HˆX^HŒMˆˆ˜[YO^ÜÙ[XİYİYKœÙ][™ÜË™›ÛÚ^™_HÛÛÛ[Z]^Ê˜[YJHOˆ]ÚİYJÈ›ÛÚ^™Nˆ˜[YHJ_HÏÛX™[ƒBˆX™[¹¥¡ùkeúh§:"l]ˆÛ\ÜÓ˜[YOH˜ÛÛÜ‹Z[œ][œ]\OH˜ÛÛÜˆˆ˜[YO^ÜÙ[XİYİYKœÙ][™ÜË˜ÛÛÜŸHÛÚ[™ÙO^Ê]™[
-HOˆ]ÚİYJÈÛÛÜˆ]™Ej)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^nt.target.value })} /><span>{selectedCue.settings.color.toUpperCase()}</span></div></label>
+          <div className="transport-bar">
+            <div className="transport-buttons">
+              <button className="transport-play" title={playerState.status === 'playing' ? 'æš‚åœ' : playerState.status === 'paused' ? 'ç»§ç»­' : 'æ’­æ”¾å½“å‰å¥'} onClick={() => playerState.status === 'playing' ? playerRef.current.pause() : playerState.status === 'paused' ? playerRef.current.resume() : startPlayback(null)}>{playerState.status === 'playing' ? 'â…¡' : 'â–¶'}</button>
+              <button className="transport-stop" title="åœæ­¢å¹¶é‡ç½®" onClick={() => playerRef.current.stop()}>â– </button>
+              <button className="transport-replay" title="ä»å½“å‰å¥é‡æ’­" onClick={() => startPlayback(null)}>é‡æ’­</button>
+            </div>
+            <PlaybackProgress clock={playbackClockRef.current} onSeek={(fraction) => { playerRef.current.seek(fraction); setSeekRevision((value) => value + 1); }} />
+          </div>
+
+          <div className={`bottom-panels ${sequenceCollapsed ? 'sequence-collapsed' : ''}`}>
+            <section className={`sequence-panel ${sequenceCollapsed ? 'is-collapsed' : ''}`}>
+              <div className="panel-title"><strong>{sequenceCollapsed ? 'E' : 'E Â· æ¼”å‡ºé¡ºåº'}</strong>{!sequenceCollapsed && <span>{currentPlan.length} å¥</span>}<button title={sequenceCollapsed ? 'å±•å¼€æ¼”å‡ºåˆ—è¡¨' : 'æ”¶èµ·æ¼”å‡ºåˆ—è¡¨ï¼ŒæŠŠç©ºé—´è®©ç»™å³ä¾§è®¾ç½®'} onClick={() => setSequenceCollapsed((value) => !value)}>{sequenceCollapsed ? 'å±•å¼€' : 'æ”¶èµ·'}</button></div>
+              {!sequenceCollapsed && <>
+              <div className="sequence-list">
+                {currentPlan.map((cue: any, index: number) => <button key={cue.id} className={`sequence-row ${cue.id === selectedCueId ? 'active' : ''}`} onClick={() => selectCue(cue.id)}><i>{String(index + 1).padStart(2, '0')}</i><span>{cue.text || 'ï¼ˆç©ºæ®µè½ï¼‰'}</span><b>{cue.settings.mode === 'dialogue' ? 'å¯¹ç™½' : 'è‡ªç”±'}</b></button>)}
+                {!currentPlan.length && <p className="empty-sequence">å†™ä¸‹æ­£æ–‡åï¼Œæ¼”å‡ºé¡ºåºä¼šå‡ºç°åœ¨è¿™é‡Œã€‚</p>}
+              </div>
+              <div className="sequence-footer"><span>{previewCue?.settings.advance === 'timed' ? 'è‡ªåŠ¨æ¨è¿›' : 'ç­‰å¾…ç‚¹å‡»ç»§ç»­'}</span><button onClick={() => startPlayback('auto')}>æœ¬ç« è‡ªåŠ¨æ’­æ”¾</button></div>
+              </>}
+            </section>
+
+            <section className="settings-panel">
+              <div className="panel-title"><strong>F Â· å½“å‰å¥è®¾ç½®</strong><span>{selectedCue ? `ç¬¬ ${String(selectedCueIndex + 1).padStart(2, '0')} å¥` : 'æœªé€‰æ‹©'}</span></div>
+              <div className="settings-scroll">
+                {!selectedCue ? <p className="settings-empty">é€‰ä¸­æ­£æ–‡ä¸­çš„ä¸€å¥åï¼Œå¯ä»¥è®¾ç½®æ¼”å‡ºã€ç”»é¢å’Œå£°éŸ³ã€‚</p> : <>
+                  <div className="scope-line">
+                    <b>ç¬¬ {String(selectedCueIndex + 1).padStart(2, '0')} å¥</b>
+                    <span>{selectedCue.settings.mode === 'dialogue' ? 'å¯¹è¯æ¡†' : 'è‡ªç”±æ–‡å­—'}</span>
+                    <span className="scope-muted">{cueGroup ? `ç¬¬ ${cueGroupIndex + 1} ç»„ Â· ${cueGroup.name}` : 'æœªåˆ†ç»„'}</span>
+                    <span className="scope-muted">ä¸‹é¢åªæ”¹è¿™ä¸€å¥</span>
+                  </div>
+                  <div className="mode-switch"><button className={selectedCue.settings.mode === 'dialogue' ? 'active' : ''} onClick={() => setMode('dialogue')}>å¯¹ç™½</button><button className={selectedCue.settings.mode === 'free' ? 'active' : ''} onClick={() => setMode('free')}>è‡ªç”±æ¼”å‡º</button></div>
+                  <section className="settings-section">
+                    <h4>æ–‡å­—</h4>
+                    <div className="setting-grid">
+                      <label>è¯´è¯äºº<input value={selectedCue.settings.speaker} onChange={(event) => patchCue({ speaker: event.target.value })} placeholder="ä¾‹å¦‚ï¼šåº”å­æ±" /></label>
+                      <label>å­—å·ï¼ˆpxï¼‰<NumericField min="8" max="256" value={selectedCue.settings.fontSize} onCommit={(value) => patchCue({ fontSize: value })} /></label>
+                      <label>æ–‡å­—é¢œè‰²<div className="color-input"><input type="color" value={selectedCue.settings.color} onChange={(event) => patchCue({ color: event.target.value })} /><span>{selectedCue.settings.color.toUpperCase()}</span></div></label>
                       <label>æ–‡å­—å¯¹é½<select value={selectedCue.settings.align} onChange={(event) => patchCue({ align: event.target.value as CueSettings['align'] })}><option value="left">å·¦å¯¹é½</option><option value="center">å±…ä¸­</option><option value="right">å³å¯¹é½</option></select></label>
                     </div>
                   </section>
@@ -1278,94 +2423,100 @@ HOˆ]ÚİYJÈÛÛÜˆ]™Ej)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]é
                       <button title="ä¸‹ç§»ä¸€å±‚" onClick={() => moveLayer(-1)}>â†“</button><button title="ä¸Šç§»ä¸€å±‚" onClick={() => moveLayer(1)}>â†‘</button><button className="remove-layer" onClick={removeLayer}>ç§»é™¤å›¾å±‚</button>
                     </div>}
                     {selectedLayer && <div className="layer-extra-controls">
-                      <button onClick={() =¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±xøÕÁ‘…Ñ•1…å•È¡ì±½­•è€…Í•±•Ñ•‘1…å•È¹±½­•ô¥ôùíÍ•±•Ñ•‘1…å•È¹±½­•€ü€Ÿ¢¦Rœ€è€Ÿ¦R–ºhôğ½‰ÕÑÑ½¸øñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ì¡¥‘‘•¸è€…Í•±•Ñ•‘1…å•È¹¡¥‘‘•¸ô¥ôùíÍ•±•Ñ•‘1…å•È¹¡¥‘‘•¸€ü€Ÿšbû’èœ€è€Ÿ¦jC¢^<ôğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ì™±¥Á`è€…Í•±•Ñ•‘1…å•È¹™±¥Á`ô¥ôûšÂÓ–æÏşï¢ö°ğ½‰ÕÑÑ½¸øñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ì™±¥Ádè€…Í•±•Ñ•‘1…å•È¹™±¥Ádô¥ôû–znÓşï¢ö°ğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€€ñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ìàè€äØÀ€´Í•±•Ñ•‘1…å•È¹İ¥‘Ñ €¼€Èô¥ôûšÂÓ–æÏ–Æ’â´ğ½‰ÕÑÑ½¸øñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ìäè€ÔĞÀ€´Í•±•Ñ•‘1…å•È¹¡•¥¡Ğ€¼€Èô¥ôû–znÓ–Æ’â´ğ½‰ÕÑÑ½¸øñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ìàè€À°äè€À°İ¥‘Ñ è€ÄäÈÀ°¡•¥¡Ğè€ÄÀàÀ°É½Ñ…Ñ¥½¸è€Àô¥ôû¦¦7¢"{–>Àğ½‰ÕÑÑ½¸ø4(€€€€€€€€€€€€€€€€€€€€€íÍ•±•Ñ•‘1…å•ÉÌ¹±•¹Ñ €ø€Ä€˜˜€ğøñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôø‘¥ÍÑÉ¥‰ÕÑ•1…å•ÉÌ àœ¥ôûšÂÓ–æÏ–"–âğ½‰ÕÑÑ½¸øñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôø‘¥ÍÑÉ¥‰ÕÑ•1…å•ÉÌ äœ¥ôû–znÓ–"–âğ½‰ÕÑÑ½¸øğ¼ùô4(€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°û¦¦4ñÍ•±•ĞÙ…±Õ”õíÍ•±•Ñ•‘1…å•È¹™¥Ğ€üü€½¹Ñ…¥¸ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•1…å•È¡ì™¥Ğè•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”ô¥ôøñ½ÁÑ¥½¸Ù…±Õ”ô‰½¹Ñ…¥¸ˆû–º3šVÓšbû’èğ½½ÁÑ¥½¸øñ½ÁÑ¥½¸Ù…±Õ”ô‰½Ù•Èˆû¦Nëšî‡¢–"ğ½½ÁÑ¥½¸øñ½ÁÑ¥½¸Ù…±Õ”ô‰™¥±°ˆûš.'’òã–†¯šî„ğ½½ÁÑ¥½¸øğ½Í•±•Ğøğ½±…‰•°ø4(€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°û–Ş›¢–&¨ñ¥¹ÁÕĞÑåÁ”ô‰É…¹”ˆµ¥¸ôˆÀˆµ…àôˆĞÔˆÙ…±Õ”õí5…Ñ ¹É½Õ¹ ¡Í•±•Ñ•‘1…å•È¹É½Àü¹±•™Ğ€üü€À¤€¨€ÄÀÀ¥ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÉ½Àèì±•™Ğè9Õµ‰•È¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤€¼€ÄÀÀ°Ñ½ÀèÍ•±•Ñ•‘1…å•È¹É½Àü¹Ñ½À€üü€À°É¥¡ĞèÍ•±•Ñ•‘1…å•È¹É½Àü¹É¥¡Ğ€üü€À°‰½ÑÑ½´èÍ•±•Ñ•‘1…å•È¹É½Àü¹‰½ÑÑ½´€üü€Àôô¥ô€¼øğ½±…‰•°øñ±…‰•°û’â+¢–&¨ñ¥¹ÁÕĞÑåÁ”ô‰É…¹”ˆµ¥¸ôˆÀˆµ…àôˆĞÔˆÙ…±Õ”õí5…Ñ ¹É½Õ¹ ¡Í•±•Ñ•‘1…å•È¹É½Àü¹Ñ½À€üü€À¤€¨€ÄÀÀ¥ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÉ½Àèì±•™ĞèÍ•±•Ñ•‘1…å•È¹É½Àü¹±•™Ğ€üü€À°Ñ½Àè9Õµ‰•È¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤€¼€ÄÀÀ°É¥¡ĞèÍ•±•Ñ•‘1…å•È¹É½Àü¹É¥¡Ğ€üü€À°‰½ÑÑ½´èÍ•±•Ñ•‘1…å•È¹É½Àü¹‰½ÑÑ½´€üü€Àôô¥ô€¼øğ½±…‰•°ø4(€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°û–>Ï¢–&¨ñ¥¹ÁÕĞÑåÁ”ô‰É…¹”ˆµ¥¸ôˆÀˆµ…àôˆĞÔˆÙ…±Õ”õí5…Ñ ¹É½Õ¹ ¡Í•±•Ñ•‘1…å•È¹É½Àü¹É¥¡Ğ€üü€À¤€¨€ÄÀÀ¥ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÉ½Àèì±•™ĞèÍ•±•Ñ•‘1…å•È¹É½Àü¹±•™Ğ€üü€À°Ñ½ÀèÍ•±•Ñ•‘1…å•È¹É½Àü¹Ñ½À€üü€À°É¥¡Ğè9Õµ‰•È¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤€¼€ÄÀÀ°‰½ÑÑ½´èÍ•±•Ñ•‘1…å•È¹É½Àü¹‰½ÑÑ½´€üü€Àôô¥ô€¼øğ½±…‰•°øñ±…‰•°û’â/¢–&¨ñ¥¹ÁÕĞÑåÁ”ô‰É…¹”ˆµ¥¸ôˆÀˆµ…àôˆĞÔˆÙ…±Õ”õí5…Ñ ¹É½Õ¹ ¡Í•±•Ñ•‘1…å•È¹É½Àü¹‰½ÑÑ½´€üü€À¤€¨€ÄÀÀ¥ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÉ½Àèì±•™ĞèÍ•±•Ñ•‘1…å•È¹É½Àü¹±•™Ğ€üü€À°Ñ½ÀèÍ•±•Ñ•‘1…å•È¹É½Àü¹Ñ½À€üü€À°É¥¡ĞèÍ•±•Ñ•‘1…å•È¹É½Àü¹É¥¡Ğ€üü€À°‰½ÑÑ½´è9Õµ‰•È¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤€¼€ÄÀÀôô¥ô€¼øğ½±…‰•°ø4(€€€€€€€€€€€€€€€€€€€€€í…ÍÍ•ÑÌ¹™¥¹ ¡…ÍÍ•Ğ¤€ôø…ÍÍ•Ğ¹¥€ôôôÍ•±•Ñ•‘1…å•È¹…ÍÍ•Ñ%¤ü¹­¥¹€ôôô€Ù¥‘•¼œ€˜˜€ğøñ±…‰•°û&šº×¢Öß
-äµÌñ9Õµ•É¥¥•±µ¥¸ôˆÀˆÙ…±Õ”õíÍ•±•Ñ•‘1…å•È¹Ù¥‘•½MÑ…ÉÑ5Ì€üü€Áô½¹½µµ¥Ğõì¡Ù…±Õ”¤€ôøÕÁ‘…Ñ•1…å•È¡ìÙ¥‘•½MÑ…ÉÑ5ÌèÙ…±Õ”ô¥ô€¼øğ½±…‰•°øñ±…‰•°û&šº×î#
-äµÌñ9Õµ•É¥¥•±µ¥¸õì¡Í•±•Ñ•‘1…å•È¹Ù¥‘•½MÑ…ÉÑ5Ì€üü€À¤€¬€ÅôÙ…±Õ”õíÍ•±•Ñ•‘1…å•È¹Ù¥‘•½¹‘5Íô½¹±•…Èõì ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÙ¥‘•½¹‘5ÌèÕ¹‘•™¥¹•ô¥ô½¹½µµ¥Ğõì¡Ù…±Õ”¤€ôøÕÁ‘…Ñ•1…å•È¡ìÙ¥‘•½¹‘5ÌèÙ…±Õ”ô¥ô€¼øğ½±…‰•°øñ±…‰•°û–:–Ã¦~Ï¦<ñ¥¹ÁÕĞÑåÁ”ô‰É…¹”ˆµ¥¸ôˆÀˆµ…àôˆÄÀÀˆÙ…±Õ”õí5…Ñ ¹É½Õ¹ ¡Í•±•Ñ•‘1…å•È¹Ù¥‘•½Y½±Õµ”€üü€Ä¤€¨€ÄÀÀ¥ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÙ¥‘•½Y½±Õµ”è9Õµ‰•È¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤€¼€ÄÀÀô¥ô€¼øğ½±…‰•°øñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÙ¥‘•½5ÕÑ•è€…Í•±•Ñ•‘1…å•È¹Ù¥‘•½5ÕÑ•ô¥ôùíÍ•±•Ñ•‘1…å•È¹Ù¥‘•½5ÕÑ•€ü€Ÿš&O–ò¢¦ŠG–:–Àœ€è€Ÿ¦vg¦~Ï¢¦ŠG–:–Àôğ½‰ÕÑÑ½¸øñ‰ÕÑÑ½¸½¹±¥¬õì ¤€ôøÕÁ‘…Ñ•1…å•È¡ìÙ¥‘•½1½½Àè€…Í•±•Ñ•‘1…å•È¹Ù¥‘•½1½½Àô¥ôùíÍ•±•Ñ•‘1…å•È¹Ù¥‘•½1½½À€ü€Ÿ–sš¶‹–ú«:¿&šºÔœ€è€Ÿ–ú«:¿šJ·šRû&šºÔôğ½‰ÕÑÑ½¸øğ¼ùô4(€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øùô4(€€€€€€€€€€€€€€€€€€ğ½‘¥Øø4(€€€€€€€€€€€€€€€€€€ğ½Í•Ñ¥½¸ø4(€€€€€€€€€€€€€€€€€€ñÍ•Ñ¥½¸±…ÍÍ9…µ”ô‰Í•ÑÑ¥¹ÌµÍ•Ñ¥½¸ˆø4(€€€€€€€€€€€€€€€€€€€€ñ Ğû–Ã¦~Ìğ½ Ğø4(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰Í½Õ¹µ‰±½¬ˆø4(€€€€€€€€€€€€€€€€€€€€€€ñÍÑÉ½¹œûšr³–>—¦~ÏšV ğ½ÍÑÉ½¹œø4(€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰Í•ÑÑ¥¹œµÉ¥ˆø4(€€€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°û–Ï¢SÒƒšv@ñÍ•±•Ğ…É¥„µ±…‰•°ô‹šr³–>—¦~ÏšV ˆÙ…±Õ”õíÍ•±•Ñ•‘Õ”¹Í•ÑÑ¥¹Ì¹…Õ‘¥½%€üü€œô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÍ•ÑÕ‘¥¼¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¥ôøñ½ÁÑ¥½¸Ù…±Õ”ôˆˆû’â7–Ï¢S¦~ÏšV ğ½½ÁÑ¥½¸ùí…ÍÍ•ÑÌ¹™¥±Ñ•È ¡…ÍÍ•Ğ¤€ôøl…Õ‘¥¼œ°€µÕÍ¥Œt¹¥¹±Õ‘•Ì¡…ÍÍ•Ğ¹­¥¹¤¤¹µ…À ¡…ÍÍ•Ğ¤€ôø€ñ½ÁÑ¥½¸­•äõí…ÍÍ•Ğ¹¥‘ôÙ…±Õ”õí…ÍÍ•Ğ¹¥‘ôùí…ÍÍ•Ğ¹¹…µ•ôğ½½ÁÑ¥½¸ø¥ôğ½Í•±•Ğøğ½±…‰•°ø4(€€€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø4(€€€€€€€€€€€€€€€€€€€€€€ñÍµ…±°û–>«–r£¢şg’â–>—¢›–>G¾ò3š6‹–"Ã–"¯j–>—’â7’òk¢Şv–N7ğ½Íµ…±°ø4(€€€€€€€€€€€€€€€€€€€€ğ½‘¥Øø4(€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰Í½Õ¹µ‰±½¬ˆø4(€€€€€€€€€€€€€€€€€€€€€€ñÍÑÉ½¹œûî¢3šf¿¦~Ï’æAíÕ•É½ÕÀ€ü€ƒ
-Üƒ²°€‘íÕ•É½ÕÁ%¹‘•à€¬€Åôƒî€‘íÕ•É½ÕÀ¹¹…µ•õ€€è€œôğ½ÍÑÉ½¹œø4(€€€€€€€€€€€€€€€€€€€€€íÕ•É½ÕÀ€ü€ğø4(€€€€€€€€€€€€€€€€€€€€€€€€ñ‘¥Ø±…ÍÍ9…µ”ô‰Í•ÑÑ¥¹œµÉ¥ˆø4(€€€€€€€€€€€€€€€€€€€€€€€€€€ñ±…‰•°û¢3šf¿¦~Ï’æ@ñÍ•±•Ğ…É¥„µ±…‰•°ô‹–öO–&7îj¢3šf¿¦~Ï’æ@ˆÙ…±Õ”õíÕ•É½ÕÁ5ÕÍ¥Œü¹…ÍÍ•Ñ%€üü€œô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøì¥˜€¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤Í•ÑÉ½ÕÁ5ÕÍ¥Œ¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”°Õ•É½ÕÀ¹Á…É…É…Á¡%‘Ì¤ìõôøñ½ÁĞV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅæ–öâfÇVSÒ"#îKˆŞŠëî{ÚãÂö÷F–öãç¶76WG2æf–ÇFW"‚†76WB’Óâ76WBæ¶–æBÓÓÒvVF–òr’æÖ‚†76WB’ÓâÆ÷F–öâ¶W“×¶76WBæ–GÒfÇVS×¶76WBæ–GÓç¶76WBææÖWÓÂö÷F–öãâ—ÓÂ÷6VÆV7CãÂöÆ&VÃàĞ¢ÂöF—càĞ¢Ç6ÖÆÃîKÙÎyJˆÈ>Y»NûÉ§¶7VTw&÷Wç&w&„–G2æÆVæwF‡ÒjëW¶7VTw&÷W×W6–3òæw&÷W–G3òæÆVæwF‚ò+r‹ùî{ºÒG¶7VTw&÷W×W6–2æw&÷W–G2æÆVæwF‡Ò{¸F¢rwŞ8.[Ù>X˜ŞûÉ§¶7VTw&÷WVF–òò7VTw&÷WVF–òææÖR¢~iÊ®Šëî{ÚâwŞ8#Â÷6ÖÆÃàĞ¢ÆF—b6Æ74æÖSÒ&Æ–W"ÖW‡G&Ö6öçG&öÇ2#àĞ¢Æ'WGFöâöä6Æ–6³×²‚’Óâ6WDw&÷W×W6–4F–Æör‡²6†FW$–C¢6†FW"æ–BÂw&÷W–G3¢¶7VTw&÷Wæ–EÒÂ76WD–C¢7VTw&÷W×W6–3òæ76WD–BóòrrÒ—Óî‹ùî{ºŞZI®KŠ®{¸N(
-cÂö'WGFöãàĞ¢¶7VTw&÷W×W6–2bbÆ'WGFöâöä6Æ–6³×²‚’ÓâWFFT7F—fT6†FW"‚†7W'&VçB’Óâ&VÖ÷fT×W6–5&ævR†7W'&VçBÂ7VTw&÷W×W6–2æ–B’—Óîz{¾™šNiÊÎ{¸N˜XŞK™Âö'WGFöãçĞĞ¢ÂöF—càĞ¢Âóâ¢Ç6ÖÆÃî‹ùKˆXú^‹ùk*iÈ[Ù.{¸N8.[Ù.{¸NYîh˜Şˆ;ŞŠëî{Úî‹Jşz›şZI®Xú^y¨Nˆ8Îišş™û>K™8#Â÷6ÖÆÃçĞĞ¢ÂöF—càĞ¢Â÷6V7F–öãàĞ¢ÂóçĞĞ¢ÂöF—càĞ¢Â÷6V7F–öãàĞ¢ÂöF—càĞ¢Â÷6V7F–öãàĞ¢ÂöÖ–ãàĞ¢ÆF—b6Æ74æÖSÒ'7FGW6&"#ãÇ7âF—FÆS×·6fUF&vWBóò~iÊÎiË®ˆz®XªKùŞZÙ[z^zˆ²wÓî[z^zˆ¾ûÉ§·&ö¦V7BææÖWÒ+r¶6†FW"ææÖWÓÂ÷7ããÇ7ãç·6fUF&vWBóò~iÊÎiË®ˆz®XªKùŞZÙ[z^zˆ²wÓÂ÷7ããÆ'WGFöâöä6Æ–6³×²‚’Óâfö–Bv–æF÷rç7F÷'•v÷&¶&Væ6‚æÆ–'&'’æ÷Vå6fTföÆFW"†Æ–'&'”¶W•&Vbæ7W'&VçB’çF†Vâ‚‡F&vWB’Óâ6WDæ÷F–6R†KùŞZÙKØŞ{ÚîûÉ¢G·F&vWGÖ’’æ6F6‚‚†W'&÷"’Óâ6WDæ÷F–6R†W'&÷"æÖW76vR’—Óîh™>[ÈKùŞZÙKØŞ{ÚãÂö'WGFöããÆ'WGFöâöä6Æ–6³×·&W7F÷&U&ö¦V7GÓîh.ZHŞXènXû#Âö'WGFöããÆ'WGFöâöä6Æ–6³×²‚’Óâfö–B–×÷'E&ö¦V7B‚—ÓîZûÎXZ^[z^zˆ¾XÈSÂö'WGFöããÂöF—càĞ¢·&ö¦V7D÷W&F–öâbbÆF—b6Æ74æÖSÒ&÷W&F–öâÖ÷fW&Æ’#ãÇ7â6Æ74æÖSÒ&÷W&F–öâ×7–ææW""óîjÚ>YÊZèXZXˆ~hÚ.[z^zˆ¾(
-cÂöF—cçĞĞ¢¶ÖVF–&öw&W72bbÆF—b6Æ74æÖSÒ&÷W&F–öâÖ÷fW&Æ’#ãÇ7â6Æ74æÖSÒ&÷W&F–öâ×7–ææW""óç¶ÖVF–&öw&W77×¶ÖVF–&÷'E&Vbæ7W'&VçBbbÆ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"öä6Æ–6³×²‚’Óâ²ÖVF–&÷'E&Vbæ7W'&VçCòæ&÷'B‚“²6WDÖVF–&öw&W72‚~jÚ>YÊXùnkh(
-nŠz>z{¹>iÙşYîKÉ®KŠ.[È>{¹>iéÎ8"r“²×ÓîXùnkh[›nKŠ.[È3Âö'WGFöãçÓÂöF—cçĞĞ¢·&W7F÷&UfW'6–öç2bbÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ÷fW&Æ’#ãÇ6V7F–öâ6Æ74æÖSÒ&æÖRÖF–Æör&W7F÷&RÖ†—7F÷'’ÖF–Æör"&öÆSÒ&F–Æör"&–ÖÖöFÃÒ'G'VR"&–ÖÆ&VÃÒ.h.ZHŞXènXû""öä¶W”F÷vã×²†WfVçB’Óâ²–b†WfVçBæ¶W’ÓÓÒtW66Rr’6WE&W7F÷&UfW'6–öç2†çVÆÂ“²×ÓãÆƒ#îh.ZHŞXènXû#Âöƒ#ãÇîKùŞyYiÈ‹ù"KŠ®Zé®i{n[ú¾xZ~Xø¢‚KŠ®KùŞhªN[ú¾xZ~8.ZJ~˜xşXŠZÙ~X˜Şy¨Nx˜iÊÎXÙ^xºÎKùŞhªNûÉ¾h.ZHŞX˜ŞKÉ®KùŞyY[Ù>X˜Ş[z^zˆ¾8#Â÷ãÆF—b6Æ74æÖSÒ'&W7F÷&RÖ†—7F÷'’ÖÆ—7B#ç·&W7F÷&UfW'6–öç2æÆVæwF‚ò&W7F÷&UfW'6–öç2æÖ‚‡fW'6–öâ’ÓâÆ'WGFöâ¶W“×·fW'6–öâæ–GÒöä6Æ–6³×²‚’Óâfö–B&W7F÷&UfW'6–öâ‡fW'6–öâ—ÓãÇ7G&öæsç¶æWrFFR‡fW'6–öâç6fVDB’çFôÆö6ÆU7G&–ær‚w¦‚Ô4âr—ÓÂ÷7G&öæsãÇ7ãç·fW'6–öâç&V6öçÒ+r¶f÷&ÖE6—¦R‡fW'6–öâæ'—FW2—ÓÂ÷7ããÂö'WGFöãâ’¢Çîi¨.izXènXû.x˜iÊÎ8#Â÷çÓÂöF—cãÆ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"WFôfö7W2öä6Æ–6³×²‚’Óâ6WE&W7F÷&UfW'6–öç2†çVÆÂ—ÓîXùnkhƒÂö'WGFöããÂ÷6V7F–öããÂöF—cçĞĞ¢¶w&÷W×W6–4F–ÆörbbÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ÷fW&Æ’#ãÇ6V7F–öâ6Æ74æÖSÒ&æÖRÖF–Æörw&÷WÖ×W6–2ÖF–Æör"&öÆSÒ&F–Æör"&–ÖÖöFÃÒ'G'VR"&–ÖÆ&VÃÒ.Šëî{Úîjë^‰Ş{¸Nˆ8Îišş™û>K™"öä¶W”F÷vã×²†WfVçB’Óâ²–b†WfVçBæ¶W’ÓÓÒtW66Rr’6WDw&÷W×W6–4F–Æör†çVÆÂ“²×ÓãÆƒ#îŠëî{Úî{¸Nˆ8Îišş™û>K™Âöƒ#ãÇîyºîj~ûÉ§¶w&÷W×W6–4F–Æöræw&÷W–G2æÖ‚†–B’Óâ÷&FW&VDw&÷W2æf–æB‚†w&÷W¢ç’’Óâw&÷Wæ–BÓÓÒ–B“òææÖRóò~[{.XŠ™šNy¨N{¸Br’æ¦ö–â‚~8r—Ò+rŠhny¹n‹ùî{ºŞh˜˜{¸Ny¨NjÚ>ih~ˆÈ>Y»N8#Â÷ãÆÆ&VÃîˆ8Îišş™û>K™Ç6VÆV7BfÇVS×¶w&÷W×W6–4F–Æöræ76WD–GÒöä6†ævS×²†WfVçB’Óâ6WDw&÷W×W6–4F–Æör‚†7W'&VçB’Óâ7W'&VçBò²ââæ7W'&VçBÂ76WD–C¢WfVçBçF&vWBçfÇVRÒ¢7W'&VçB—ÓãÆ÷F–öâfÇVSÒ"#î˜hº[{.ZûÎXZ^y¨N™û>š)(
-cÂö÷F–öãç¶76WG2æf–ÇFW"‚†76WB’Óâ76WBæ¶–æBÓÓÒvVF–òr’æÖ‚†76WB’ÓâÆ÷F–öâ¶W“×¶76WBæ–GÒfÇVS×¶76WBæ–GÓç¶76WBææÖWÓÂö÷F–öãâ—ÓÂ÷6VÆV7CãÂöÆ&VÃãÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ7F–öç2#ãÆ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"WFôfö7W2öä6Æ–6³×²‚’Óâ6WDw&÷W×W6–4F–Æör†çVÆÂ—ÓîXùnkhƒÂö'WGFöããÆ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"öä6Æ–6³×¶–×÷'Dw&÷W×W6–7ÓîZûÎXZ^[›nKÛşyJ™û>K™Âö'WGFöããÆ'WGFöâ6Æ74æÖSÒ&'WGFöâ&–Ö'’"F—6&ÆVC×²w&÷W×W6–4F–Æöræ76WD–GÒöä6Æ–6³×¶6öæf—&Ôw&÷W×W6–7Óî[©NyJˆ8Îišş™û>K™Âö'WGFöããÂöF—cãÂ÷6V7F–öããÂöF—cçĞĞ¢·VæF–æt×W6–2bbÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ÷fW&Æ’#ãÇ6V7F–öâ6Æ74æÖSÒ&æÖRÖF–Æör"&öÆSÒ&F–Æör"&–ÖÖöFÃÒ'G'VR"&–ÖÆ&VÃÒ.zîŠêNi»şhÚ.ˆ8Îišş™û>K™#ãÆƒ#îyºîj~ˆÈ>Y»N[{.iÈˆ8Îišş™û>K™Âöƒ#ãÇî[ni»şhÚ.h˜˜’·VæF–æt×W6–2ç&w&„–G2æÆVæwF‡Òjë^y¨N˜XŞK™8.ˆÈ>Y»NZInK¸Şk+şyJXéş™û>K™ûÈÎhùKªNYîXúşi*N™H8#Â÷ãÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ7F–öç2#ãÆ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"WFôfö7W2öä6Æ–6³×²‚’Óâ6WEVæF–æt×W6–2†çVÆÂ—ÓîXùnkhƒÂö'WGFöããÆ'WGFöâ6Æ74æÖSÒ&'WGFöâ&–Ö'’"öä6Æ–6³×¶6öæf—&Ô×W6–5&WÆ6VÖVçGÓîi»şhÚ.yºîj~ˆÈ>Y»CÂö'WGFöããÂöF—cãÂ÷6V7F–öããÂöF—cçĞĞ¢¶'F–6ÆU&Wf–WrbbÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ÷fW&Æ’#ãÇ6V7F‘ZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{›ÛˆÛ\ÜÓ˜[YOH›˜[YKYX[ÙÈ\XÛKYX[ÙÈˆ›ÛOH™X[ÙÈˆ\šXK[[Ù[HYHˆ\šXK[X™[H¹¥¡ùêè9«hù¥¡úh¡:)âØ\XÛT™]šY]Ë›˜[Y_OÚ¹l!ˆØ\XÛT™]šY]Ëœ\˜YÜ˜\Ë›[™İH9«­y«hù¥¡ú/ïyb¨9b,9odùbcyêè:" »ï#9/çyåfy«­ya¡y£hº(c8à Ü]ˆÛ\ÜÓ˜[YOH˜\XÛK\™]šY]ÈØ\XÛT™]šY]Ëœ\˜YÜ˜\Ë›X\
+                      <button onClick={() => updateLayer({ locked: !selectedLayer.locked })}>{selectedLayer.locked ? 'è§£é”' : 'é”å®š'}</button><button onClick={() => updateLayer({ hidden: !selectedLayer.hidden })}>{selectedLayer.hidden ? 'æ˜¾ç¤º' : 'éšè—'}</button>
+                      <button onClick={() => updateLayer({ flipX: !selectedLayer.flipX })}>æ°´å¹³ç¿»è½¬</button><button onClick={() => updateLayer({ flipY: !selectedLayer.flipY })}>å‚ç›´ç¿»è½¬</button>
+                      <button onClick={() => updateLayer({ x: 960 - selectedLayer.width / 2 })}>æ°´å¹³å±…ä¸­</button><button onClick={() => updateLayer({ y: 540 - selectedLayer.height / 2 })}>å‚ç›´å±…ä¸­</button><button onClick={() => updateLayer({ x: 0, y: 0, width: 1920, height: 1080, rotation: 0 })}>é€‚é…èˆå°</button>
+                      {selectedLayers.length > 1 && <><button onClick={() => distributeLayers('x')}>æ°´å¹³åˆ†å¸ƒ</button><button onClick={() => distributeLayers('y')}>å‚ç›´åˆ†å¸ƒ</button></>}
+                      <label>é€‚é…<select value={selectedLayer.fit ?? 'contain'} onChange={(event) => updateLayer({ fit: event.target.value })}><option value="contain">å®Œæ•´æ˜¾ç¤º</option><option value="cover">é“ºæ»¡è£åˆ‡</option><option value="fill">æ‹‰ä¼¸å¡«æ»¡</option></select></label>
+                      <label>å·¦è£å‰ª<input type="range" min="0" max="45" value={Math.round((selectedLayer.crop?.left ?? 0) * 100)} onChange={(event) => updateLayer({ crop: { left: Number(event.target.value) / 100, top: selectedLayer.crop?.top ?? 0, right: selectedLayer.crop?.right ?? 0, bottom: selectedLayer.crop?.bottom ?? 0 } })} /></label><label>ä¸Šè£å‰ª<input type="range" min="0" max="45" value={Math.round((selectedLayer.crop?.top ?? 0) * 100)} onChange={(event) => updateLayer({ crop: { left: selectedLayer.crop?.left ?? 0, top: Number(event.target.value) / 100, right: selectedLayer.crop?.right ?? 0, bottom: selectedLayer.crop?.bottom ?? 0 } })} /></label>
+                      <label>å³è£å‰ª<input type="range" min="0" max="45" value={Math.round((selectedLayer.crop?.right ?? 0) * 100)} onChange={(event) => updateLayer({ crop: { left: selectedLayer.crop?.left ?? 0, top: selectedLayer.crop?.top ?? 0, right: Number(event.target.value) / 100, bottom: selectedLayer.crop?.bottom ?? 0 } })} /></label><label>ä¸‹è£å‰ª<input type="range" min="0" max="45" value={Math.round((selectedLayer.crop?.bottom ?? 0) * 100)} onChange={(event) => updateLayer({ crop: { left: selectedLayer.crop?.left ?? 0, top: selectedLayer.crop?.top ?? 0, right: selectedLayer.crop?.right ?? 0, bottom: Number(event.target.value) / 100 } })} /></label>
+                      {assets.find((asset) => asset.id === selectedLayer.assetId)?.kind === 'video' && <><label>ç‰‡æ®µèµ·ç‚¹ ms<NumericField min="0" value={selectedLayer.videoStartMs ?? 0} onCommit={(value) => updateLayer({ videoStartMs: value })} /></label><label>ç‰‡æ®µç»ˆç‚¹ ms<NumericField min={(selectedLayer.videoStartMs ?? 0) + 1} value={selectedLayer.videoEndMs} onClear={() => updateLayer({ videoEndMs: undefined })} onCommit={(value) => updateLayer({ videoEndMs: value })} /></label><label>åŸå£°éŸ³é‡<input type="range" min="0" max="100" value={Math.round((selectedLayer.videoVolume ?? 1) * 100)} onChange={(event) => updateLayer({ videoVolume: Number(event.target.value) / 100 })} /></label><button onClick={() => updateLayer({ videoMuted: !selectedLayer.videoMuted })}>{selectedLayer.videoMuted ? 'æ‰“å¼€è§†é¢‘åŸå£°' : 'é™éŸ³è§†é¢‘åŸå£°'}</button><button onClick={() => updateLayer({ videoLoop: !selectedLayer.videoLoop })}>{selectedLayer.videoLoop ? 'åœæ­¢å¾ªç¯ç‰‡æ®µ' : 'å¾ªç¯æ’­æ”¾ç‰‡æ®µ'}</button></>}
+                    </div>}
+                  </div>
+                  </section>
+                  <section className="settings-section">
+                    <h4>å£°éŸ³</h4>
+                    <div className="sound-block">
+                      <strong>æœ¬å¥éŸ³æ•ˆ</strong>
+                      <div className="setting-grid">
+                        <label>å…³è”ç´ æ<select aria-label="æœ¬å¥éŸ³æ•ˆ" value={selectedCue.settings.audioId ?? ''} onChange={(event) => setAudio(event.target.value)}><option value="">ä¸å…³è”éŸ³æ•ˆ</option>{assets.filter((asset) => ['audio', 'music'].includes(asset.kind)).map((asset) => <option key={asset.id} value={asset.id}>{asset.name}</option>)}</select></label>
+                      </div>
+                      <small>åªåœ¨è¿™ä¸€å¥è§¦å‘ï¼Œæ¢åˆ°åˆ«çš„å¥ä¸ä¼šè·Ÿç€å“ã€‚</small>
+                    </div>
+                    <div className="sound-block">
+                      <strong>ç»„èƒŒæ™¯éŸ³ä¹{cueGroup ? ` Â· ç¬¬ ${cueGroupIndex + 1} ç»„ ${cueGroup.name}` : ''}</strong>
+                      {cueGroup ? <>
+                        <div className="setting-grid">
+                          <label>èƒŒæ™¯éŸ³ä¹<select aria-label="å½“å‰ç»„çš„èƒŒæ™¯éŸ³ä¹" value={cueGroupMusic?.assetId ?? ''} onChange={(event) => { if (event.target.value) setGroupMusic(event.target.value, cueGroup.paragraphIds); }}><option value="">ä¸è®¾ç½®</option>{assets.filter((asset) => asset.kind === 'audio').map((asset) => <option key={asset.id} value={asset.id}>{asset.name}</option>)}</select></label>
+                        </div>
+                        <small>ä½œç”¨èŒƒå›´ï¼š{cueGroup.paragraphIds.length} æ®µ{cueGroupMusic?.groupIds?.length ? ` Â· è¿ç»­ ${cueGroupMusic.groupIds.length} ç»„` : ''}ã€‚å½“å‰ï¼š{cueGroupAudio ? cueGroupAudio.name : 'æœªè®¾ç½®'}ã€‚</small>
+                        <div className="layer-extra-controls">
+                          <button onClick={() => setGroupMusicDialog({ chapterId: chapter.id, groupIds: [cueGroup.id], assetId: cueGroupMusic?.assetId ?? '' })}>è¿ç»­å¤šä¸ªç»„â€¦</button>
+                          {cueGroupMusic && <button onClick={() => updateActiveChapter((current) => removeMusicRange(current, cueGroupMusic.id))}>ç§»é™¤æœ¬ç»„é…ä¹</button>}
+                        </div>
+                      </> : <small>è¿™ä¸€å¥è¿˜æ²¡æœ‰å½’ç»„ã€‚å½’ç»„åæ‰èƒ½è®¾ç½®è´¯ç©¿å¤šå¥çš„èƒŒæ™¯éŸ³ä¹ã€‚</small>}
+                    </div>
+                  </section>
+                </>}
+              </div>
+            </section>
+          </div>
+        </section>
+      </main>
+      <div className="statusbar"><span title={saveTarget ?? 'æœ¬æœºè‡ªåŠ¨ä¿å­˜å·¥ç¨‹'}>å·¥ç¨‹ï¼š{project.name} Â· {chapter.name}</span><span>{saveTarget ?? 'æœ¬æœºè‡ªåŠ¨ä¿å­˜å·¥ç¨‹'}</span><button onClick={() => void window.storyWorkbench.library.openSaveFolder(libraryKeyRef.current).then((target) => setNotice(`ä¿å­˜ä½ç½®ï¼š${target}`)).catch((error) => setNotice(error.message))}>æ‰“å¼€ä¿å­˜ä½ç½®</button><button onClick={restoreProject}>æ¢å¤å†å²</button><button onClick={() => void importProject()}>å¯¼å…¥å·¥ç¨‹åŒ…</button></div>
+      {projectOperation && <div className="operation-overlay"><span className="operation-spinner" />æ­£åœ¨å®‰å…¨åˆ‡æ¢å·¥ç¨‹â€¦</div>}
+      {mediaProgress && <div className="operation-overlay"><span className="operation-spinner" />{mediaProgress}{mediaAbortRef.current && <button className="button quiet" onClick={() => { mediaAbortRef.current?.abort(); setMediaProgress('æ­£åœ¨å–æ¶ˆâ€¦è§£ç ç»“æŸåä¼šä¸¢å¼ƒç»“æœã€‚'); }}>å–æ¶ˆå¹¶ä¸¢å¼ƒ</button>}</div>}
+      {restoreVersions && <div className="name-dialog-overlay"><section className="name-dialog restore-history-dialog" role="dialog" aria-modal="true" aria-label="æ¢å¤å†å²" onKeyDown={(event) => { if (event.key === 'Escape') setRestoreVersions(null); }}><h2>æ¢å¤å†å²</h2><p>ä¿ç•™æœ€è¿‘ 12 ä¸ªå®šæ—¶å¿«ç…§åŠ 8 ä¸ªä¿æŠ¤å¿«ç…§ã€‚å¤§é‡åˆ å­—å‰çš„ç‰ˆæœ¬å•ç‹¬ä¿æŠ¤ï¼›æ¢å¤å‰ä¼šä¿ç•™å½“å‰å·¥ç¨‹ã€‚</p><div className="restore-history-list">{restoreVersions.length ? restoreVersions.map((version) => <button key={version.id} onClick={() => void restoreVersion(version)}><strong>{new Date(version.savedAt).toLocaleString('zh-CN')}</strong><span>{version.reason} Â· {formatSize(version.bytes)}</span></button>) : <p>æš‚æ— å†å²ç‰ˆæœ¬ã€‚</p>}</div><button className="button quiet" autoFocus onClick={() => setRestoreVersions(null)}>å–æ¶ˆ</button></section></div>}
+      {groupMusicDialog && <div className="name-dialog-overlay"><section className="name-dialog group-music-dialog" role="dialog" aria-modal="true" aria-label="è®¾ç½®æ®µè½ç»„èƒŒæ™¯éŸ³ä¹" onKeyDown={(event) => { if (event.key === 'Escape') setGroupMusicDialog(null); }}><h2>è®¾ç½®ç»„èƒŒæ™¯éŸ³ä¹</h2><p>ç›®æ ‡ï¼š{groupMusicDialog.groupIds.map((id) => orderedGroups.find((group: any) => group.id === id)?.name ?? 'å·²åˆ é™¤çš„ç»„').join('ã€')} Â· è¦†ç›–è¿ç»­æ‰€é€‰ç»„çš„æ­£æ–‡èŒƒå›´ã€‚</p><label>èƒŒæ™¯éŸ³ä¹<select value={groupMusicDialog.assetId} onChange={(event) => setGroupMusicDialog((current) => current ? { ...current, assetId: event.target.value } : current)}><option value="">é€‰æ‹©å·²å¯¼å…¥çš„éŸ³é¢‘â€¦</option>{assets.filter((asset) => asset.kind === 'audio').map((asset) => <option key={asset.id} value={asset.id}>{asset.name}</option>)}</select></label><div className="name-dialog-actions"><button className="button quiet" autoFocus onClick={() => setGroupMusicDialog(null)}>å–æ¶ˆ</button><button className="button quiet" onClick={importGroupMusic}>å¯¼å…¥å¹¶ä½¿ç”¨éŸ³ä¹</button><button className="button primary" disabled={!groupMusicDialog.assetId} onClick={confirmGroupMusic}>åº”ç”¨èƒŒæ™¯éŸ³ä¹</button></div></section></div>}
+      {pendingMusic && <div className="name-dialog-overlay"><section className="name-dialog" role="dialog" aria-modal="true" aria-label="ç¡®è®¤æ›¿æ¢èƒŒæ™¯éŸ³ä¹"><h2>ç›®æ ‡èŒƒå›´å·²æœ‰èƒŒæ™¯éŸ³ä¹</h2><p>å°†æ›¿æ¢æ‰€é€‰ {pendingMusic.paragraphIds.length} æ®µçš„é…ä¹ã€‚èŒƒå›´å¤–ä»æ²¿ç”¨åŸéŸ³ä¹ï¼Œæäº¤åå¯æ’¤é”€ã€‚</p><div className="name-dialog-actions"><button className="button quiet" autoFocus onClick={() => setPendingMusic(null)}>å–æ¶ˆ</button><button className="button primary" onClick={confirmMusicReplacement}>æ›¿æ¢ç›®æ ‡èŒƒå›´</button></div></section></div>}
+      {articlePreview && <div className="name-dialog-overlay"><section className="name-dialog article-dialog" role="dialog" aria-modal="true" aria-label="æ–‡ç« æ­£æ–‡é¢„è§ˆ"><h2>{articlePreview.name}</h2><p>å°† {articlePreview.paragraphs.length} æ®µæ­£æ–‡è¿½åŠ åˆ°å½“å‰ç« èŠ‚ï¼Œä¿ç•™æ®µå†…æ¢è¡Œã€‚</p><div className="article-preview">{articlePreview.paragraphs.map((text, index) => <p key={index}>{text}</p>)}</div><div className="name-dialog-actions"><button className="button quiet" onClick={() => setArticlePreview(null)}>å–æ¶ˆ</button><button className="button primary" onClick={appendArticle}>è¿½åŠ åˆ°å½“å‰ç« </button></div></section></div>}
+      {confirmation && <div className="name-dialog-overlay"><section className="name-dialog" role="dialog" aria-modal="true" aria-label={confirmation.title}><h2>{confirmation.title}</h2><p>{confirmation.detail}</p><div className="name-dialog-actions"><button className="button quiet" autoFocus onClick={() => setConfirmation(null)}>å–æ¶ˆ</button><button className="button primary" onClick={() => { const action = confirmation.action; setConfirmation(null); try { action(); } catch (error) { setNotice(error instanceof Error ? error.message : 'æ“ä½œæœªæäº¤ã€‚'); } }}>ç¡®è®¤ç§»é™¤</button></div></section></div>}
+      {nameDialog && <NameInputDialog dialog={nameDialog} onCancel={closeNameDialog} />}
+      {importCandidate && <ImportConflictDialog candidate={importCandidate} onResolve={(choice) => void resolveImportConflict(choice)} onCancel={() => setImportCandidate(null)} />}
+      {aiReviewState && <AiReviewDialog key={aiReviewState.mode} state={aiReviewState} busy={aiReviewBusy} selectedGroupCount={selectedGroupIds.length} onCancel={() => setAiReviewState(null)} onExport={exportAiReview} onApply={applyAiReview} onCopyPrompt={async (prompt) => { try { await navigator.clipboard.writeText(prompt); setNotice('æ”¹è¿›æç¤ºè¯å·²å¤åˆ¶ã€‚'); } catch { setNotice('å¤åˆ¶å¤±è´¥ï¼Œè¯·åœ¨æ–‡æœ¬æ¡†ä¸­æ‰‹åŠ¨å¤åˆ¶æç¤ºè¯ã€‚'); } }} onToggle={(index, checked) => setAiReviewState((current) => current?.mode === 'import' ? { ...current, checked: current.checked.map((value, i) => i === index ? checked : value) } : current)} />}
+      {openMenu && <ContextMenu x={openMenu.x} y={openMenu.y} title={openMenu.title} commands={openMenu.commands} onExecute={(command) => runMenuAction(command, openMenu.focus)} onClose={() => { const focus = openMenu.focus; setOpenMenu(null); if (focus?.isConnected) requestAnimationFrame(() => focus.focus()); }} />}
+      {notice && <div role="status" className="toast">{notice}</div>}
+    </div>
+  );
+}
 
-^[™^
-HOˆÙ^O^Ú[™^Oİ^OÜŠ_OÙ]]ˆÛ\ÜÓ˜[YOH›˜[YKYX[ÙËXXİ[ÛœÈ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆÛÛXÚÏ^Ê
-HOˆÙ]\XÛT™]šY]Ê[
-_O¹cå¹­¢Ø]Û]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆš[X\HˆÛÛXÚÏ^Ø\[™\XÛ_Oº/ïyb¨9b,9odùbcyêèØ]ÛÙ]ÜÙXİ[ÛÙ]ŸCBˆØÛÛ™š\›X][Ûˆ	‰ˆ]ˆÛ\ÜÓ˜[YOH›˜[YKYX[ÙË[İ™\›^HÙXİ[ÛˆÛ\ÜÓ˜[YOH›˜[YKYX[ÙÈˆ›ÛOH™X[ÙÈˆ\šXK[[Ù[HYHˆ\šXK[X™[^ØÛÛ™š\›X][Û‹]_OØÛÛ™š\›X][Û‹]_OÚØÛÛ™š\›X][Û‹™]Z[OÜ]ˆÛ\ÜÓ˜[YOH›˜[YKYX[ÙËXXİ[ÛœÈ]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆ]ZY]ˆ]]Ñ›Øİ\ÈÛÛXÚÏ^Ê
-HOˆÙ]ÛÛ™š\›X][ÛŠ[
-_O¹cå¹­¢Ø]Û]ÛˆÛ\ÜÓ˜[YOH˜]Ûˆš[X\HˆÛÛXÚÏ^Ê
-HOˆÈÛÛœİXİ[ÛˆHÛÛ™š\›X][Û‹˜Xİ[ÛÈÙ]ÛÛ™š\›X][ÛŠ[
-NÈHÈXİ[ÛŠ
-NÈHØ]Ú
-\œ›ÜŠHÈÙ]›İXÙJ\œ›Üˆ[œİ[˜Ù[Ùˆ\œ›ÜˆÈ\œ›Ü‹›Y\ÜØYÙHˆ	ù¤ãy/g9§*¹£ä9.©8à ‰ÊNÈH_O¹èkº+©9éîúfiØ]ÛÙ]ÜÙXİ[ÛÙ]ŸCBˆÛ˜[YQX[ÙÈ	‰ˆ˜[YR[œ]X[ÙÈX[ÙÏ^Û˜[YQX[ÙßHÛØ[˜Ù[^ØÛÜÙS˜[YQX[ÙßHÏŸCBˆÚ[\ÜØ[™Y]H	‰ˆ[\ÜÛÛ™›XİX[ÙÈØ[™Y]O^Ú[\ÜØ[™Y]_HÛ”™\ÛÛ™O^ÊÚÚXÙJHOˆ›ÚY™\ÛÛ™R[\ÜÛÛ™›Xİ
-ÚÚXÙJ_HÛØ[˜Ù[^Ê
-HOˆÙ][\ÜØ[™Y]J[
-_HÏŸCBˆØZT™]šY]Ôİ]H	‰ˆZT™]šY]ÑX[ÙÈÙ^O^ØZT™]šY]Ôİ]K›[Ù_Hİ]O^ØZT™]šY]Ôİ]_H\ŞO^ØZT™]šY]Ğ\Ş_HÙ[XİYÜ›İ\Ûİ[^ÜÙ[XİYÜ›İ\YË›[™İHÛØ[˜Ù[^Ê
-HOˆÙ]ZT™]šY]Ôİ]J[
-_HÛ‘^Ü^Ù^ÜZT™]šY]ßHÛ\O^Ø\PZT™]šY]ßHÛÛÜT›Û\^Ø\Ş[˜È
-›Û\
-HOˆÈHÈ]ØZ]˜]šYØ]Ü‹˜Û\›Ø\™Üš]U^
-›Û\
-NÈÙ]›İXÙJ	ù¥.z/æù£ä9é.º+ãymì¹i#yb-¸à ‰ÊNÈHØ]ÚÈÙ]›İXÙJ	ùi#yb-¹i,z-){ï#:+íùg*9¥¡ù§+9¨a¹.+y¢bùbª9i#yb-¹£ä9é.º+ãxà ‰ÊNÈH_HÛ•ÙÙÛO^Ê[™^ÚXÚÙY
-HOˆÙ]ZT™]šY]Ôİ]J
-İ\œ™[
-HOˆİ\œ™[Ë›[ÙHOOH	Ú[\Ü	ÈÈÈ‹‹˜İ\œ™[ÚXÚÙYˆİ\œ™[˜ÚXÚÙY›X\
+function StageImageLayer({ layer, asset, selected, editable, status, cueId, playSessionRevision, seekRevision, elapsedMs, onNotice, onSelect, onCommit, onContextMenu }: { layer: any; asset: AssetRecord; selected: boolean; editable: boolean; status: string; cueId?: string; playSessionRevision: number; seekRevision: number; elapsedMs: number; onNotice: (message: string) => void; onSelect: () => void; onCommit: (patch: Record<string, any>) => void; onContextMenu?: (event: React.MouseEvent) => void }) {
+  const ref = useRef<HTMLDivElement | null>(null);
+  const videoRef = useRef<HTMLVideoElement | null>(null);
+  const cleanupRef = useRef<(() => void) | null>(null);
+  const lastStatusRef = useRef(status);
+  const lastSessionRef = useRef(playSessionRevision);
+  const lastSeekRef = useRef(seekRevision);
+  const lastCueRef = useRef(cueId);
+  const lastVideoConfigRef = useRef('');
+  useEffect(() => () => cleanupRef.current?.(), []);
 
-˜[YKJHOˆHOOH[™^ÈÚXÚÙYˆ˜[YJHHˆİ\œ™[
-_HÏŸCBˆÛÜ[“Y[H	‰ˆÛÛ^Y[H^ÛÜ[“Y[KHO^ÛÜ[“Y[K_H]O^ÛÜ[“Y[K]_HÛÛ[X[™Ï^ÛÜ[“Y[K˜ÛÛ[X[™ßHÛ‘^Xİ]O^ÊÛÛ[X[™
-HOˆ[“Y[PXİ[ÛŠÛÛ[X[™Ü[“Y[K™›Øİ\Ê_HÛÛÜÙO^Ê
-HOˆÈÛÛœİ›Øİ\ÈHÜ[“Y[K™›Øİ\ÎÈÙ]Ü[“Y[J[
-NÈYˆ
-›Øİ\ÏËš\ĞÛÛ›™XİY
-H™\]Y\İ[š[X][Û‘œ˜[YJ
+  const percentStyle = (layout: { x: number; y: number; width: number; height: number }) => ({
+    left: `${layout.x / 1920 * 100}%`, top: `${layout.y / 1080 * 100}%`,
+    width: `${layout.width / 1920 * 100}%`, height: `${layout.height / 1080 * 100}%`,
+  });
 
-HOˆ›Øİ\Ë™›Øİ\Ê
-JNÈ_HÏŸCBˆÛ›İXÙH	‰ˆ]ˆ›ÛOHœİ]\ÈˆÛ\ÜÓ˜[YOHØ\İÛ›İXÙ_OÙ]ŸCBˆÙ]ƒBˆ
-NÃBŸCBƒB™[˜İ[ÛˆİYÙR[XYÙS^Y\ŠÈ^Y\‹\ÜÙ]Ù[XİYY]X›Kİ]\ËİYRY^TÙ\ÜÚ[Û”™]š\Ú[Û‹ÙYZÔ™]š\Ú[Û‹[\ÙY\ËÛ“›İXÙKÛ”Ù[XİÛÛÛ[Z]ÛÛÛ^Y[HNˆÈ^Y\ˆ[NÈ\ÜÙ]ˆ\ÜÙ]™XÛÜ™ÈÙ[XİYˆ›ÛÛX[ÈY]X›Nˆ›ÛÛX[Èİ]\Îˆİš[™ÎÈİYRYÎˆİš[™ÎÈ^TÙ\ÜÚ[Û”™]š\Ú[Ûˆ[X™\ÈÙYZÔ™]š\Ú[Ûˆ[X™\È[\ÙY\Îˆ[X™\ÈÛ“›İXÙNˆ
-Y\ÜØYÙNˆİš[™ÊHOˆ›ÚYÈÛ”Ù[Xİˆ
-
-HOˆ›ÚYÈÛÛÛ[Z]ˆ
-]Úˆ™XÛÜ™İš[™Ë[OŠHOˆ›ÚYÈÛÛÛ^Y[OÎˆ
-]™[ˆ™XXİ“[İ\ÙQ]™[
-HOˆ›ÚYJHÃBˆÛÛœİ™YˆH\ÙT™YS]‘[[Y[[Š[
-NÃBˆÛÛœİšY[Ô™YˆH\ÙT™YSšY[Ñ[[Y[[Š[
-NÃBˆÛÛœİÛX[\™YˆH\ÙT™Y
-
-
-HOˆ›ÚY
-H[Š[
-NÃBˆÛÛœİ\İİ]\Ô™YˆH\ÙT™YŠİ]\ÊNÃBˆÛÛœİ\İÙ\ÜÚ[Û”™YˆH\ÙT™YŠ^TÙ\ÜÚ[Û”™]š\Ú[ÛŠNÃBˆÛÛœİ\İÙYZÔ™YˆH\ÙT™YŠÙYZÔ™]š\Ú[ÛŠNÃBˆÛÛœİ\İİYT™YˆH\ÙT™YŠİYRY
-NÃBˆÛÛœİ\İšY[ĞÛÛ™šYÔ™YˆH\ÙT™YŠ	ÉÊNÃBˆ\ÙQY™™Xİ
-
-
-HOˆ
-
-HOˆÛX[\™Y‹˜İ\œ™[ËŠ
-K×JNÃBƒBˆÛÛœİ\˜Ù[İ[HH
-^[İ]ˆÈˆ[X™\ÈNˆ[X™\ÈÚYˆ[X™\ÈZYÚˆ[X™\ˆJHOˆ
-ÃBˆYˆ	Û^[İ]ÈNLŒ
-ˆLIXÜˆ	Û^[İ]HÈL
-ˆLIXBˆÚYˆ	Û^[İ]ÚYÈNLŒ
-ˆLIXZYÚˆ	Û^[İ]šZYÚÈL
-ˆLIXBˆJNÃBƒBˆ\ÙQY™™Xİ
-
-
-HOˆÃBˆÛÛœİšY[ÈHšY[Ô™Y‹˜İ\œ™[ÃBˆYˆ
-]šY[ÊH™]\›ÃBˆšY[Ë›Û[YHHX]›X^
-X]›Z[ŠK^Y\‹šY[Õ›Û[YHÏÈJJNÃBˆšY[Ë›]]YHH[^Y\‹šY[Ó]]YÃBˆÛÛœİÛÛ™šYÈHØ\ÜÙ]šY^Y\‹šY[Ôİ\\Ë^Y\‹šY[Ñ[™\Ë^Y\‹šY[ÓÛÜKš›Ú[Š	Î‰ÊNÃBˆÛÛœİ™]ÔÙ\ÜÚ[ÛˆH\İİ]\Ô™Y‹˜İ\œ™[OOH	ÜİÜY	È\İÙ\ÜÚ[Û”™Y‹˜İ\œ™[OOH^TÙ\ÜÚ[Û”™]š\Ú[Ûˆ\İİYT™Y‹˜İ\œ™[OOHİYRYÃBˆYˆ
-™]ÔÙ\ÜÚ[Ûˆ\İÙYZÔ™Y‹˜İ\œ™[OOHÙYZÔ™]š\Ú[Ûˆ\İšY[ĞÛÛ™šYÔ™Y‹˜İ\œ™[OOHÛÛ™šYÊHÃBˆÛÛœİ\Ú\™YHšY[ÔÜÚ][Û”ÙXÛÛ™Ê^Y\‹İ]\ÈOOH	ÜİÜY	È™]ÔÙ\ÜÚ[ÛˆÈˆ[\ÙY\ËšY[Ë™\˜][ÛŠNÃBˆYˆ
-[X™\‹š\Ñš[š]JšY[Ë™\˜][ÛŠJHšY[Ë˜İ\œ™[[YHH\Ú\™YÃBˆCBˆ]Xİ]™HHYNÃBˆYˆ
-İ]\ÈOOH	Ü^Z[™ÉÊH›ÚYšY[Ëœ^J
-K˜Ø]Ú
-
-\œ›ÜŠHOˆÈYˆ
-Xİ]™H	‰ˆ\œ›Ü‹›˜[YHOOH	ĞX›Ü\œ›Ü‰ÊHÛ“›İXÙJ	ú)áºh¤y¤«y¥/¹i,z-){ï&‰È
-È
-\œ›Ü‹›Y\ÜØYÙH\ÜÙ]›˜[YJJNÈJNÃBˆ[ÙHšY[Ëœ]\ÙJ
-NÃBˆ\İİ]\Ô™Y‹˜İ\œ™[Hİ]\ÎÃBˆ\İÙ\ÜÚ[Û”™Y‹˜İ\œ™[H^TÙ\ÜÚ[Û”™]š\Ú[ÛÃBˆ\İÙYZÔ™Y‹˜İ\œ™[HÙYZÔ™]š\Ú[ÛÃBˆ\İİYT™Y‹˜İ\œ™[HİYRYÃBˆ\İšY[ĞÛÛ™šYÔ™Y‹˜İ\œ™[HÛÛ™šYÎÃBˆ™]\›ˆ
-
-HOˆÈXİ]™HH˜[ÙNÈNÃBˆKÜİ]\ËİYRY^TÙ\ÜÚ[Åj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^nRevision, seekRevision, layer.videoMuted, layer.videoVolume, layer.videoStartMs, layer.videoEndMs, layer.videoLoop, asset.id]);
+  useEffect(() => {
+    const video = videoRef.current;
+    if (!video) return;
+    video.volume = Math.max(0, Math.min(1, layer.videoVolume ?? 1));
+    video.muted = !!layer.videoMuted;
+    const config = [asset.id, layer.videoStartMs, layer.videoEndMs, layer.videoLoop].join(':');
+    const newSession = lastStatusRef.current === 'stopped' || lastSessionRef.current !== playSessionRevision || lastCueRef.current !== cueId;
+    if (newSession || lastSeekRef.current !== seekRevision || lastVideoConfigRef.current !== config) {
+      const desired = videoPositionSeconds(layer, status === 'stopped' || newSession ? 0 : elapsedMs, video.duration);
+      if (Number.isFinite(video.duration)) video.currentTime = desired;
+    }
+    let active = true;
+    if (status === 'playing') void video.play().catch((error) => { if (active && error.name !== 'AbortError') onNotice('è§†é¢‘æ’­æ”¾å¤±è´¥ï¼š' + (error.message || asset.name)); });
+    else video.pause();
+    lastStatusRef.current = status;
+    lastSessionRef.current = playSessionRevision;
+    lastSeekRef.current = seekRevision;
+    lastCueRef.current = cueId;
+    lastVideoConfigRef.current = config;
+    return () => { active = false; };
+  }, [status, cueId, playSessionRevision, seekRevision, layer.videoMuted, layer.videoVolume, layer.videoStartMs, layer.videoEndMs, layer.videoLoop, asset.id]);
 
 
 
@@ -1430,91 +2581,139 @@ HOˆÈXİ]™HH˜[ÙNÈNÃBˆKÜİ]\ËİYRY^TÙ\ÜÚ[Åj)^vÚŠwky©e¡Æ­Š‰è|%,z
   const left = crop.left ?? 0; const right = crop.right ?? 0; const top = crop.top ?? 0; const bottom = crop.bottom ?? 0;
   const mediaStyle: React.CSSProperties = { left: `${-left / (1 - left - right) * 100}%`, top: `${-top / (1 - top - bottom) * 100}%`, width: `${100 / (1 - left - right)}%`, height: `${100 / (1 - top - bottom)}%`, objectFit: layer.fit ?? 'contain', transform: `scale(${layer.flipX ? -1 : 1}, ${layer.flipY ? -1 : 1})` };
   return <div ref={ref} className={`scene-layer-handle ${selected && editable ? 'selected' : ''} ${layer.locked ? 'locked' : ''}`} style={{ ...percentStyle(layer), opacity: layer.opacity, zIndex: layer.zIndex + 1, transform: `rotate(${layer.rotation ?? 0}deg)`, pointerEvents: editable ? 'auto' : 'none' }} onPointerDown={beginGesture} onContextMenu={onContextMenu}>
-    <div className="scene-layer-viewport">{asset.kind === 'video' ? <video ref={videoRef} className="scene-layer-image" src={objectUrl(asset)} style={mediaStyle} muted={!!layer.videoMuted} playsInline preload="auto" onError={() => onNotice('è§†é¢‘æ— æ³•è§£ç ï¼š' + asset.name + 'ï¼Œè¯·ä½¿ç”¨ H.264/AAC MP4ã€‚')} onLoadedMetadata={(event) => { event.currentTarget.currentTime = videoPositionSeconds(layer, status === 'stopped' ? 0 : elapsedMs, event.currentTarget.duration); }} onTimeUpdate={(event) => { const video = event.currentTarget; const end = layer.videoEndMs ? layer.videoEndMs / 1000 : video.duration; if (Number.isFinite(end) && video.currentTime >= ¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•¹¤ì¥˜€¡±…å•È¹Ù¥‘•½1½½À¤Ù¥‘•¼¹ÕÉÉ•¹ÑQ¥µ”€ô€¡±…å•È¹Ù¥‘•½MÑ…ÉÑ5Ì€üü€À¤€¼€ÄÀÀÀì•±Í”Ù¥‘•¼¹Á…ÕÍ” ¤ìôõô€¼ø€è€ñ¥µœ±…ÍÍ9…µ”ô‰Í•¹”µ±…å•Èµ¥µ…”ˆÍÉŒõí½‰©•ÑUÉ°¡…ÍÍ•Ğ¥ô…±Ğõí…ÍÍ•Ğ¹¹…µ•ô‘É……‰±”õí™…±Í•ôÍÑå±”õíµ•‘¥…MÑå±•ô€¼ùôğ½‘¥Øø4(€€€íÍ•±•Ñ•€˜˜•‘¥Ñ…‰±”€˜˜€…±…å•È¹±½­•€˜˜€ğøñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µ±…å•ÈµÉ½Ñ…Ñ”ˆ‘…Ñ„µ¡…¹‘±”ô‰É½Ñ…Ñ”ˆÑ¥Ñ±”ô‹š.[–*£š^/¢ö°ˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µÉ•Í¥é”µ¡…¹‘±”¹Üˆ‘…Ñ„µ¡…¹‘±”ô‰¹ÜˆÑ¥Ñ±”ô‹¢K
-ç¶'š¾Sò§šRøˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µÉ•Í¥é”µ¡…¹‘±”¹”ˆ‘…Ñ„µ¡…¹‘±”ô‰¹”ˆÑ¥Ñ±”ô‹¢K
-ç¶'š¾Sò§šRøˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µÉ•Í¥é”µ¡…¹‘±”ÍÜˆ‘…Ñ„µ¡…¹‘±”ô‰ÍÜˆÑ¥Ñ±”ô‹¢K
-ç¶'š¾Sò§šRøˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µÉ•Í¥é”µ¡…¹‘±”Í”ˆ‘…Ñ„µ¡…¹‘±”ô‰Í”ˆÑ¥Ñ±”ô‹¢K
-ç¶'š¾Sò§šRøˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µ•‘”µ¡…¹‘±”¸ˆ‘…Ñ„µ¡…¹‘±”ô‰¸ˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µ•‘”µ¡…¹‘±”Ìˆ‘…Ñ„µ¡…¹‘±”ô‰Ìˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µ•‘”µ¡…¹‘±””ˆ‘…Ñ„µ¡…¹‘±”ô‰”ˆ€¼øñÍÁ…¸±…ÍÍ9…µ”ô‰Í•¹”µ•‘”µ¡…¹‘±”Üˆ‘…Ñ„µ¡…¹‘±”ô‰Üˆ€¼øğ¼ùô4(€€ğ½‘¥Øøì4)ô4(4)™Õ¹Ñ¥½¸MÑ…•Õ”¡ìÕ”°ÍÑ…ÑÕÌ°•±…ÁÍ•‘5Ì°Í••­I•Ù¥Í¥½¸°Á±…åM•ÍÍ¥½¹I•Ù¥Í¥½¸°½¹‘Ù…¹”°½¹5½Ù”ôèìÕ”è…¹äìÍÑ…ÑÕÌèÍÑÉ¥¹œì•±…ÁÍ•‘5Ìè¹Õµ‰•ÈìÍ••­I•Ù¥Í¥½¸è¹Õµ‰•ÈìÁ±…åM•ÍÍ¥½¹I•Ù¥Í¥½¸è¹Õµ‰•Èì½¹‘Ù…¹”è€ ¤€ôøÙ½¥ì½¹5½Ù”è€¡Á½Í¥Ñ¥½¸èìàè¹Õµ‰•Èìäè¹Õµ‰•Èô¤€ôøÙ½¥ô¤ì4(€½¹ÍĞ¹½‘•I•˜€ôÕÍ•I•˜ñ!Q51¥Ù±•µ•¹Ğğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞ‘É…±•…¹ÕÁI•˜€ôÕÍ•I•˜ğ  ¤€ôøÙ½¥¤ğ¹Õ±°ø¡¹Õ±°¤ì4(€½¹ÍĞÍ•ÑÑ¥¹Ì€ôÕ”¹Í•ÑÑ¥¹Ìì4(4(€Ù½¥Í••­I•Ù¥Í¥½¸ì4(€Ù½¥Á±…åM•ÍÍ¥½¹I•Ù¥Í¥½¸ì4(4(€ÕÍ•™™•Ğ  ¤€ôø€ ¤€ôø‘É…±•…¹ÕÁI•˜¹ÕÉÉ•¹Ğü¸ ¤°mt¤ì4(4(€½¹ÍĞ™É•”€ôÍ•ÑÑ¥¹Ì¹µ½‘”€ôôô€™É•”œì4(€É•ÑÕÉ¸€ñ‘¥ØÉ•˜õí¹½‘•I•™ô±…ÍÍ9…µ”õíÍÑ…”µÕ”€‘í™É•”€ü€™É•”µÕ”œ€è€‘¥…±½Õ”µÕ”ô€‘íÍÑ…ÑÕÌ€ôôô€Á±…å¥¹œœ€ü€Á±…å¥¹œœ€è€œô€‘íÍÑ…ÑÕÌ€ôôô€Á…ÕÍ•œ€ü€Á…ÕÍ•œ€è€œõôÍÑå±”õí™É•”€üì±•™Ğè€‘íÍ•ÑÑ¥¹Ì¹à€¼€ÄäÈÀ€¨€ÄÀÁô•€°Ñ½Àè€‘íÍ•ÑÑ¥¹Ì¹ä€¼€ÄÀàÀ€¨€ÄÀÁô•€°ÑÉ…¹Í™½É´è€ÑÉ…¹Í±…Ñ” ´ÔÀ”°€´ÔÀ”¤œ°€œ´µÕ”µ½±½ÈœèÍ•ÑÑ¥¹Ì¹½±½Èô…ÌI•…Ğ¹MMAÉ½Á•ÉÑ¥•Ì€èÕ¹‘•™¥¹•‘ô4(€€€½¹A½¥¹Ñ•É½İ¸õì¡•Ù•¹Ğ¤€ôøì4(€€€€€¥˜€ …™É•”ñğÍÑ…ÑÕÌ€„ôô€ÍÑ½ÁÁ•œ¤É•ÑÕÉ¸ì4(€€€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì4(€€€€€½¹ÍĞÑ…É•Ğ€ô•Ù•¹Ğ¹ÕÉÉ•¹ÑQ…É•Ğì4(€€€€€½¹ÍĞ‰½Õ¹‘Ì€ôÑ…É•Ğ¹Á…É•¹Ñ±•µ•¹Ğ„¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ğ ¤ì4(€€€€€½¹ÍĞÍÑ…ÉÑ`€ô•Ù•¹Ğ¹±¥•¹Ñ`ì½¹ÍĞÍÑ…ÉÑd€ô•Ù•¹Ğ¹±¥•¹Ñdì4(€€€€€½¹ÍĞÍÑ…ÉĞ€ôìàèÍ•ÑÑ¥¹Ì¹à°äèÍ•ÑÑ¥¹Ì¹äôì4(€€€€€½¹ÍĞÁ½¥¹Ñ•É%€ô•Ù•¹Ğ¹Á½¥¹Ñ•É%ì4(€€€€€±•ĞÁ½Í¥Ñ¥½¸€ôì€¸¸¹ÍÑ…ÉĞôì4(€€€€€±•Ğµ½Ù•€ô™…±Í”ì4(€€€€€½¹ÍĞµ½Ù”€ô€¡µ½Ù•Ù•¹ĞèA½¥¹Ñ•ÉÙ•¹Ğ¤€ôøì4(€€€€€€€¥˜€¡µ½Ù•Ù•¹Ğ¹Á½¥¹Ñ•É%€„ôôÁ½¥¹Ñ•É%¤É•ÑÕÉ¸ì4(€€€€€€€Á½Í¥Ñ¥½¸€ôìàè5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸ ÄäÈÀ°ÍÑ…ÉĞ¹à€¬€¡µ½Ù•Ù•¹Ğ¹±¥•¹Ñ`€´ÍÑ…ÉÑ`¤€¼‰½Õ¹‘Ì¹İ¥‘Ñ €¨€ÄäÈÀ¤¤°äè5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸ ÄÀàÀ°ÍÑ…ÉĞ¹ä€¬€¡µ½Ù•Ù•¹Ğ¹±¥•¹Ñd€´ÍÑ…ÉÑd¤€¼‰½Õ¹‘Ì¹¡•¥¡Ğ€¨€ÄÀàÀ¤¤ôì4(€€€€€€€µ½Ù•€ô5…Ñ ¹…‰Ì¡Á½Í¥Ñ¥½¸¹à€´ÍÑ…ÉĞ¹à¤€¬5…Ñ ¹…‰Ì¡Á½Í¥Ñ¥½¸¹ä€´ÍÑ…ÉĞ¹ä¤€ø€Äì4(€€€€€€€Ñ…É•Ğ¹ÍÑå±”¹±•™Ğ€ô€‘íÁ½Í¥Ñ¥½¸¹à€¼€ÄäÈÀ€¨€ÄÀÁô•€ì4(€€€€€€€Ñ…É•Ğ¹ÍÑå±”¹Ñ½À€ô€‘íÁ½Í¥Ñ¥½¸¹ä€¼€ÄÀàÀ€¨€ÄÀÁô•€ì4(€€€€€ôì4(€€€€€½¹ÍĞ±•…¹ÕÀ€ô€ ¤€ôøì4(€€€€€€€İ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•Éµ½Ù”œ°µ½Ù”¤ì4(€€€€€€€İ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•ÉÕÀœ°ÕÀ¤ì4(€€€€€€€İ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•É…¹•°œ°…¹•°¤ì4(€€€€€€€İ¥¹‘½Ü¹É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸¤ì4(€€€€€€€‘É…±•…¹ÕÁI•˜¹ÕÉÉ•¹Ğ€ô¹Õ±°ì4(€€€€€ôì4(€€€€€½¹ÍĞÉ•ÍÑ½É”€ô€ ¤€ôøìÑ…É•Ğ¹ÍÑå±”¹±•™Ğ€ô€‘íÍÑ…ÉĞ¹à€¼€ÄäÈÀ€¨€ÄÀÁô•€ìÑ…É•Ğ¹ÍÑå±”¹Ñ½À€ô€‘íÍÑ…ÉĞ¹ä€¼€ÄÀàÀ€¨€ÄÀÁô•€ìôì4(€€€€€½¹ÍĞÕÀ€ô€¡ÕÁÙ•¹ĞèA½¥¹Ñ•ÉÙ•¹Ğ¤€ôøì¥˜€¡ÕÁÙ•¹Ğ¹Á½¥¹Ñ•É%€ôôôÁ½¥¹Ñ•É%¤ìµ½Ù”¡ÕÁÙ•¹Ğ¤ì±•…¹ÕÀ ¤ì¥˜€¡µ½Ù•¤½¹5½Ù”¡ìàè5…Ñ ¹É½Õ¹¡Á½Í¥Ñ¥½¸¹à¤°äè5…Ñ ¹É½Õ¹¡Á½Í¥Ñ¥½¸¹ä¤ô¤ì•±Í”É•ÍÑ½É” ¤ìôôì4(€€€€€½¹ÍĞ…¹•°€ô€¡…¹•±Ù•¹ĞèA½¥¹Ñ•ÉÙ•¹Ğ¤€ôøì¥˜€¡…¹•±Ù•¹Ğ¹Á½¥¹Ñ•É%€ôôôÁ½¥¹Ñ•É%¤ì±•…¹ÕÀ ¤ìÉ•ÍÑ½É” ¤ìôôì4(€€€€€½¹ÍĞ­•å‘½İ¸€ô€¡­•åÙ•¹Ğè-•å‰½…É‘Ù•¹Ğ¤€ôøì¥˜€¡­•åÙ•¹Ğ¹­•ä€ôôô€Í…Á”œ¤ì±•…¹ÕÀ ¤ìÉ•ÍÑ½É” ¤ìôôì4(€€€€€‘É…±•…¹ÕÁI•˜¹ÕÉÉ•¹Ğ€ô€ ¤€ôøì±•…¹ÕÀ ¤ìÉ•ÍÑ½É” ¤ìôì4(€€€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•Éµ½Ù”œ°µ½Ù”¤ì4(€€€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•ÉÕÀœ°ÕÀ¤ì4(€€€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È Á½¥¹Ñ•É…¹•°œ°…¹•°¤ì4(€€€€€İ¥¹‘½Ü¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ­•å‘½İ¸œ°­•å‘½İ¸¤ì4(€€€õô½¹±¥¬õì¡•Ù•¹Ğ¤€ôøì¥˜€¡ÍÑ…ÑÕÌ€ôôô€Á±…å¥¹œœ€˜˜Í•ÑÑ¥¹Ì¹…‘Ù…¹”€ôôô€±¥¬œ¤ì•Ù•¹Ğ¹ÍÑ½ÁAÉ½Á……Ñ¥½¸ ¤ì½¹‘Ù…¹” ¤ìôõôø4(€€€íÍ•ÑÑ¥¹Ì¹ÍÁ•…­•È€˜˜Í•ÑÑ¥¹Ì¹µ½‘”€ôôô€‘¥…±½Õ”œ€˜˜€ñÍÁ…¸±…ÍÍ9…µ”ô‰Õ”µÍÁ•…­•ÈˆùíÍ•ÑÑ¥¹Ì¹ÍÁ•…­•Éôğ½ÍÁ…¸ùô4(€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰Õ”µÑ•áĞˆÍÑå±”õíì½±½ÈèÍ•ÑÑ¥¹Ì¹½±½È°™½¹ÑM¥é”èµ¥¸ ‘íÍ•ÑÑ¥¹Ì¹™½¹ÑM¥é”€¼€ÄäÈÀ€¨€ÄÀÁõÅ¤°€‘íÍ•ÑÑ¥¹Ì¹™½¹ÑM¥é•õÁà¥€°Ñ•áÑ±¥¸èÍ•ÑÑ¥¹Ì¹…±¥¸õôøñÕ•5½Ñ¥½¹Q•áĞÕ”õíÕ•ô•±…ÁÍ•‘5Ìõí•±…ÁÍ•‘5ÍôÍÑ…Ñ¥AÉ•Ù¥•ÜõíÍÑ…ÑÕÌ€ôôô€ÍÑ½ÁÁ•ô€¼øğ½ÍÁ…¸ø4(€€ğ½‘¥Øøì4)ô4(4)™Õ¹Ñ¥½¸5½Ñ¥½¹M•ÑÑ¥¹ÍA…¹•°¡ìÕ”°½¹A…Ñ °½¹ÕÉ…Ñ¥½¸ôèìÕ”è…¹äì½¹A…Ñ è€¡Á…Ñ èI•½ÉñÍÑÉ¥¹œ°…¹äø¤€ôøÕ¹­¹½İ¸ì½¹ÕÉ…Ñ¥½¸è€¡‘ÕÉ…Ñ¥½¹5Ìè¹Õµ‰•È¤€ôøÙ½¥ô¤ì4(€½¹ÍĞµ½Ñ¥½¸€ôÕ”¹Í•ÑÑ¥¹Ì¹µ½Ñ¥½¸ì4(€½¹ÍĞÁ…É…µ•Ñ•ÉÌ€ôì€¸¸¹‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì¡µ½Ñ¥½¸°Õ”¹Ñ•áĞ¤°€¸¸¸¡Õ”¹Í•ÑÑ¥¹Ì¹µ½Ñ¥½¹M•ÑÑ¥¹Ì€üüíô¤ôì4(€½¹ÍĞÁ…Ñ €ô€¡­•äèÍÑÉ¥¹œ°Ù…±Õ”èÍÑÉ¥¹œğ¹Õµ‰•Èğ‰½½±•…¸¤€ôø½¹A…Ñ ¡ìm­•åtèÙ…°V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅçVRÒ“°Ğ¢6öç7BçVÖ&W"Ò†Æ&VÃ¢7G&–ærÂ¶W“¢7G&–ærÂÖ–ã¢çVÖ&W"ÂÖƒ¢çVÖ&W"Â7FWÒ’ÓâÆÆ&VÂ¶W“×¶¶W—Óç¶Æ&VÇÓÄçVÖW&–4f–VÆBÖ–ã×¶Ö–çÒÖƒ×¶Ö‡Ò7FW×·7FWÒfÇVS×·&ÖWFW'5¶¶W•×Òöä6öÖÖ—C×²‡fÇVR’ÓâF6‚†¶W’ÂfÇVR—ÒóãÂöÆ&VÃã°Ğ¢6öç7BFW‡BÒ†Æ&VÃ¢7G&–ærÂ¶W“¢7G&–ærÂ×VÇF–Æ–æRÒfÇ6R’ÓâÆÆ&VÂ¶W“×¶¶W—Óç¶Æ&VÇ×¶×VÇF–Æ–æRòÇFW‡F&V&÷w3×³'ÒfÇVS×·&ÖWFW'5¶¶W•ÒóòrwÒöä6†ævS×²†WfVçB’ÓâF6‚†¶W’ÂWfVçBçF&vWBçfÇVR—Òóâ¢Æ–çWBfÇVS×·&ÖWFW'5¶¶W•ÒóòrwÒöä6†ævS×²†WfVçB’ÓâF6‚†¶W’ÂWfVçBçF&vWBçfÇVR—ÒóçÓÂöÆ&VÃã°Ğ¢6öç7BÖ–æ–×VÒÒÖF‚æ6V–Â†Ö–æ–×VÔÖ÷F–öäGW&F–öâ†Ö÷F–öâÂ7VRçFW‡BÂ&ÖWFW'2’“°Ğ¢6öç7Bf–VÆG2Ò‚‚’Óâ°Ğ¢–b†Ö÷F–öâÓÓÒwG—–ærr’&WGW&âÃç¶çVÖ&W"‚~‹[~Zx¾[»n‹ùò×2rÂw7F'D×2rÂÂ—×¶çVÖ&W"‚~ZÙ~™{N™©B×2rÂv6†%7FW×2rÂÂ#—ÓÂóã°Ğ¢–b†Ö÷F–öâÓÓÒwfW'F–6Å&WfVÂr’&WGW&âÃç¶çVÖ&W"‚~[ÈZx¾i{n™{B×2rÂw7F'D×2rÂÂc—×¶çVÖ&W"‚~ZÙ~™{N™©B×2rÂv6†%7FW×2rÂÂS—×¶çVÖ&W"‚~jøşX‰~ZÙ~i[rÂv6öÇVÖäÆVæwF‚rÂ"Âb—×¶çVÖ&W"‚~™ˆ^Šû¾XÎyY’×2rÂv†öÆD×2rÂÂc—×¶çVÖ&W"‚~X‰~˜X{®™{N™©B×2rÂv6öÇVÖäW†—E7FW×2rÂÂS—×¶çVÖ&W"‚~˜X{®i{n™[ò×2rÂvW†—D×2rÂÂc—ÓÇ6ÖÆÃîK¸îKˆ®Y	Kˆ¾i‹îZÙ~8K¸îXû>Y	[znXˆnX‰~8.hÚ.ŠÎXún‹[~KˆX‰~ûÈÎ˜.YyúŞxºÎy›ŞûÉ¾™[şih~[»®Šêîh¸nh‰ZI®Xú^8#Â÷6ÖÆÃãÂóã°Ğ¢–b†Ö÷F–öâÓÓÒvv†÷7D6öçfW&vRr’&WGW&âÃç¶çVÖ&W"‚~[ÈZx¾i{n™{B×2rÂw7F'D×2rÂÂc—×¶çVÖ&W"‚~kzXZ^i{n™[ò×2rÂvfFT×2rÂÂc—×¶çVÖ&W"‚~™Iˆ›.[ÈZx²×2rÂv6†ævTD×2rÂÂc—×¶çVÖ&W"‚~Xˆnzk¾XÎyY’×2rÂw7Æ—D×2rÂÂc—×¶çVÖ&W"‚~Y¹îiKni{n™[ò×2rÂw&WGW&ä×2rÂÂc—×¶çVÖ&W"‚~jè¾[Û‹yŞzk¾ûÈZÙ~ZëŞûÈ’rÂvöfg6WDVÒrÂÂÂã—ÓÆÆ&VÃîjè¾[Û[Ë®[ªcÆ–çWBG—SÒ'&ævR"Ö–ãÒ#"ÖƒÒ#"7FWÒ#ãR"fÇVS×·&ÖWFW'2ç7G&VæwF‡Òöä6†ævS×²†WfVçB’ÓâF6‚‚w7G&VæwF‚rÂçVÖ&W"†WfVçBçF&vWBçfÇVR’—ÒóãÂöÆ&VÃç¶çVÖ&W"‚~kˆ^i›™ˆ^Šû²×2rÂv†öÆD×2rÂÂc—×¶çVÖ&W"‚~˜X{®i{n™[ò×2rÂvW†—D×2rÂÂc—ÓÇ6ÖÆÃî™Iˆ›.iÈizYÊkzXZ^ZèÎh‰Yî[ÈZx¾ûÉ¾™Ù.{J¾jè¾[ÛiKnhº.YîKùŞyYkˆ^i›jÚ>ih~8#Â÷6ÖÆÃãÂóã°Ğ¢–b†Ö÷F–öâÓÓÒv&ÇW%6†'r’&WGW&âÃç¶çVÖ&W"‚~kˆ^i›i{n™[ò×2rÂv6ÆV$×2rÂÂc—ÓÆÆ&VÃîjŠ{8®[Ë®[ªbÆ–çWBG—SÒ'&ævR"Ö–ãÒ#"ÖƒÒ#"7FWÒ#ãR"fÇVS×·&ÖWFW'2ç7G&VæwF‡Òöä6†ævS×²†WfVçB’ÓâF6‚‚w7G&VæwF‚rÂçVÖ&W"†WfVçBçF&vWBçfÇVR’—ÒóãÂöÆ&VÃãÂóã°Ğ¢–b†Ö÷F–öâÓÓÒw&—6Rr’&WGW&âÃãÆÆ&VÃîKˆ®z{¾kzXZ^[Ë®[ªbÆ–çWBG—SÒ'&ævR"Ö–ãÒ#"ÖƒÒ#"7FWÒ#ãR"fÇVS×·&ÖWFW'2ç7G&VæwF‡Òöä6†ævS×²†WfVçB’ÓâF6‚‚w7G&VæwF‚rÂçVÖ&W"†WfVçBçF&vWBçfÇVR’—ÒóãÂöÆ&VÃç¶çVÖ&W"‚~Kˆ®z{¾‹yŞzk²‚rÂw&—6U‚rÂÂ#—ÓÂóã°Ğ¢–b†Ö÷F–öâÓÓÒw6†¶Rr’&WGW&âÃãÆÆ&VÃî™È~Xª[Ë®[ªbÆ–çWBG—SÒ'&ævR"Ö–ãÒ#"ÖƒÒ#"7FWÒ#ãR"fÇVS×·&ÖWFW'2ç7G&VæwF‡Òöä6†ævS×²†WfVçB’ÓâF6‚‚w7G&VæwF‚rÂçVÖ&W"†WfVçBçF&vWBçfÇVR’—ÒóãÇ6ÖÆÃç´ÖF‚ç&÷VæB‡&ÖWFW'2ç7G&VæwF‚¢—ÒSÂ÷6ÖÆÃãÂöÆ&VÃç¶çVÖ&W"‚~™È~Xªi{n™[ò×2rÂvGW&F–öä×2rÂÂS—ÓÂóã°Ğ¢–b†Ö÷F–öâÓÓÒvFV6öFRr’&WGW&âÃç¶çVÖ&W"‚~[ÈZx¾i{n™{B×2rÂw7F'D×2rÂÂ—×¶çVÖ&W"‚~ZÙ~™{N™©B×2rÂv6†%7FW×2rÂÂ—×¶çVÖ&W"‚~iKniY¾i{n™[ò×2rÂw6WGFÆT×2rÂ#Âƒ—×¶çVÖ&W"‚~Y»®Zé®zxŞZÙrÂw6VVBrÂÓ#CsCƒ3cC‚Â#CsCƒ3cCr—×¶çVÖ&W"‚~™ˆ^Šû¾XÎyY’×2rÂv†öÆD×2rÂÂc—ÓÂóã°Ğ¢–b†Ö÷F–öâÓÓÒwv÷&EVæFW&Æ–æRr’&WGW&âÃç·FW‡B‚~ŠøŞ{¸NûÈyJ‚òXˆn™©NûÈÎKŠŞih~hÈŠúŞK˜XˆnŠøŞûÈ’rÂwv÷&G5FW‡BrÂG'VR—×¶çVÖ&W"‚~šinŠøŞ[ÈZx²×2rÂw7F'D×2rÂÂ3—×¶çVÖ&W"‚~jøşŠøŞi{n™[ò×2rÂwv÷&DGW&F–öä×2rÂÂ—×¶çVÖ&W"‚~ŠøŞXh^ZÙ~™{N™©B×2rÂv6†%7FW×2rÂÂ—×¶çVÖ&W"‚~hš¾{«ş{)~{¸b‚rÂwVæFW&Æ–æUF†–6¶æW72rÂÂ"—ÓÂóã°Ğ¢–b†Ö÷F–öâÓÓÒv¶W—v÷&D6†—r’&WGW&âÃç·FW‡B‚~X[>™JîŠøŞûÈyJ‚òXˆn™©NûÈ’rÂv¶W—v÷&G5FW‡Br—×¶çVÖ&W"‚~i‹îZÙ~™{N™©B×2rÂv6†%7FW×2rÂÂ—×¶çVÖ&W"‚~ˆ›.YÙ~Xh^‹ë‹yÒ‚rÂv6†—FF–ærrÂÂC—ÓÆÆ&VÃãÆ–çWBG—SÒ&6†V6¶&÷‚"6†V6¶VC×²&ÖWFW'2ç6†÷t–G7Òöä6†ævS×²†WfVçB’ÓâF6‚‚w6†÷t–G2rÂWfVçBçF&vWBæ6†V6¶VB—Òóîi‹îzK®zK®hHş{ÉnXûsÂöÆ&VÃãÂóã°Ğ¢–b†Ö÷F–öâÓÓÒwG&ç6ÆF–öåv—&W2r’&WGW&âÃç·FW‡B‚~ˆ»ih~ŠøŞ{¸NûÈz›®jÎXˆnŠøŞûÈ’rÂvVævÆ—6…FW‡Br—×·FW‡B‚~KŠŞih~ŠøŞYÙ~ûÈyJ‚òXˆn™©NûÈ’rÂv6†–æW6UFW‡Br—×·FW‡B‚~Zû[©NX[>{;¾ûÈjøşŠÎûÉ®KŠŞih~ŠøŞYÙs®ˆ»ih~ŠøŞ{¸BÎˆ»ih~ŠøŞ{¸NûÈ’rÂvÖ–æuFW‡BrÂG'VR—×¶çVÖ&W"‚~‹ùî{«şyIş™[ò×2rÂvÆ–æTw&÷t×2rÂSÂS—ÓÂóã°Ğ¢–b†Ö÷F–öâÓÓÒw&Ww&—FRr’&WGW&âÃç·FW‡B‚~x«‹¾ˆØz‹òrÂvG&gEFW‡Br—×·FW‡B‚~iÈ{¸iKXi’rÂw&Ww&—FUFW‡Br—×¶çVÖ&W"‚~[ÈZx¾i{n™{B×2rÂw7F'D×2rÂÂ—×¶çVÖ&W"‚~XÎšò×2rÂwW6T×2rÂÂ—×¶çVÖ&W"‚~˜jÎZÙ~i[rÂvFVÆWFT6÷VçBrÂÂ—×¶çVÖ&W"‚~h™>ZÙ~˜	ş[ªbZÙrşzy"rÂwG—T72rÂÂc—ÓÂóã°Ğ¢–b†Ö÷F–öâÓÓÒw7G&–¶U&Ww&—FRr’&WGW&âÃç·FW‡B‚~iz~XúRrÂvöÆEFW‡Br—×·FW‡B‚~ikXúRrÂvæWuFW‡Br—×¶çVÖ&W"‚~X‰.{«ş[ÈZx²×2rÂw7G&–¶TD×2rÂÂ3—×¶çVÖ&W"‚~X‰.{«şyIş™[ò×2rÂw7G&–¶TG&t×2rÂÂ#—×¶çVÖ&W"‚~iz~Xú^XÎyY’×2rÂw7G&–¶T†öÆD×2rÂÂ—×¶çVÖ&W"‚~ikXú^˜	ş[ªbZÙrşzy"rÂwG—T72rÂÂc—ÓÆÆ&VÃîX‰.{«şš)Îˆ›#Æ–çWBG—SÒ&6öÆ÷""fÇVS×·&ÖWFW'2ç7G&–¶T6öÆ÷'Òöä6†ævS×²†WfVçB’ÓâF6‚‚w7G&–¶T6öÆ÷"rÂWfVçBçF&vWBçfÇVR—ÒóãÂöÆ&VÃãÂóã°Ğ¢–b†Ö÷F–öâÓÓÒvWf÷&FRr’&WGW&âÃç·FW‡B‚~iÈYîKùŞyYy¨NyúŞXúRrÂw&÷FV7FQZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{™^	Ê_^Û[X™\Š	ùfî¹k¦¹éãykd	Ë	ÜÙYY	ËLŒMÍÍŒMÍÍÊ_^Û[X™\Š	ú$®9cäyo 9iâÈ\ÉË	Ù]˜\Ü˜][Û”İ\\ÉËÌ
-_^Û[X™\Š	ú$®9cäyîäù§gÈ\ÉË	Ù]˜\Ü˜][Û‘[™\ÉËLŒ
-_^Û[X™\Š	ù/çyåfy`g:hoÈ\ÉË	Ùš[˜[Û\ÉËL
-_^Û[X™\Š	ù§*ùcéz` 9¨/\ÉË	Ø˜XÚÜÜXÙQ\˜][Û“\ÉËLL
-_OÏÃBˆ™]\›ˆ[ÃBˆJJ
-NÃBˆYˆ
-YšY[ÊH™]\›ˆ[ÃBˆ™]\›ˆ]ˆÛ\ÜÓ˜[YOH›[İ[Û‹\\˜[Y]\œÈ]ˆÛ\ÜÓ˜[YOH›[İ[Û‹\\˜[Y]\œËZXYİ›Û™Ï¹bª9¥b9cà¹¥lÜİ›Û™ÏÛX[ÓSÕSÓ—Ô‘TÑUË™š[™
+    <div className="scene-layer-viewport">{asset.kind === 'video' ? <video ref={videoRef} className="scene-layer-image" src={objectUrl(asset)} style={mediaStyle} muted={!!layer.videoMuted} playsInline preload="auto" onError={() => onNotice('è§†é¢‘æ— æ³•è§£ç ï¼š' + asset.name + 'ï¼Œè¯·ä½¿ç”¨ H.264/AAC MP4ã€‚')} onLoadedMetadata={(event) => { event.currentTarget.currentTime = videoPositionSeconds(layer, status === 'stopped' ? 0 : elapsedMs, event.currentTarget.duration); }} onTimeUpdate={(event) => { const video = event.currentTarget; const end = layer.videoEndMs ? layer.videoEndMs / 1000 : video.duration; if (Number.isFinite(end) && video.currentTime >= end) { if (layer.videoLoop) video.currentTime = (layer.videoStartMs ?? 0) / 1000; else video.pause(); } }} /> : <img className="scene-layer-image" src={objectUrl(asset)} alt={asset.name} draggable={false} style={mediaStyle} />}</div>
+    {selected && editable && !layer.locked && <><span className="scene-layer-rotate" data-handle="rotate" title="æ‹–åŠ¨æ—‹è½¬" /><span className="scene-resize-handle nw" data-handle="nw" title="è§’ç‚¹ç­‰æ¯”ç¼©æ”¾" /><span className="scene-resize-handle ne" data-handle="ne" title="è§’ç‚¹ç­‰æ¯”ç¼©æ”¾" /><span className="scene-resize-handle sw" data-handle="sw" title="è§’ç‚¹ç­‰æ¯”ç¼©æ”¾" /><span className="scene-resize-handle se" data-handle="se" title="è§’ç‚¹ç­‰æ¯”ç¼©æ”¾" /><span className="scene-edge-handle n" data-handle="n" /><span className="scene-edge-handle s" data-handle="s" /><span className="scene-edge-handle e" data-handle="e" /><span className="scene-edge-handle w" data-handle="w" /></>}
+  </div>;
+}
 
-™\Ù]
-HOˆ™\Ù]šYOOH[İ[ÛŠOËœİ[[X\_OÜÛX[Ù]]ˆÛ\ÜÓ˜[YOH›[İ[Û‹\\˜[Y]\‹YÜšYÙšY[ßOÙ]ÛZ[š[][HˆİYKœÙ][™ÜË™\˜][Û“\È	‰ˆ]ˆÛ\ÜÓ˜[YOH›[İ[Û‹Y\˜][Û‹]Ø\›š[™ÈÛZ[š[][HˆŒÈ	ùk£9¥m9¯%9aîº-¡z/áùceycéHL9b!ºd§ù."ºfd;ï#:+íù¢á¹¢$9i&¹céy¢%¹ï*yçëybª9¥b9cà¹¥l8à ‰Èˆ¹£"yodùbcy¥¡ùkeùd£9cà¹¥l;ï#9nîº+«¹¯%9aîº!ìùl$HÛZ[š[][_H\ûï#9îæyk£9¥m9¥¡ùkeùåfy."úf!z+îù¥íºeí8à ]ÛˆÛÛXÚÏ^Ê
-HOˆÛ‘\˜][ÛŠZ[š[][J_O¹níºeoú!ìùnîº+«¹¥íºeoÏØ]ÛÏŸOÙ]ŸOÙ]ÃBŸCBƒB™[˜İ[Ûˆ\ÜÙ]Ø\™
-È\ÜÙ]›Ú™XİY™XÙ[Û˜XÚÙÜ›İ[™Û]Y[ËÛ“^Y\‹Û\[™\XÛKÛ‘[]KÛ‘^˜Xİ]Y[ËÛ“›İXÙKÛ™YÚ[]Y[Ñ˜YËÛ‘[™]Y[Ñ˜YËÛÛÛ^Y[HNˆÈ\ÜÙ]ˆ\ÜÙ]™XÛÜ™È›Ú™XİYˆİš[™ÎÈ™XÙ[ˆ›ÛÛX[ÈÛ˜XÚÙÜ›İ[™ˆ
+function StageCue({ cue, status, elapsedMs, seekRevision, playSessionRevision, onAdvance, onMove }: { cue: any; status: string; elapsedMs: number; seekRevision: number; playSessionRevision: number; onAdvance: () => void; onMove: (position: { x: number; y: number }) => void }) {
+  const nodeRef = useRef<HTMLDivElement | null>(null);
+  const dragCleanupRef = useRef<(() => void) | null>(null);
+  const settings = cue.settings;
 
-HOˆ›ÚYÈÛ]Y[Îˆ
+  void seekRevision;
+  void playSessionRevision;
 
-HOˆ›ÚYÈÛ“^Y\ˆ
+  useEffect(() => () => dragCleanupRef.current?.(), []);
 
-HOˆ›ÚYÈÛ\[™\XÛNˆ
+  const free = settings.mode === 'free';
+  return <div ref={nodeRef} className={`stage-cue ${free ? 'free-cue' : 'dialogue-cue'} ${status === 'playing' ? 'playing' : ''} ${status === 'paused' ? 'paused' : ''}`} style={free ? { left: `${settings.x / 1920 * 100}%`, top: `${settings.y / 1080 * 100}%`, transform: 'translate(-50%, -50%)', '--cue-color': settings.color } as React.CSSProperties : undefined}
+    onPointerDown={(event) => {
+      if (!free || status !== 'stopped') return;
+      event.preventDefault();
+      const target = event.currentTarget;
+      const bounds = target.parentElement!.getBoundingClientRect();
+      const startX = event.clientX; const startY = event.clientY;
+      const start = { x: settings.x, y: settings.y };
+      const pointerId = event.pointerId;
+      let position = { ...start };
+      let moved = false;
+      const move = (moveEvent: PointerEvent) => {
+        if (moveEvent.pointerId !== pointerId) return;
+        position = { x: Math.max(0, Math.min(1920, start.x + (moveEvent.clientX - startX) / bounds.width * 1920)), y: Math.max(0, Math.min(1080, start.y + (moveEvent.clientY - startY) / bounds.height * 1080)) };
+        moved = Math.abs(position.x - start.x) + Math.abs(position.y - start.y) > 1;
+        target.style.left = `${position.x / 1920 * 100}%`;
+        target.style.top = `${position.y / 1080 * 100}%`;
+      };
+      const cleanup = () => {
+        window.removeEventListener('pointermove', move);
+        window.removeEventListener('pointerup', up);
+        window.removeEventListener('pointercancel', cancel);
+        window.removeEventListener('keydown', keydown);
+        dragCleanupRef.current = null;
+      };
+      const restore = () => { target.style.left = `${start.x / 1920 * 100}%`; target.style.top = `${start.y / 1080 * 100}%`; };
+      const up = (upEvent: PointerEvent) => { if (upEvent.pointerId === pointerId) { move(upEvent); cleanup(); if (moved) onMove({ x: Math.round(position.x), y: Math.round(position.y) }); else restore(); } };
+      const cancel = (cancelEvent: PointerEvent) => { if (cancelEvent.pointerId === pointerId) { cleanup(); restore(); } };
+      const keydown = (keyEvent: KeyboardEvent) => { if (keyEvent.key === 'Escape') { cleanup(); restore(); } };
+      dragCleanupRef.current = () => { cleanup(); restore(); };
+      window.addEventListener('pointermove', move);
+      window.addEventListener('pointerup', up);
+      window.addEventListener('pointercancel', cancel);
+      window.addEventListener('keydown', keydown);
+    }} onClick={(event) => { if (status === 'playing' && settings.advance === 'click') { event.stopPropagation(); onAdvance(); } }}>
+    {settings.speaker && settings.mode === 'dialogue' && <span className="cue-speaker">{settings.speaker}</span>}
+    <span className="cue-text" style={{ color: settings.color, fontSize: `min(${settings.fontSize / 1920 * 100}cqi, ${settings.fontSize}px)`, textAlign: settings.align }}><CueMotionText cue={cue} elapsedMs={elapsedMs} staticPreview={status === 'stopped'} /></span>
+  </div>;
+}
 
-HOˆ›ÚYÈÛ‘[]Nˆ
+function MotionSettingsPanel({ cue, onPatch, onDuration }: { cue: any; onPatch: (patch: Record<string, any>) => unknown; onDuration: (durationMs: number) => void }) {
+  const motion = cue.settings.motion;
+  const parameters = { ...defaultMotionSettings(motion, cue.text), ...(cue.settings.motionSettings ?? {}) };
+  const patch = (key: string, value: string | number | boolean) => onPatch({ [key]: value });
+  const number = (label: string, key: string, min: number, max: number, step = 1) => <label key={key}>{label}<NumericField min={min} max={max} step={step} value={parameters[key]} onCommit={(value) => patch(key, value)} /></label>;
+  const text = (label: string, key: string, multiline = false) => <label key={key}>{label}{multiline ? <textarea rows={2} value={parameters[key] ?? ''} onChange={(event) => patch(key, event.target.value)} /> : <input value={parameters[key] ?? ''} onChange={(event) => patch(key, event.target.value)} />}</label>;
+  const minimum = Math.ceil(minimumMotionDuration(motion, cue.text, parameters));
+  const fields = (() => {
+    if (motion === 'typing') return <>{number('èµ·å§‹å»¶è¿Ÿ ms', 'startMs', 0, 10000)}{number('å­—é—´éš” ms', 'charStepMs', 10, 2000)}</>;
+    if (motion === 'verticalReveal') return <>{number('å¼€å§‹æ—¶é—´ ms', 'startMs', 0, 600000)}{number('å­—é—´éš” ms', 'charStepMs', 1, 5000)}{number('æ¯åˆ—å­—æ•°', 'columnLength', 2, 16)}{number('é˜…è¯»åœç•™ ms', 'holdMs', 0, 600000)}{number('åˆ—é€€å‡ºé—´éš” ms', 'columnExitStepMs', 0, 5000)}{number('é€€å‡ºæ—¶é•¿ ms', 'exitMs', 1, 60000)}<small>ä»ä¸Šå‘ä¸‹æ˜¾å­—ã€ä»å³å‘å·¦åˆ†åˆ—ã€‚æ¢è¡Œå¦èµ·ä¸€åˆ—ï¼Œé€‚åˆçŸ­ç‹¬ç™½ï¼›é•¿æ–‡å»ºè®®æ‹†æˆå¤šå¥ã€‚</small></>;
+    if (motion === 'ghostConverge') return <>{number('å¼€å§‹æ—¶é—´ ms', 'startMs', 0, 600000)}{number('æ·¡å…¥æ—¶é•¿ ms', 'fadeMs', 1, 60000)}{number('é”™è‰²å¼€å§‹ ms', 'changeAtMs', 0, 600000)}{number('åˆ†ç¦»åœç•™ ms', 'splitMs', 1, 60000)}{number('å›æ”¶æ—¶é•¿ ms', 'returnMs', 1, 60000)}{number('æ®‹å½±è·ç¦»ï¼ˆå­—å®½ï¼‰', 'offsetEm', 0, 1, 0.01)}<label>æ®‹å½±å¼ºåº¦<input type="range" min="0" max="1" step="0.05" value={parameters.strength} onChange={(event) => patch('strength', Number(event.target.value))} /></label>{number('æ¸…æ™°é˜…è¯» ms', 'holdMs', 0, 600000)}{number('é€€å‡ºæ—¶é•¿ ms', 'exitMs', 1, 60000)}<small>é”™è‰²æœ€æ—©åœ¨æ·¡å…¥å®Œæˆåå¼€å§‹ï¼›é’ç´«æ®‹å½±æ”¶æ‹¢åä¿ç•™æ¸…æ™°æ­£æ–‡ã€‚</small></>;
+    if (motion === 'blurSharp') return <>{number('æ¸…æ™°æ—¶é•¿ ms', 'clearMs', 100, 6000)}<label>æ¨¡ç³Šå¼ºåº¦ <input type="range" min="0" max="1" step="0.05" value={parameters.strength} onChange={(event) => patch('strength', Number(event.target.value))} /></label></>;
+    if (motion === 'rise') return <><label>ä¸Šç§»æ·¡å…¥å¼ºåº¦ <input type="range" min="0" max="1" step="0.05" value={parameters.strength} onChange={(event) => patch('strength', Number(event.target.value))} /></label>{number('ä¸Šç§»è·ç¦» px', 'risePx', 0, 120)}</>;
+    if (motion === 'shake') return <><label>éœ‡åŠ¨å¼ºåº¦ <input type="range" min="0" max="1" step="0.05" value={parameters.strength} onChange={(event) => patch('strength', Number(event.target.value))} /><small>{Math.round(parameters.strength * 100)}%</small></label>{number('éœ‡åŠ¨æ—¶é•¿ ms', 'durationMs', 100, 5000)}</>;
+    if (motion === 'decode') return <>{number('å¼€å§‹æ—¶é—´ ms', 'startMs', 0, 10000)}{number('å­—é—´éš” ms', 'charStepMs', 10, 1000)}{number('æ”¶æ•›æ—¶é•¿ ms', 'settleMs', 20, 800)}{number('å›ºå®šç§å­', 'seed', -2147483648, 2147483647)}{number('é˜…è¯»åœç•™ ms', 'holdMs', 0, 60000)}</>;
+    if (motion === 'wordUnderline') return <>{text('è¯ç»„ï¼ˆç”¨ / åˆ†éš”ï¼Œä¸­æ–‡æŒ‰è¯­ä¹‰åˆ†è¯ï¼‰', 'wordsText', true)}{number('é¦–è¯å¼€å§‹ ms', 'startMs', 0, 30000)}{number('æ¯è¯æ—¶é•¿ ms', 'wordDurationMs', 100, 10000)}{number('è¯å†…å­—é—´éš” ms', 'charStepMs', 10, 1000)}{number('æ‰«çº¿ç²—ç»† px', 'underlineThickness', 1, 12)}</>;
+    if (motion === 'keywordChip') return <>{text('å…³é”®è¯ï¼ˆç”¨ / åˆ†éš”ï¼‰', 'keywordsText')}{number('æ˜¾å­—é—´éš” ms', 'charStepMs', 10, 1000)}{number('è‰²å—å†…è¾¹è· px', 'chipPadding', 0, 40)}<label><input type="checkbox" checked={!!parameters.showIds} onChange={(event) => patch('showIds', event.target.checked)} />æ˜¾ç¤ºç¤ºæ„ç¼–å·</label></>;
+    if (motion === 'translationWires') return <>{text('è‹±æ–‡è¯ç»„ï¼ˆç©ºæ ¼åˆ†è¯ï¼‰', 'englishText')}{text('ä¸­æ–‡è¯å—ï¼ˆç”¨ / åˆ†éš”ï¼‰', 'chineseText')}{text('å¯¹åº”å…³ç³»ï¼ˆæ¯è¡Œï¼šä¸­æ–‡è¯å—:è‹±æ–‡è¯ç»„,è‹±æ–‡è¯ç»„ï¼‰', 'mappingText', true)}{number('è¿çº¿ç”Ÿé•¿ ms', 'lineGrowMs', 50, 5000)}</>;
+    if (motion === 'rewrite') return <>{text('çŠ¹è±«è‰ç¨¿', 'draftText')}{text('æœ€ç»ˆæ”¹å†™', 'rewriteText')}{number('å¼€å§‹æ—¶é—´ ms', 'startMs', 0, 10000)}{number('åœé¡¿ ms', 'pauseMs', 0, 10000)}{number('é€€æ ¼å­—æ•°', 'deleteCount', 0, 100)}{number('æ‰“å­—é€Ÿåº¦ å­—/ç§’', 'typeCps', 1, 60)}</>;
+    if (motion === 'strikeRewrite') return <>{text('æ—§å¥', 'oldText')}{text('æ–°å¥', 'newText')}{number('åˆ’çº¿å¼€å§‹ ms', 'strikeAtMs', 0, 30000)}{number('åˆ’çº¿ç”Ÿé•¿ ms', 'strikeDrawMs', 10, 2000)}{number('æ—§å¥åœç•™ ms', 'strikeHoldMs', 0, 10000)}{number('æ–°å¥é€Ÿåº¦ å­—/ç§’', 'typeCps', 1, 60)}<label>åˆ’çº¿é¢œè‰²<input type="color" value={parameters.strikeColor} onChange={(event) => patch('strikeColor', event.target.value)} /></label></>;
+    if (motion === 'evaporate') return <>{text('æœ€åä¿ç•™çš„çŸ­å¥', 'protectedText')}{number('å›ºå®šç§å­', 'seed', -2147483648, 2147483647)}{number('è’¸å‘å¼€å§‹ ms', 'evaporationStartMs', 0, 30000)}{number('è’¸å‘ç»“æŸ ms', 'evaporationEndMs', 100, 60000)}{number('ä¿ç•™åœé¡¿ ms', 'finalHoldMs', 0, 10000)}{number('æœ«å¥é€€æ ¼ ms', 'backspaceDurationMs', 100, 10000)}</>;
+    return null;
+  })();
+  if (!fields) return null;
+  return <div className="motion-parameters"><div className="motion-parameters-head"><strong>åŠ¨æ•ˆå‚æ•°</strong><small>{MOTION_PRESETS.find((preset) => preset.id === motion)?.summary}</small></div><div className="motion-parameter-grid">{fields}</div>{minimum > cue.settings.durationMs && <div className="motion-duration-warning">{minimum > 600000 ? 'å®Œæ•´æ¼”å‡ºè¶…è¿‡å•å¥ 10 åˆ†é’Ÿä¸Šé™ï¼Œè¯·æ‹†æˆå¤šå¥æˆ–ç¼©çŸ­åŠ¨æ•ˆå‚æ•°ã€‚' : <>æŒ‰å½“å‰æ–‡å­—å’Œå‚æ•°ï¼Œå»ºè®®æ¼”å‡ºè‡³å°‘ {minimum} msï¼Œç»™å®Œæ•´æ–‡å­—ç•™ä¸‹é˜…è¯»æ—¶é—´ã€‚<button onClick={() => onDuration(minimum)}>å»¶é•¿è‡³å»ºè®®æ—¶é•¿</button></>}</div>}</div>;
+}
 
-HOˆ›ÚYÈÛ‘^˜Xİ]Y[Îˆ
+function AssetCard({ asset, projectId, recent, onBackground, onAudio, onLayer, onAppendArticle, onDelete, onExtractAudio, onNotice, onBeginAudioDrag, onEndAudioDrag, onContextMenu }: { asset: AssetRecord; projectId: string; recent: boolean; onBackground: () => void; onAudio: () => void; onLayer: () => void; onAppendArticle: () => void; onDelete: () => void; onExtractAudio: () => void; onNotice: (message: string) => void; onBeginAudioDrag: () => void; onEndAudioDrag: () => void; onContextMenu?: (event: React.MouseEvent) => void }) {
+  const [mediaState, setMediaState] = useState('idle');
+  const mediaRef = useRef<MediaSession | null>(null);
+  useEffect(() => {
+    if (asset.kind !== 'audio') return;
+    const session = new MediaSession(createHtmlAudioBackend((id) => id === asset.id ? asset : undefined), (snapshot) => {
+      if (snapshot.status !== 'disposed') setMediaState(snapshot.status);
+      if (snapshot.status === 'error' && snapshot.error) onNotice(`è¯•å¬å¤±è´¥ï¼š${snapshot.error}`);
+    });
+    mediaRef.current = session;
+    return () => {
+      session.dispose();
+      if (mediaRef.current === session) mediaRef.current = null;
+    };
+  }, [asset, onNotice]);
+  const image = asset.kind === 'image';
+  const video = asset.kind === 'video';
+  const sound = asset.kind === 'audio';
+  const kindName = image ? 'å›¾ç‰‡' : video ? 'MP4 è§†é¢‘' : sound ? 'éŸ³é¢‘' : asset.kind === 'article' ? 'æ–‡ç« ' : 'å…¶ä»–';
+  return <article className={`asset-card ${recent ? 'recent' : ''}`} draggable={sound} onContextMenu={onContextMenu} onDragStart={(event) => { if (!sound) return; onBeginAudioDrag(); event.dataTransfer.effectAllowed = 'copy'; event.dataTransfer.setData(AUDIO_DRAG, JSON.stringify({ projectId, assetId: asset.id })); event.dataTransfer.setData('text/plain', 'èƒŒæ™¯éŸ³ä¹'); }} onDragEnd={onEndAudioDrag} title={sound ? 'æ‹–åˆ° C åŒºæ®µè½ç»„è®¾ç½®èƒŒæ™¯éŸ³ä¹' : undefined}>
+    <div className={`asset-preview ${image ? 'image' : ''}`}>
+      {image ? <img src={objectUrl(asset)} alt="" /> : video ? <video src={objectUrl(asset)} muted playsInline preload="metadata" /> : <span>{sound ? 'â™«' : asset.kind === 'article' ? 'æ–‡' : 'Â·Â·'}</span>}
+    </div>
+    <div className="asset-info"><strong title={asset.name}>{asset.name}</strong><small>{kindName} Â· {formatSize(asset.size)}</small>
+      <div className="asset-actions">
+        {asset.kind === 'article' && <button onClick={onAppendArticle}>é¢„è§ˆå¹¶è¿½åŠ æ­£æ–‡</button>}
+        <button onClick={onDelete}>ç§»é™¤ç´ æ</button>
+        {image && <><button onClick={onBackground}>è®¾ä¸ºèƒŒæ™¯</button><button onClick={onLayer}>æ·»åŠ å›¾å±‚</button></>}
+        {video && <><button onClick={onLayer}>æ·»åŠ åˆ°èˆå°</button><button onClick={onExtractAudio}>æå–å£°éŸ³</button></>}
+        {sound && <button onClick={() => {
+          const session = mediaRef.current;
+          if (!session) return;
+          const status = session.snapshot().status;
+          if (status === 'playing' || status === 'loading') session.pause();
+          else if (status === 'paused') session.resume();
+          else void session.start(asset.id);
+        }}>{mediaState === 'loading' ? 'æ­£åœ¨å‡†å¤‡' : mediaState === 'playing' ? 'æš‚åœè¯•å¬' : mediaState === 'paused' ? 'ç»§ç»­è¯•å¬' : 'è¯•å¬'}</button>}
+        {sound && <><button onClick={onAudio}>æœ¬å¥éŸ³æ•ˆ</button><small className="audio-drag-hint">â ¿ æ‹–åˆ°ç»„è®¾é…ä¹</small></>}
+      </div>
+    </div>
+  </article>;
+}
 
-HOˆ›ÚYÈÛ“›İXÙNˆ
-Y\ÜØYÙNˆİš[™ÊHOˆ›ÚYÈÛ™YÚ[]Y[Ñ˜YÎˆ
+function usePlaybackClock(clock: PlaybackClock) {
+  const subscribe = useCallback((listener: () => void) => { clock.listeners.add(listener); return () => { clock.listeners.delete(listener); }; }, [clock]);
+  const getSnapshot = useCallback(() => clock.snapshot, [clock]);
+  return useSyncExternalStore(subscribe, getSnapshot);
+}
 
-HOˆ›ÚYÈÛ‘[™]Y[Ñ˜YÎˆ
-
-HOˆ›ÚYÈÛÛÛ^Y[OÎˆ
-]™[ˆ™XXİ“[İ\ÙQ]™[
-HOˆ›ÚYJHÃBˆÛÛœİÛYYXTİ]KÙ]YYXTİ]WHH\ÙTİ]J	ÚYIÊNÃBˆÛÛœİYYXT™YˆH\ÙT™YYYXTÙ\ÜÚ[Ûˆ[Š[
-NÃBˆ\ÙQY™™Xİ
-
-
-HOˆÃBˆYˆ
-\ÜÙ]šÚ[™OOH	Ø]Y[ÉÊH™]\›ÃBˆÛÛœİÙ\ÜÚ[ÛˆH™]ÈYYXTÙ\ÜÚ[ÛŠÜ™X]R[]Y[Ğ˜XÚÙ[™
-
-Y
-HOˆYOOH\ÜÙ]šYÈ\ÜÙ]ˆ[™Yš[™Y
-K
-Û˜\Úİ
-HOˆÃBˆYˆ
-Û˜\Úİœİ]\ÈOOH	Ù\ÜÜÙY	ÊHÙ]YYXTİ]JÛ˜\Úİœİ]\ÊNÃBˆYˆ
-Û˜\Úİœİ]\ÈOOH	Ù\œ›Ü‰È	‰ˆÛ˜\Úİ™\œ›ÜŠHÛ“›İXÙJ:+åyd+9i,z-){ï&‰ÜÛ˜\Úİ™\œ›ÜŸX
-NÃBˆJNÃBˆYYXT™Y‹˜İ\œ™[HÙ\ÜÚ[ÛÃBˆ™]\›ˆ
-
-HOˆÃBˆÙ\ÜÚ[Û‹™\ÜÜÙJ
-NÃBˆYˆ
-YYXT™Y‹˜İ\œ™[OOHÙ\ÜÚ[ÛŠHYYXT™Y‹˜İ\œ™[H[ÃBˆNÃBˆKØ\ÜÙ]Û“›İXÙWJNÃBˆÛÛœİ[XYÙHH\ÜÙ]šÚ[™OOH	Ú[XYÙIÎÃBˆÛÛœİšY[ÈH\ÜÙ]šÚ[™OOH	İšY[ÉÎÃBˆÛÛœİÛİ[™H\ÜÙ]šÚ[™OOH	Ø]Y[ÉÎÃBˆÛÛœİÚ[™˜[YHH[XYÙHÈ	ùfï¹âaÉÈˆšY[ÈÈ	ÓT:)áºh¤IÈˆÛİ[™È	úgìúh¤IÈˆ\ÜÙ]šÚ[™OOH	Ø\XÛIÈÈ	ù¥¡ùêè	Èˆ	ùam¹.å‰ÎÃBˆ™]\›ˆ\XÛHÛ\ÜÓ˜[YO^Ø\ÜÙ]XØ\™	Ü™XÙ[È	Ü™XÙ[	Èˆ	ÉßXH˜YÙØX›O^ÜÛİ[™HÛÛÛ^Y[O^ÛÛÛÛ^Y[_HÛ‘˜YÔİ\^Ê]™[
-HOˆÈYˆ
-\Ûİ[™
-H™]\›ÈÛ™YÚ[]Y[Ñ˜YÊ
-NÈ]™[™]U˜[œÙ™\‹™Y™™Xİ[İÙYH	ØÛÜIÎÈ]™[™]U˜[œÙ™\‹œÙ]]JUQS×ÑQË”ÓÓ‹œİš[™ÚYJÈ›Ú™XİY\ÜÙ]Yˆ\ÜÙ]šYJJNÈ]™[™]U˜[œÙ™\‹œÙ]]J	İ^ÜZ[‰Ë	ú ã9¦kúgìù.d	ÊNÈ_HÛ‘˜YÑ[™^ÛÛ‘[™]Y[Ñ˜YßH]O^ÜÛİ[™È	ù¢å¹b,È9c.¹«­z$/yîá:+¯¹ïkº ã9¦kúgìù.d	Èˆ[™Yš[™YOƒBˆ]ˆÛ\ÜÓ˜[YO^Ø\ÜÙ]\™]šY]È	Ú[XYÙHÈ	Ú[XYÙIÈˆ	ÉßXOƒBˆÚ[XYÙHÈ[YÈÜ˜Ï^ÛØš™Xİ\›
-\ÜÙ]
-_H[HˆˆÏˆˆšY[ÈÈšY[ÈÜ˜Ï^ÛØš™Xİ\›
-\ÜÙ]
-_H]]Y^\Ò[›[™H™[ØYH›Y]Y]HˆÏˆˆÜ[ÜÛİ[™È	ø¦jÉÈˆ\ÜÙ]šÚ[™OOH	Ø\XÛIÈÈ	ù¥¡ÉÈˆ	ğ­ğ­ÉßOÜÜ[ŸCBˆÙ]ƒBˆ]ˆÛ\ÜÓ˜[YOH˜\ÜÙ]Z[™›Èİ›Û™È]O^Ø\ÜÙ]›˜[Y_OØ\ÜÙ]›˜[Y_OÜİ›Û™ÏÛX[ÚÚ[™˜[Y_H0­ÈÙ›Ü›X]Ú^™J\ÜÙ]œÚ^™J_OÜÛX[ƒBˆ]ˆÛ\ÜÓ˜[YOH˜\ÜÙ]XXİ[ÛœÈƒBˆØ\ÜÙ]šÚ[™OOH	Ø\XÛIÈ	‰ˆ]ÛˆÛÛXÚÏ^ÛÛ\[™\XÛ_Oºh¡:)â9nmº/ïyb¨9«hù¥¡ÏØ]ÛŸCBˆ]ÛˆÛÛXÚÏ^ÛÛ‘[]_O¹éîúfi9í(9§dØ]ÛƒBˆÚ[XYÙH	‰ˆ]ÛˆÛÛXÚÏ^ÛÛ˜XÚÙÜ›İ[™Oº+¯¹..º ã9¦kÏØ]Û]ÛˆÛÛXÚÏ^ÛÛ“^Y\ŸO¹­îùb¨9fï¹l`Ø]ÛÏŸCBˆİšY[È	‰ˆ]ÛˆÛÛXÚÏ^ÛÛ“^Y\ŸO¹­îùb¨9b,:"'¹cìØ]Û]ÛˆÛÛXÚÏ^ÛÛ‘^˜Xİ]Y[ßO¹£ä9cå¹hì:gìÏØ]ÛÏŸCBˆÜÛİ[™	‰ˆ]ÛˆÛÛXÚÏ^Ê
-HOˆÃBˆÛÛœİÙ\ÜÚ[ÛˆHYYXT™Y‹˜İ\œ™[ÃBˆYˆ
-\Ù\ÜÚ[ÛŠH™]\›ÃBˆÛÛœİİ]\ÈHÙ\ÜÚ[Û‹œÛ˜\Úİ
-
-Kœİ]\ÎÃBˆYˆ
-İ]\ÈOOH	Ü^Z[™ÉÈİ]\ÈOOH	ÛØY[™ÉÊHÙ\ÜÚ[Û‹œ]\ÙJ
-NÃBˆ[ÙHYˆ
-İ]\ÈOOH	Ü]\ÙY	ÊHÙ\ÜÚ[Û‹œ™\İ[YJ
-NÃBˆ[ÙH›ÚYÙ\ÜÚ[Û‹œİ\
-\ÜÙ]šY
-NÃBˆ_OÛYYXTİ]HOOH	ÛØY[™ÉÈÈ	ù«hùg*9aá¹i!ÉÈˆYYXTİ]HOOH	Ü^Z[™ÉÈÈ	ù¦ ¹`g:+åyd+	ÈˆYYXTİ]HOOH	Ü]\ÙY	ÈÈ	ùîéùîëz+åyd+	Èˆ	ú+åyd+	ßOØ]ÛŸCBˆÜÛİ[™	‰ˆ]ÛˆÛÛXÚÏ^ÛÛ]Y[ßO¹§+9cézgìù¥bØ]ÛÛX[Û\ÜÓ˜[YOH˜]Y[ËY˜YËZ[¸¨/È9¢å¹b,9îá:+¯ºacy.dÜÛX[ÏŸCBˆÙ]ƒBˆÙ]ƒBˆØ\XÛOÃBŸCBƒB™[˜İ[Ûˆ\ÙT^X˜XÚĞÛØÚÊÛØÚÎˆ^X˜XÚĞÛØÚÊHÃBˆÛÛœİİXœØÜšX™HH\ÙPØ[˜XÚÊ
-\İ[™\ˆ
-
-HOˆ›ÚY
-HOˆÈÛØÚË›\İ[™\œË˜Y
-\İ[™\ŠNÈ™]\›ˆ
-
-HOˆÈÛØÚË›\İ[™\œË™[]J\İ[™\ŠNÈNÈKØÛØÚ×JNÃBˆÛÛœİÙ]Û˜\ÚİH\ÙPØ[˜XÚÊ
-
-HOˆÛØÚËœÛ˜\ÚİØÛØÚ×JNÃBˆ™]\›ˆ\ÙTŞ[˜Ñ^\›˜[İÜ™JİXœØÜšX™KÙ]Û˜\Úİ
-NÃBŸCBƒB™[˜İ[ÛˆÛØÚÙYİYÙPİYJÈÛØÚË‹‹œ›ÜÈNˆÈÛØÚÎˆ^X˜XÚĞÛØÚÎÈİYNˆ[NÈÙYZÔ™]š\Ú[Ûˆ[X™\È^TÙ\ÜÚ[Û”™]š\Ú[Ûˆ[X™\ÈÛY˜[˜ÙNˆ
-
-HOˆ›ÚYÈÅj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^nMove: (position: { x: number; y: number }) => void }) {
+function ClockedStageCue({ clock, ...props }: { clock: PlaybackClock; cue: any; seekRevision: number; playSessionRevision: number; onAdvance: () => void; onMove: (position: { x: number; y: number }) => void }) {
   const snapshot = usePlaybackClock(clock);
   return <StageCue {...props} status={snapshot.status} elapsedMs={snapshot.elapsedMs} />;
 }
@@ -1556,10 +2755,107 @@ function AiReviewExportDialog({ state, busy, selectedGroupCount, onCancel, onExp
   const [scopeType, setScopeType] = useState(state.scopeType);
   const [includeMedia, setIncludeMedia] = useState(state.includeMedia);
   const [goal, setGoal] = useState(state.goal);
-  return <div className="name-dialog-overlay"><form className="ai-review-dialog" role="dialog" aria-modal="true" aria-labelledby="ai-export-title" onSubmit={(event) => { event.preventDefault(); onExport({ scopeType, includeMedia, goal }); }}><h2 id="ai-export-title">å¯¼å‡ºå®Œæ•´å®¡é˜…åŒ…</h2><p className="ai-review-subtitle">å¯¼å‡ºä¸ºç‹¬ç«‹çš„ .storyreview.zipï¼Œå†…å«å¯å•ç‹¬é˜…è¯»çš„ä½œå“è¯´æ˜ã€æç¤ºè¯ä¸å¯å¯¼å›çš„å»ºè®®æ ¼å¼ï¼›åŸå·¥ç¨‹è‡ªåŠ¨ä¿å­˜ä¸â€œå¯¼å‡ºå·¥ç¨‹åŒ…â€ä¿æŒç‹¬ç«‹ã€‚</p><strong className="ai-review-scope-label">å®¡é˜…èŒƒå›´</strong><div className="ai-review-scope-options"><label><input type="radio" name="ai-review-scope" value="chapter" checked={scopeType === '¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¡…ÁÑ•Èô½¹¡…¹”õì ¤€ôøÍ•ÑM½Á•QåÁ” ¡…ÁÑ•Èœ¥ô€¼û–öO–&7®ƒ¢*ğ½±…‰•°øñ±…‰•°øñ¥¹ÁÕĞÑåÁ”ô‰É…‘¥¼ˆ¹…µ”ô‰…¤µÉ•Ù¥•ÜµÍ½Á”ˆÙ…±Õ”ô‰É½ÕÁÌˆ‘¥Í…‰±•õì…Í•±•Ñ•‘É½ÕÁ½Õ¹Ñô¡•­•õíÍ½Á•QåÁ”€ôôô€É½ÕÁÌô½¹¡…¹”õì ¤€ôøÍ•ÑM½Á•QåÁ” É½ÕÁÌœ¥ô€¼û–ŞË¦'šº×¢B÷î¾ò!íÍ•±•Ñ•‘É½ÕÁ½Õ¹Ñ÷¾ò$ğ½±…‰•°øñ±…‰•°øñ¥¹ÁÕĞÑåÁ”ô‰É…‘¥¼ˆ¹…µ”ô‰…¤µÉ•Ù¥•ÜµÍ½Á”ˆÙ…±Õ”ô‰ÁÉ½©•Ğˆ¡•­•õíÍ½Á•QåÁ”€ôôô€ÁÉ½©•Ğô½¹¡…¹”õì ¤€ôøÍ•ÑM½Á•QåÁ” ÁÉ½©•Ğœ¥ô€¼û–£–Ş—¢,ğ½±…‰•°øğ½‘¥Øøñ±…‰•°û–â3šrl$ƒšRç¢şoj––ºäñÑ•áÑ…É•„Ù…±Õ”õí½…±ôµ…á1•¹Ñ õìÈÀÀÁôÁ±…•¡½±‘•Èô‹’ú/–š¾òk–*ƒ–òë–ú«:¿š’â;šr¯–Âû–>7¢ö³¾òo’âë:Ãšr'šZ–¶_šV#šzsš>C–ëšnÓ¢ÒÓ–B#šî«j–îë¢º»¾òo–>«’öÿR£–Ş—¢/¦3–ŞËšr'j¦~Ï¦ŠGÒƒšvCˆ½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÍ•Ñ½…°¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¥ô€¼øğ½±…‰•°øñ±…‰•°±…ÍÍ9…µ”ô‰…¤µÉ•Ù¥•Üµµ•‘¥„ˆøñ¥¹ÁÕĞÑåÁ”ô‰¡•­‰½àˆ¡•­•õí¥¹±Õ‘•5•‘¥…ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøÍ•Ñ%¹±Õ‘•5•‘¥„¡•Ù•¹Ğ¹Ñ…É•Ğ¹¡•­•¥ô€¼û¦f–â›¢2–nÓ––òWR£j–ªK’öOšZ’îÛ¾ò#–nû&¿¦~Ï¦ŠD¿¢¦ŠG¾ò3šZ’îÛ–>¿¢÷¢ú–’Ÿ¾ò$ğ½±…‰•°øñÍµ…±°û’â7–.û¦'š^Û’î–¾ó–ëšV’ê/šòS–ë–>šVÃ’â;ÒƒšvC–šVÃš6»¾òm$ƒ’â7–ú_–ÃÃr/¢şš"[–B³¢ş–º{¦f–ªK’öOğ½Íµ…±°øñ‘¥Ø±…ÍÍ9…µ”ô‰¹…µ”µ‘¥…±½œµ…Ñ¥½¹Ìˆøñ‰ÕÑÑ½¸ÑåÁ”ô‰‰ÕÑÑ½¸ˆ±…ÍÍ9…µ”ô‰‰ÕÑÑ½¸ÅÕ¥•Ğˆ‘¥Í…‰±•õí‰ÕÍåô½¹±¥¬õí½¹…¹•±ôû–>[šÚ ğ½‰ÕÑÑ½¸øñ‰ÕÑÑ½¸ÑåÁ”ô‰ÍÕ‰µ¥Ğˆ±…ÍÍ9…µ”ô‰‰ÕÑÑ½¸ÁÉ¥µ…Éäˆ‘¥Í…‰±•õí‰ÕÍäñğ€¡Í½Á•QåÁ”€ôôô€É½ÕÁÌœ€˜˜€…Í•±•Ñ•‘É½ÕÁ½Õ¹Ğ¥ôùí‰ÕÍä€ü€Ÿš¶–r£šVÓB–º‡¦b–2Š˜œ€è€ŸRš"C–æÛ’şw–¶`ôğ½‰ÕÑÑ½¸øğ½‘¥Øøğ½™½É´øğ½‘¥Øøì4)ô4(4)™Õ¹Ñ¥½¸¥I•Ù¥•İ¡…¹•…É¡ì¡…¹”°¡•­•°½¹Q½±”ôèì¡…¹”è…¹äì¡•­•è‰½½±•…¸ì½¹Q½±”è€¡¡•­•è‰½½±•…¸¤€ôøÙ½¥ô¤ì4(€½¹ÍĞÑ¥Ñ±”€ô¡…¹”¹½À€ôôô€É•Á±…•Õ•Q•áĞœ€üƒš¶šZšRç–dƒ
-Ü€‘í¡…¹”¹Õ•%‘õ€€è¡…¹”¹½À€ôôô€ÕÁ‘…Ñ•Õ•M•ÑÑ¥¹Ìœ€üƒšòS–ë¢ºûö¸ƒ
-Ü€‘í¡…¹”¹Õ•%‘õ€€èƒšº×¢B÷î¦7’æ@ƒ
-Ü€‘í¡…¹”¹É½ÕÁ%‘Ì¹©½¥¸ Ÿœ¥õ€ì4(€½¹ÍĞ™½Éµ…Ğ€ô€¡Ù…±Õ”è…¹ä¤€ôøÙ…±Õ”€ôôô¹Õ±°€ü€Ÿš^€œ€èÑåÁ•½˜Ù…±Õ”€ôôô€ÍÑÉ¥¹œœ€üÙ…±Õ”€è)M=8¹ÍÑÉ¥¹¥™ä¡Ù…±Õ”°¹Õ±°°€È¤ì4(€É•ÑÕÉ¸€ñ…ÉÑ¥±”±…ÍÍ9…µ”ô‰…¤µÉ•Ù¥•Üµ¡…¹”ˆøñ±…‰•°±…ÍÍ9…µ”ô‰…¤µÉ•Ù¥•Üµ¡…¹”µÑ¥Ñ±”ˆøñ¥¹ÁÕĞÑåÁ”ô‰¡•­‰½àˆ¡•­•õí¡•­•‘ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôø½¹Q½±”¡•Ù•¹Ğ¹Ñ…É•Ğ¹¡•­•¥ô€¼øñÍÑÉ½¹œùíÑ¥Ñ±•ôğ½ÍÑÉ½¹œøğ½±…‰•°øñ‘¥Ø±…ÍÍ9…µ”ô‰…¤µÉ•Ù¥•Üµ‘¥™˜ˆøñÍ•Ñ¥½¸øñÍµ…±°û–öO–&4ğ½Íµ…±°øñÁÉ”ùí™½Éµ…Ğ¡¡…¹”¹‰•™½É”¥ôğ½ÁÉ”øğ½Í•Ñ¥½¸øñÍÁ…¸…É¥„µ¡¥‘‘•¸ô‰ÑÉÕ”ˆûŠHğ½ÍÁ…¸øñÍ•Ñ¥½¸øñÍµ…±°û–îë¢º¸ğ½Íµ…±°øñÁÉ”ùí™½Éµ…Ğ¡¡…¹”¹…™Ñ•È¥ôğ½ÁÉ”øğ½Í•Ñ¥½¸øğ½‘¥ØøñÍµ…±°±…ÍÍ9…µ”ô‰…¤µÉ•Ù¥•ÜµÉ•…Í½¸ˆû–:–nƒ¾òií¡…¹”¹É•…Í½¹ôğ½Íµ…±°øğ½…ÉÑ¥±”øì4)ô4(4)™Õ¹Ñ¥½¸9Õµ•É¥¥•±¡ìÙ…±Õ”°µ¥¸°µ…à°ÍÑ•À°½¹½µµ¥Ğ°½¹±•…ÈôèìÙ…±Õ”è¹Õµ‰•ÈğÕ¹‘•™¥¹•ìµ¥¸üè¹Õµ‰•ÈğÍÑÉ¥¹œìµ…àüè¹Õµ‰•ÈğÍÑÉ¥¹œìÍÑ•Àüè¹Õµ‰•ÈğÍÑÉ¥¹œì½¹½µµ¥Ğè€¡Ù…±Õ”è¹Õµ‰•È¤€ôøÕ¹­¹½İ¸ì½¹±•…Èüè€ ¤€ôøÕ¹­¹½İ¸ô¤ì4(€½¹ÍĞm‘É…™Ğ°Í•ÑÉ…™Ñt€ôÕÍ•MÑ…Ñ”¡Ù…±Õ”€ôôôÕ¹‘•™¥¹•€ü€œœ€èMÑÉ¥¹œ¡Ù…±Õ”¤¤ì4(€½¹ÍĞm¥¹Ù…±¥°Í•Ñ%¹Ù…±¥‘t€ôÕÍ•MÑ…Ñ”¡™…±Í”¤ì4(€ÕÍ•™™•Ğ  ¤€ôøìÍ•ÑÉ…™Ğ¡Ù…±Õ”€ôôôÕ¹‘•™¥¹•€ü€œœ€èMÑÉ¥¹œ¡Ù…±Õ”¤¤ìÍ•Ñ%¹Ù…±¥¡™…±Í”¤ìô°mÙ…±Õ•t¤ì4(€½¹ÍĞÉ•Í•Ğ€ô€ ¤€ôøÍ•ÑÉ…™Ğ¡Ù…±Õ”€ôôôÕ¹‘•™¥¹•€ü€œœ€èMÑÉ¥¹œ¡Ù…±Õ”¤¤ì4(€½¹ÍĞ½µµ¥Ğ€ô€ ¤€ôøì4(€€€½¹ÍĞÁ…ÉÍ•€ô‘É…™Ğ¹ÑÉ¥´ ¤€ü9Õµ‰•È¡‘É…™Ğ¤€è9…8ì4(€€€¥˜€ …‘É…™Ğ¹ÑÉ¥´ ¤€˜˜½¹±•…È¤ì½¹±•…È ¤ìÍ•Ñ%¹Ù…±¥¡™…±Í”¤ìÉ•ÑÕÉ¸ìô4(€€€¥˜€ …9Õµ‰•È¹¥Í¥¹¥Ñ”¡Á…ÉÍ•¤ñğ€¡µ¥¸€„ôôÕ¹‘•™¥¹•€˜˜Á…ÉÍ•€ğ9Õµ‰•È¡µ¥¸¤¤ñğ€¡µ…à€„ôôÕ¹‘•™¥¹•€˜˜Á…ÉÍ•€ø9Õµ‰•È¡µ…à¤¤¤ì4(€€€€€É•Í•Ğ ¤ìÍ•Ñ%¹Ù…±¥¡ÑÉÕ”¤ìÉ•ÑÕÉ¸ì4(€€€ô4(€€€½¹ÍĞÉ•ÍÕ±Ğ€ôÁ…ÉÍ•€ôôôÙ…±Õ”€üÑÉÕ”€è½¹½µµ¥Ğ¡Á…ÉÍ•¤ì4(€€€¥˜€¡É•ÍÕ±Ğ€ôôô™…±Í”¤É•Í•Ğ ¤ì4(€€€Í•Ñ%¹Ù…±¥¡É•ÍÕ±Ğ€ôôô™…±Í”¤ì4(€ôì4(€É•ÑÕÉ¸€ñ¥¹ÁÕĞ±…ÍÍ9…µ”ô‰¹Õµ•É¥Œµ™¥•±ˆÑåÁ”ô‰¹Õµ‰•ÈˆÙ…±Õ”õí‘É…™Ñôµ¥¸õíµ¥¹ôµ…àõíµ…áôÍÑ•ÀõíÍÑ•Áô…É¥„µ¥¹Ù…±¥õí¥¹Ù…±¥‘ôÑ¥Ñ±”õí¥¹Ù…±¥€ü€ŸšVÃ–óš^ƒšV#¾ò3–ŞË’şwVg–:¢ºûö»œ€è€Ÿš2$¹Ñ•Èƒš"[šï–ò¢úO–—š†–êSR ô½¹¡…¹”õì¡•Ù•¹Ğ¤€ôøìÍ•ÑÉ…™Ğ¡•Ù•¹Ğ¹Ñ…É•Ğ¹Ù…±Õ”¤ìÍ•Ñ%¹Ù…±¥¡™…±Í”¤ìõô½¹	±ÕÈõí½µµ¥Ñô½¹-•å½İ¸õì¡•Ù•¹Ğ¤€ôøì4(€€€¥˜€¡•Ù•¹Ğ¹­•ä€ôôô€¹Ñ•Èœ¤ì•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì•Ù•¹Ğ¹ÕÉÉ•¹ÑQ…É•Ğ¹‰±ÕÈ ¤ìô4(€€€¥˜€¡•Ù•¹Ğ¹­•ä€ôôô€Í…Á”œ¤ì•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ìÉ•Í•Ğ ¤ìÍ•Ñ%¹Ù…±¥¡™…±Í”¤ìô4(€õô€¼øì4)ô4(4)™Õ¹Ñ¥½¸9…µ•%¹ÁÕÑ¥…±½œ¡ì‘¥…±½œ°½¹…¹•°ôèì‘¥…±½œè9…µ•¥…±½MÑ…Ñ”ì½¹…¹•°è€ ¤€ôøÙ½¥ô¤ì4(€½¹ÍĞmÙ…±Õ”°Í•ÑY…±Õ•t€ôÕÍ•MÑ…Ñ”¡‘¥…±½œ¹¥¹¥Ñ¥…±Y…±Õ”¤ì4(€½¹ÍĞm•ÉÉ½È°Í•ÑÉÉ½Ét€ôÕÍ•MÑ…Ñ” œœ¤ì4(€½¹ÍĞ¥¹ÁÕÑI•˜€ôÕÍ•I•˜ñ!Q51%¹ÁÕÑ±•µ•¹Ğğ¹Õ±°ø¡¹Õ±°¤ì4(€ÕÍ•™™•Ğ  ¤€ôøì4(€€€¥¹ÁÕÑI•˜¹ÕÉÉ•¹Ğü¹™½ÕÌ ¤ì4(€€€¥¹ÁÕÑI•˜¹ÕÉÉ•¹Ğü¹Í•±•Ğ ¤ì4(€ô°mt¤ì4(4(€½¹ÍĞÍÕ‰µ¥Ğ€ô€¡•Ù•¹ĞèI•…Ğ¹½ÉµÙ•¹Ğñ!Q51½Éµ±•µ•¹Ğø¤€ôøì4(€€€•Ù•¹Ğ¹ÁÉ•Ù•¹Ñ•™…Õ±Ğ ¤ì4(€€€Í•ÑÉÉ½È œœ¤ì4(€€€ÑÉäì4(€€€€€½¹ÍĞ¹…µ”€ô‘¥…±½œ¹¹½Éµ…±¥é”¡Ù…±Õ”¤ì4(€€€€€½¹ÍĞ™…¥±ÕÉ”€ô‘¥…±½œ¹½¹½¹™¥É´¡¹…µ”¤ì4(€€€€€¥˜€¡™…¥±ÕÉ”¤ì4(€€€€€€€Í•ÑÉÉ½È¡™…¥±ÕÉ”¤ì4(€€€€€€€É•ÑÕÉ¸ì4(€€€€€ô4(€€€€€½¹…¹•° ¤ì4(€€€ô…Ñ €¡…ÕÍ”¤ì4(€€€€€Í•ÑÉÉ½È¡…ÕÍ”¥¹ÍÑ…¹•½˜ÉÉ½È€ü…ÕÍ”¹µ•ÍÍ…”€è€Ÿ–B7Ãš^ƒšV#¾ò3¢¾ßšš~—–B;¦7¢¾Wœ¤ì4(€€€ô4(€ôì4(4(€É•ÑÕÉ¸€ñ‘¥Ø±…ÍÍ9…µ”ô‰¹…µ”µ‘¥…±½œµ½Ù•É±…äˆøñ™½É´±…ÍÍ9…µ”ô‰¹…µ”µ‘¥…±½œˆÉ½±”ô‰‘¥…±½œˆ…É¥„µµ½‘…°ô‰ÑÉÕ”ˆ…É¥„µ±…‰•±±•‘‰äô‰¹…µ”µ‘¥…±½œµÑ¥Ñ±”ˆ½¹MÕ‰µ¥ĞõíÍÕ‰µ¥Ñô½¹-•å½İ¸õì¡•Ù•¹Ğ¤€ôøì4(€€€¥˜€¡”V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅçfVçBæ¶W’ÓÓÒtW66Rr’°Ğ¢WfVçBç&WfVçDFVfVÇB‚“°Ğ¢WfVçBç7F÷&÷vF–öâ‚“°Ğ¢öä6æ6VÂ‚“°Ğ¢ĞĞ¢×ÓàĞ¢Æƒ"–CÒ&æÖRÖF–Æör×F—FÆR#ç¶F–ÆörçF—FÆWÓÂöƒ#àĞ¢ÆÆ&VÂ‡FÖÄf÷#Ò&æÖRÖF–ÆörÖ–çWB#ç¶F–Æöræf–VÆDÆ&VÇÓÂöÆ&VÃàĞ¢Æ–çWB&Vc×¶–çWE&VgÒ–CÒ&æÖRÖF–ÆörÖ–çWB"fÇVS×·fÇVWÒÖ„ÆVæwFƒ×³#Ò&–Ö–çfÆ–C×²W'&÷'Ò&–ÖFW67&–&VF'“×¶W'&÷"òvæÖRÖF–ÆörÖW'&÷"æÖRÖF–ÆörÖ†VÇr¢væÖRÖF–ÆörÖ†VÇwÒöä6†ævS×²†WfVçB’Óâ²6WEfÇVR†WfVçBçF&vWBçfÇVR“²6WDW'&÷"‚rr“²×ÒóàĞ¢Ç6ÖÆÂ–CÒ&æÖRÖF–ÆörÖ†VÇ#ç¶F–ÆöræFW67&—F–öâóò~iÈZI¢#KŠ®ZÙ~zÊnûÈÎšin[îz›®y›ŞKÉ®ˆz®XªXë¾™šN8"wÓÂ÷6ÖÆÃàĞ¢¶W'&÷"bbÇ6ÖÆÂ–CÒ&æÖRÖF–ÆörÖW'&÷""6Æ74æÖSÒ&æÖRÖF–ÆörÖW'&÷""&öÆSÒ&ÆW'B#ç¶W'&÷'ÓÂ÷6ÖÆÃçĞĞ¢ÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ7F–öç2#ãÆ'WGFöâG—SÒ&'WGFöâ"6Æ74æÖSÒ&'WGFöâV–WB"öä6Æ–6³×¶öä6æ6VÇÓîXùnkhƒÂö'WGFöããÆ'WGFöâG—SÒ'7V&Ö—B"6Æ74æÖSÒ&'WGFöâ&–Ö'’#ç¶F–Æöræ6öæf—&ÔÆ&VÇÓÂö'WGFöããÂöF—càĞ¢Âöf÷&ÓãÂöF—cã°Ğ§ĞĞ Ğ¦gVæ7F–öâf÷&ÖE6—¦R†'—FW3¢çVÖ&W"’°Ğ¢–b†'—FW2Â#B’&WGW&âG¶'—FW7Ò&°Ğ¢–b†'—FW2Â#B¢#B’&WGW&âG²†'—FW2ò#B’çFôf—†VBƒ—Ò´&°Ğ¢&WGW&âG²†'—FW2ò#Bò#B’çFôf—†VBƒ—ÒÔ&°Ğ§ĞĞ Ğ¢ò¢¢[z^zˆ¾[©>˜xÎi‹îzK®y¨NiÈ‹ù{Én‹éi{n™{B¢ğĞ¦gVæ7F–öâf÷&ÖDÆ–'&'•F–ÖR‡fÇVS¢7G&–ær’°Ğ¢–b‚fÇVR’&WGW&â~i{n™{NiÊ®yúRs°Ğ¢6öç7BFFRÒæWrFFR‡fÇVR“°Ğ¢–b„çVÖ&W"æ—4æâ†FFRævWEF–ÖR‚’’’&WGW&â~i{n™{NiÊ®yúRs°Ğ¢&WGW&âFFRçFôÆö6ÆU7G&–ær‚w¦‚Ô4ârÂ²ÖöçFƒ¢s"ÖF–v—BrÂF“¢s"ÖF–v—BrÂ†÷W#¢s"ÖF–v—BrÂÖ–çWFS¢s"ÖF–v—BrÒ“°Ğ§ĞĞ Ğ¢ò¢¢ZûÎXZ^y¨N[z^zˆ¾Y(Î[©>˜xÎ[{.iÈy¨NiŠşYÎKˆK»ŞKÙÎY8i{nûÈÎŠêyJh‹~iˆîzî˜hºhîK˜ZHNyb¢ğĞ¦gVæ7F–öâ–×÷'D6öæfÆ–7DF–Æör‡²6æF–FFRÂöå&W6öÇfRÂöä6æ6VÂÓ¢²6æF–FFS¢–×÷'D6æF–FFU7FFS²öå&W6öÇfS¢†6†ö–6S¢v÷VârÂv6÷’rÂw&WÆ6RrÂv6æ6VÂr’Óâfö–C²öä6æ6VÃ¢‚’Óâfö–BÒ’°Ğ¢6öç7B¶6öæf—&Õ&WÆ6RÂ6WD6öæf—&Õ&WÆ6UÒÒW6U7FFR†fÇ6R“°Ğ¢&WGW&âÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ÷fW&Æ’#ãÇ6V7F–öâ6Æ74æÖSÒ&æÖRÖF–Æör"&öÆSÒ&F–Æör"&–ÖÖöFÃÒ'G'VR"&–ÖÆ&VÃÒ.[z^zˆ¾[{.YÊ[z^zˆ¾[©>˜xÂ"öä¶W”F÷vã×²†WfVçB’Óâ²–b†WfVçBæ¶W’ÓÓÒtW66Rr’öä6æ6VÂ‚“²×ÓàĞ¢Æƒ#î[z^zˆ¾[©>˜xÎ[{.{¸şiÈYÎKˆK»ŞKÙÎY8Âöƒ#àĞ¢Çî(	Ç¶6æF–FFRæW†—7F–ærææÖWŞ(	ŞY(Î(	Ç¶6æF–FFRææÖWŞ(	ŞyJy¨NiŠşYÎKˆKŠ®KÙÎY8j~Šøn8.xëYÊ˜K¸K˜˜;ŞKˆŞKÉ®[ÛY8ŞKÚjÚ>YÊ{Én‹éy¨N[z^zˆ¾8#Â÷àĞ¢ÆF—b6Æ74æÖSÒ&æÖRÖF–ÆörÖ7F–öç2#àĞ¢Æ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"WFôfö7W2öä6Æ–6³×¶öä6æ6VÇÓîXùnkhƒÂö'WGFöãàĞ¢Æ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"öä6Æ–6³×²‚’Óâöå&W6öÇfR‚v÷Vâr—Óîh™>[È[{.iÈy¨CÂö'WGFöãàĞ¢Æ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"öä6Æ–6³×²‚’Óâöå&W6öÇfR‚v6÷’r—ÓîZûÎXZ^K‹®XšşiÊÃÂö'WGFöãàĞ¢¶6öæf—&Õ&WÆ6PĞ¢òÆ'WGFöâ6Æ74æÖSÒ&'WGFöâ&–Ö'’"öä6Æ–6³×²‚’Óâöå&W6öÇfR‚w&WÆ6Rr—ÓîzîŠêNi»şhÚ#Âö'WGFöãàĞ¢¢Æ'WGFöâ6Æ74æÖSÒ&'WGFöâV–WB"öä6Æ–6³×²‚’Óâ6WD6öæf—&Õ&WÆ6R‡G'VR—Óîi»şhÚ.[{.iÈy¨N(
-cÂö'WGFöãçĞĞ¢ÂöF—càĞ¢¶6öæf—&Õ&WÆ6RbbÇ6Æ74æÖSÒ&æÖRÖF–ÆörÖW'&÷""&öÆSÒ&ÆW'B#îi»şhÚ.KÉ®Šhny¹n(	Ç¶6æF–FFRæW†—7F–ærææÖWŞ(	ŞxëYÊy¨NXh^ZëûÈi»şhÚ.X˜Şy¨NXh^ZëKÉ®yYYÊZè>ˆz®[{y¨Nh.ZHŞXènXû.˜xÎûÈ8.XhŞx+KˆjÊ(	ÎzîŠêNi»şhÚ.(	Şh˜ŞKÉ®hš~ŠÎ8#Â÷çĞĞ¢Â÷6V7F–öããÂöF—cã°Ğ§ĞĞ Ğ¦7&VFU&ö÷B†Fö7VÖVçBævWDVÆVÖVçD'”–B‚w&ö÷Br’’ç&VæFW"ƒÅ&V7Bå7G&–7DÖöFSãÄóãÂõ&V7Bå7G&–7DÖöFSâ“°Ğ 
+  return <div className="name-dialog-overlay"><form className="ai-review-dialog" role="dialog" aria-modal="true" aria-labelledby="ai-export-title" onSubmit={(event) => { event.preventDefault(); onExport({ scopeType, includeMedia, goal }); }}><h2 id="ai-export-title">å¯¼å‡ºå®Œæ•´å®¡é˜…åŒ…</h2><p className="ai-review-subtitle">å¯¼å‡ºä¸ºç‹¬ç«‹çš„ .storyreview.zipï¼Œå†…å«å¯å•ç‹¬é˜…è¯»çš„ä½œå“è¯´æ˜ã€æç¤ºè¯ä¸å¯å¯¼å›çš„å»ºè®®æ ¼å¼ï¼›åŸå·¥ç¨‹è‡ªåŠ¨ä¿å­˜ä¸â€œå¯¼å‡ºå·¥ç¨‹åŒ…â€ä¿æŒç‹¬ç«‹ã€‚</p><strong className="ai-review-scope-label">å®¡é˜…èŒƒå›´</strong><div className="ai-review-scope-options"><label><input type="radio" name="ai-review-scope" value="chapter" checked={scopeType === 'chapter'} onChange={() => setScopeType('chapter')} />å½“å‰ç« èŠ‚</label><label><input type="radio" name="ai-review-scope" value="groups" disabled={!selectedGroupCount} checked={scopeType === 'groups'} onChange={() => setScopeType('groups')} />å·²é€‰æ®µè½ç»„ï¼ˆ{selectedGroupCount}ï¼‰</label><label><input type="radio" name="ai-review-scope" value="project" checked={scopeType === 'project'} onChange={() => setScopeType('project')} />å…¨å·¥ç¨‹</label></div><label>å¸Œæœ› AI æ”¹è¿›çš„å†…å®¹<textarea value={goal} maxLength={2000} placeholder="ä¾‹å¦‚ï¼šåŠ å¼ºå¾ªç¯æ„Ÿä¸æœ«å°¾åè½¬ï¼›ä¸ºç°æœ‰æ–‡å­—æ•ˆæœæå‡ºæ›´è´´åˆæƒ…ç»ªçš„å»ºè®®ï¼›åªä½¿ç”¨å·¥ç¨‹é‡Œå·²æœ‰çš„éŸ³é¢‘ç´ æã€‚" onChange={(event) => setGoal(event.target.value)} /></label><label className="ai-review-media"><input type="checkbox" checked={includeMedia} onChange={(event) => setIncludeMedia(event.target.checked)} />é™„å¸¦èŒƒå›´å†…å¼•ç”¨çš„åª’ä½“æ–‡ä»¶ï¼ˆå›¾ç‰‡/éŸ³é¢‘/è§†é¢‘ï¼Œæ–‡ä»¶å¯èƒ½è¾ƒå¤§ï¼‰</label><small>ä¸å‹¾é€‰æ—¶ä»…å¯¼å‡ºæ•…äº‹ã€æ¼”å‡ºå‚æ•°ä¸ç´ æå…ƒæ•°æ®ï¼›AI ä¸å¾—å£°ç§°çœ‹è¿‡æˆ–å¬è¿‡å®é™…åª’ä½“ã€‚</small><div className="name-dialog-actions"><button type="button" className="button quiet" disabled={busy} onClick={onCancel}>å–æ¶ˆ</button><button type="submit" className="button primary" disabled={busy || (scopeType === 'groups' && !selectedGroupCount)}>{busy ? 'æ­£åœ¨æ•´ç†å®¡é˜…åŒ…â€¦' : 'ç”Ÿæˆå¹¶ä¿å­˜'}</button></div></form></div>;
+}
+
+function AiReviewChangeCard({ change, checked, onToggle }: { change: any; checked: boolean; onToggle: (checked: boolean) => void }) {
+  const title = change.op === 'replaceCueText' ? `æ­£æ–‡æ”¹å†™ Â· ${change.cueId}` : change.op === 'updateCueSettings' ? `æ¼”å‡ºè®¾ç½® Â· ${change.cueId}` : `æ®µè½ç»„é…ä¹ Â· ${change.groupIds.join('ã€')}`;
+  const format = (value: any) => value === null ? 'æ— ' : typeof value === 'string' ? value : JSON.stringify(value, null, 2);
+  return <article className="ai-review-change"><label className="ai-review-change-title"><input type="checkbox" checked={checked} onChange={(event) => onToggle(event.target.checked)} /><strong>{title}</strong></label><div className="ai-review-diff"><section><small>å½“å‰</small><pre>{format(change.before)}</pre></section><span aria-hidden="true">â†’</span><section><small>å»ºè®®</small><pre>{format(change.after)}</pre></section></div><small className="ai-review-reason">åŸå› ï¼š{change.reason}</small></article>;
+}
+
+function NumericField({ value, min, max, step, onCommit, onClear }: { value: number | undefined; min?: number | string; max?: number | string; step?: number | string; onCommit: (value: number) => unknown; onClear?: () => unknown }) {
+  const [draft, setDraft] = useState(value === undefined ? '' : String(value));
+  const [invalid, setInvalid] = useState(false);
+  useEffect(() => { setDraft(value === undefined ? '' : String(value)); setInvalid(false); }, [value]);
+  const reset = () => setDraft(value === undefined ? '' : String(value));
+  const commit = () => {
+    const parsed = draft.trim() ? Number(draft) : NaN;
+    if (!draft.trim() && onClear) { onClear(); setInvalid(false); return; }
+    if (!Number.isFinite(parsed) || (min !== undefined && parsed < Number(min)) || (max !== undefined && parsed > Number(max))) {
+      reset(); setInvalid(true); return;
+    }
+    const result = parsed === value ? true : onCommit(parsed);
+    if (result === false) reset();
+    setInvalid(result === false);
+  };
+  return <input className="numeric-field" type="number" value={draft} min={min} max={max} step={step} aria-invalid={invalid} title={invalid ? 'æ•°å€¼æ— æ•ˆï¼Œå·²ä¿ç•™åŸè®¾ç½®ã€‚' : 'æŒ‰ Enter æˆ–ç¦»å¼€è¾“å…¥æ¡†åº”ç”¨'} onChange={(event) => { setDraft(event.target.value); setInvalid(false); }} onBlur={commit} onKeyDown={(event) => {
+    if (event.key === 'Enter') { event.preventDefault(); event.currentTarget.blur(); }
+    if (event.key === 'Escape') { event.preventDefault(); reset(); setInvalid(false); }
+  }} />;
+}
+
+function NameInputDialog({ dialog, onCancel }: { dialog: NameDialogState; onCancel: () => void }) {
+  const [value, setValue] = useState(dialog.initialValue);
+  const [error, setError] = useState('');
+  const inputRef = useRef<HTMLInputElement | null>(null);
+  useEffect(() => {
+    inputRef.current?.focus();
+    inputRef.current?.select();
+  }, []);
+
+  const submit = (event: React.FormEvent<HTMLFormElement>) => {
+    event.preventDefault();
+    setError('');
+    try {
+      const name = dialog.normalize(value);
+      const failure = dialog.onConfirm(name);
+      if (failure) {
+        setError(failure);
+        return;
+      }
+      onCancel();
+    } catch (cause) {
+      setError(cause instanceof Error ? cause.message : 'åç§°æ— æ•ˆï¼Œè¯·æ£€æŸ¥åé‡è¯•ã€‚');
+    }
+  };
+
+  return <div className="name-dialog-overlay"><form className="name-dialog" role="dialog" aria-modal="true" aria-labelledby="name-dialog-title" onSubmit={submit} onKeyDown={(event) => {
+    if (event.key === 'Escape') {
+      event.preventDefault();
+      event.stopPropagation();
+      onCancel();
+    }
+  }}>
+    <h2 id="name-dialog-title">{dialog.title}</h2>
+    <label htmlFor="name-dialog-input">{dialog.fieldLabel}</label>
+    <input ref={inputRef} id="name-dialog-input" value={value} maxLength={120} aria-invalid={!!error} aria-describedby={error ? 'name-dialog-error name-dialog-help' : 'name-dialog-help'} onChange={(event) => { setValue(event.target.value); setError(''); }} />
+    <small id="name-dialog-help">{dialog.description ?? 'æœ€å¤š 120 ä¸ªå­—ç¬¦ï¼Œé¦–å°¾ç©ºç™½ä¼šè‡ªåŠ¨å»é™¤ã€‚'}</small>
+    {error && <small id="name-dialog-error" className="name-dialog-error" role="alert">{error}</small>}
+    <div className="name-dialog-actions"><button type="button" className="button quiet" onClick={onCancel}>å–æ¶ˆ</button><button type="submit" className="button primary">{dialog.confirmLabel}</button></div>
+  </form></div>;
+}
+
+function formatSize(bytes: number) {
+  if (bytes < 1024) return `${bytes} B`;
+  if (bytes < 1024 * 1024) return `${(bytes / 1024).toFixed(0)} KB`;
+  return `${(bytes / 1024 / 1024).toFixed(1)} MB`;
+}
+
+/** å·¥ç¨‹åº“é‡Œæ˜¾ç¤ºçš„æœ€è¿‘ç¼–è¾‘æ—¶é—´ */
+function formatLibraryTime(value: string) {
+  if (!value) return 'æ—¶é—´æœªçŸ¥';
+  const date = new Date(value);
+  if (Number.isNaN(date.getTime())) return 'æ—¶é—´æœªçŸ¥';
+  return date.toLocaleString('zh-CN', { month: '2-digit', day: '2-digit', hour: '2-digit', minute: '2-digit' });
+}
+
+/** å¯¼å…¥çš„å·¥ç¨‹å’Œåº“é‡Œå·²æœ‰çš„æ˜¯åŒä¸€ä»½ä½œå“æ—¶ï¼Œè®©ç”¨æˆ·æ˜ç¡®é€‰æ‹©æ€ä¹ˆå¤„ç† */
+function ImportConflictDialog({ candidate, onResolve, onCancel }: { candidate: ImportCandidateState; onResolve: (choice: 'open' | 'copy' | 'replace' | 'cancel') => void; onCancel: () => void }) {
+  const [confirmReplace, setConfirmReplace] = useState(false);
+  return <div className="name-dialog-overlay"><section className="name-dialog" role="dialog" aria-modal="true" aria-label="å·¥ç¨‹å·²åœ¨å·¥ç¨‹åº“é‡Œ" onKeyDown={(event) => { if (event.key === 'Escape') onCancel(); }}>
+    <h2>å·¥ç¨‹åº“é‡Œå·²ç»æœ‰åŒä¸€ä»½ä½œå“</h2>
+    <p>â€œ{candidate.existing.name}â€å’Œâ€œ{candidate.name}â€ç”¨çš„æ˜¯åŒä¸€ä¸ªä½œå“æ ‡è¯†ã€‚ç°åœ¨é€‰ä»€ä¹ˆéƒ½ä¸ä¼šå½±å“ä½ æ­£åœ¨ç¼–è¾‘çš„å·¥ç¨‹ã€‚</p>
+    <div className="name-dialog-actions">
+      <button className="button quiet" autoFocus onClick={onCancel}>å–æ¶ˆ</button>
+      <button className="button quiet" onClick={() => onResolve('open')}>æ‰“å¼€å·²æœ‰çš„</button>
+      <button className="button quiet" onClick={() => onResolve('copy')}>å¯¼å…¥ä¸ºå‰¯æœ¬</button>
+      {confirmReplace
+        ? <button className="button primary" onClick={() => onResolve('replace')}>ç¡®è®¤æ›¿æ¢</button>
+        : <button className="button quiet" onClick={() => setConfirmReplace(true)}>æ›¿æ¢å·²æœ‰çš„â€¦</button>}
+    </div>
+    {confirmReplace && <p className="name-dialog-error" role="alert">æ›¿æ¢ä¼šè¦†ç›–â€œ{candidate.existing.name}â€ç°åœ¨çš„å†…å®¹ï¼ˆæ›¿æ¢å‰çš„å†…å®¹ä¼šç•™åœ¨å®ƒè‡ªå·±çš„æ¢å¤å†å²é‡Œï¼‰ã€‚å†ç‚¹ä¸€æ¬¡â€œç¡®è®¤æ›¿æ¢â€æ‰ä¼šæ‰§è¡Œã€‚</p>}
+  </section></div>;
+}
+
+createRoot(document.getElementById('root')!).render(<React.StrictMode><App /></React.StrictMode>);

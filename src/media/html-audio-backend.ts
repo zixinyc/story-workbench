@@ -1,2 +1,124 @@
-®•y€h~)›≠Ê•ñá∂*'°î±ÍÏdÖ»4
-i´Z.áî˙ËÇ∂¶∞¸≠Üâœ ÿhü}wß+a¢w±y•µ¡Ω…–Å—Â¡îÅÏÅ5ïë•Ö	Öç≠ïπê∞Å5ïë•ÖŸïπ—Ã∞Å5ïë•Ö!Öπë±îÅÙÅô…Ω¥Äú∏Ωµïë•ÑµÕïÕÕ•Ω∏úÏ()ï·¡Ω…–Å—Â¡îÅ’ë•ΩÕÕï–ÄÙÅÏÅ•êËÅÕ—…•πúÏÅµ•µîËÅÕ—…•πúÏÅâ±ΩàËÅ	±ΩàÅÙÏ()ï·¡Ω…–Åô’πç—•Ω∏Åç…ïÖ—ï!—µ±’ë•Ω	Öç≠ïπê°ùï—ÕÕï–ËÄ°•êËÅÕ—…•πú§ÄÙ¯Å’ë•ΩÕÕï–ÅÅ’πëïô•πïê§ËÅ5ïë•Ö	Öç≠ïπêÅÏ(ÄÅ…ï—’…∏ÅÏ(ÄÄÄÅÖÕÂπåÅ¡…ï¡Ö…î°ÖÕÕï—%êËÅÕ—…•πú∞ÅÕ•ùπÖ∞ËÅâΩ…—M•ùπÖ∞∞ÅïŸïπ—ÃËÅ5ïë•ÖŸïπ—Ã§ËÅA…Ωµ•ÕîÒ5ïë•Ö!Öπë±î¯ÅÏ(ÄÄÄÄÄÅçΩπÕ–ÅÖÕÕï–ÄÙÅùï—ÕÕï–°ÖÕÕï—%ê§Ï(ÄÄÄÄÄÅ•òÄ†ÖÖÕÕï–ÅÒÄÖÖÕÕï–πµ•µîπÕ—Ö…—Õ]•—††ùÖ’ë•ººú§§Å—°…Ω‹Åπï‹Å……Ω»†üö&˚í‚7ñ"√ñ>øöJ∑öR˚ûj¶~œ¶äGû“ÉövCéú§Ï(ÄÄÄÄÄÅ•òÄ°Õ•ùπÖ∞πÖâΩ…—ïê§Å—°…Ω‹Åπï‹Å=5·çï¡—•Ω∏†ü¶~œ¶äGññíñﬁÀñ>[ö⁄#éú∞ÄùâΩ…—……Ω»ú§Ï((ÄÄÄÄÄÅçΩπÕ–Å—Â¡ïë	±ΩàÄÙÅÖÕÕï–πâ±Ωàπ—Â¡îÄÙÙÙÅÖÕÕï–πµ•µî(ÄÄÄÄÄÄÄÄ¸ÅÖÕÕï–πâ±Ωà(ÄÄÄÄÄÄÄÄËÅπï‹Å	±Ωà°mÖ›Ö•–ÅÖÕÕï–πâ±ΩàπÖ……ÖÂ	’ôôï»†•t∞ÅÏÅ—Â¡îËÅÖÕÕï–πµ•µîÅÙ§Ï(ÄÄÄÄÄÅ•òÄ°Õ•ùπÖ∞πÖâΩ…—ïê§Å—°…Ω‹Åπï‹Å=5·çï¡—•Ω∏†ü¶~œ¶äGññíñﬁÀñ>[ö⁄#éú∞ÄùâΩ…—……Ω»ú§Ï(ÄÄÄÄÄÅçΩπÕ–Å’…∞ÄÙÅUI0πç…ïÖ—ï=â©ïç—UI0°—Â¡ïë	±Ωà§Ï(ÄÄÄÄÄÅçΩπÕ–ÅÖ’ë•ºÄÙÅπï‹Å’ë•º†§Ï(ÄÄÄÄÄÅÖ’ë•ºπ¡…ï±ΩÖêÄÙÄùÖ’—ºúÏ(ÄÄÄÄÄÅ±ï–Åë•Õ¡ΩÕïêÄÙÅôÖ±ÕîÏ(ÄÄÄÄÄÅ±ï–Å¡…ï¡Ö…ïêÄÙÅôÖ±ÕîÏ(ÄÄÄÄÄÅ±ï–Å—•µï»ËÅπ’µâï»ÅÅπ’±∞ÄÙÅπ’±∞Ï(ÄÄÄÄÄÅ±ï–Å…ïÕΩ±ŸïIïÖë‰ËÄ††§ÄÙ¯ÅŸΩ•ê§ÅÅπ’±∞ÄÙÅπ’±∞Ï(ÄÄÄÄÄÅ±ï–Å…ï©ïç—IïÖë‰ËÄ†°ï……Ω»ËÅ……Ω»§ÄÙ¯ÅŸΩ•ê§ÅÅπ’±∞ÄÙÅπ’±∞Ï((ÄÄÄÄÄÅçΩπÕ–Åç±ïÖπ’¿ÄÙÄ†§ÄÙ¯ÅÏ(ÄÄÄÄÄÄÄÅ•òÄ°—•µï»ÄÑÙÙÅπ’±∞§Å›•πëΩ‹πç±ïÖ…Q•µïΩ’–°—•µï»§Ï(ÄÄÄÄÄÄÄÅ—•µï»ÄÙÅπ’±∞Ï(ÄÄÄÄÄÄÄÅÕ•ùπÖ∞π…ïµΩŸïŸïπ—1•Õ—ïπï»†ùÖâΩ…–ú∞ÅçÖπçï∞§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸïŸïπ—1•Õ—ïπï»†ù±ΩÖëïëµï—ÖëÖ—Ñú∞ÅΩπIïÖë‰§Ï(ÄÄÄÄÄÅÙÏ(ÄÄÄÄÄÅçΩπÕ–ÅΩπIïÖë‰ÄÙÄ†§ÄÙ¯ÅÏ(ÄÄÄÄÄÄÄÅ¡…ï¡Ö…ïêÄÙÅ—…’îÏ(ÄÄÄÄÄÄÄÅç±ïÖπ’¿†§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸïŸïπ—1•Õ—ïπï»†ùï……Ω»ú∞ÅΩπ1ΩÖë……Ω»§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπÖëëŸïπ—1•Õ—ïπï»†ùï……Ω»ú∞ÅΩπA±ÖÂâÖç≠……Ω»§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπÖëëŸïπ—1•Õ—ïπï»†ùïπëïêú∞ÅΩππëïê§Ï(ÄÄÄÄÄÄÄÅ…ïÕΩ±ŸïIïÖë‰¸∏†§Ï(ÄÄÄÄÄÅÙÏ(ÄÄÄÄÄÅçΩπÕ–ÅΩπ1ΩÖë……Ω»ÄÙÄ†§ÄÙ¯ÅÏ(ÄÄÄÄÄÄÄÅçΩπÕ–Åï……Ω»ÄÙÅπï‹Å……Ω»°Ö’ë•ºπï……Ω»¸πµïÕÕÖùîÅÒÅÉ¶~œ¶äGäpëÌÖÕÕï—%ë˜äwö^ÉöŒW¢æÔñ>[é	Ä§Ï(ÄÄÄÄÄÄÄÅïŸïπ—Ãπï……Ω»°ï……Ω»§Ï(ÄÄÄÄÄÄÄÅ•òÄ†Ö¡…ï¡Ö…ïê§ÅÏ(ÄÄÄÄÄÄÄÄÄÅç±ïÖπ’¿†§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸïŸïπ—1•Õ—ïπï»†ùï……Ω»ú∞ÅΩπ1ΩÖë……Ω»§Ï(ÄÄÄÄÄÄÄÄÄÅ…ï©ïç—IïÖë‰¸∏°ï……Ω»§Ï(ÄÄÄÄÄÄÄÅÙ(ÄÄÄÄÄÅÙÏ(ÄÄÄÄÄÅçΩπÕ–ÅçÖπçï∞ÄÙÄ†§ÄÙ¯ÅÏ(ÄÄÄÄÄÄÄÅë•Õ¡ΩÕïêÄÙÅ—…’îÏ(ÄÄÄÄÄÄÄÅç±ïÖπ’¿†§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸïŸïπ—1•Õ—ïπï»†ùï……Ω»ú∞ÅΩπ1ΩÖë……Ω»§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπ¡Ö’Õî†§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸï——…•â’—î†ùÕ…åú§Ï(ÄÄÄÄÄÄÄÅÖ’ë•ºπ±ΩÖê†§Ï(ÄÄÄÄÄÄÄÅUI0π…ïŸΩ≠ï=â©ïç—UI0°’…∞§Ï(ÄÄÄÄÄÄÄÅ…ï©ïç—IïÖë‰¸∏°πï‹Å=5·çï¡—•Ω∏†ü¶~œ¶äGññíñﬁÀñ>[ö⁄#éú∞ÄùâΩ…—……Ω»ú§§Ï(ÄÄÄÄÄÅÙÏ((ÄÄÄÄÄÅÖ’ë•ºπÖëëŸïπ—1•Õ—ïπï»†ù±ΩÖëïëµï—ÖëÖ—Ñú∞ÅΩπIïÖë‰∞ÅÏÅΩπçîËÅ—…’îÅÙ§Ï(ÄÄÄÄÄÅÖ’ë•ºπÖëëŸïπ—1•Õ—ïπï»†ùï……Ω»ú∞ÅΩπ1ΩÖë……Ω»§Ï(ÄÄÄÄÄÅÕ•ùπÖ∞πÖëëŸïπ—1•Õ—ïπï»†ùÖâΩ…–ú∞ÅçÖπçï∞∞ÅÏÅΩπçîËÅ—…’îÅÙ§Ï(ÄÄÄÄÄÅÖ’ë•ºπÕ…åÄÙÅ’…∞Ï((ÄÄÄÄÄÅ—…‰ÅÏ(ÄÄÄÄÄÄÄÅÖ›Ö•–Åπï‹ÅA…Ωµ•ÕîÒŸΩ•ê¯†°…ïÕΩ±Ÿî∞Å…ï©ïç–§ÄÙ¯ÅÏ(ÄÄÄÄÄÄÄÄÄÅ…ïÕΩ±ŸïIïÖë‰ÄÙÅ…ïÕΩ±ŸîÏ(ÄÄÄÄÄÄÄÄÄÅ…ï©ïç—IïÖë‰ÄÙÅ…ï©ïç–Ï(ÄÄÄÄÄÄÄÄÄÅ—•µï»ÄÙÅ›•πëΩ‹πÕï—Q•µïΩ’–††§ÄÙ¯Å…ï©ïç–°πï‹Å……Ω»°Éû∂'ñ˙¶~œ¶äGäpëÌÖÕÕï—%ë˜äw¢æÔñ>[¢⁄ö^€é	Ä§§∞Ä»¿¿¿¿§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ±ΩÖê†§Ï(ÄÄÄÄÄÄÄÅÙ§Ï(ÄÄÄÄÄÅÙÅçÖ—ç†Ä°ï……Ω»§ÅÏ(ÄÄÄÄÄÄÄÅ•òÄ†Öë•Õ¡ΩÕïê§ÅÏ(ÄÄÄÄÄÄÄÄÄÅë•Õ¡ΩÕïêÄÙÅ—…’îÏ(ÄÄÄÄÄÄÄÄÄÅç±ïÖπ’¿†§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸïŸïπ—1•Õ—ïπï»†ùï……Ω»ú∞ÅΩπ1ΩÖë……Ω»§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ¡Ö’Õî†§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸï——…•â’—î†ùÕ…åú§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ±ΩÖê†§Ï(ÄÄÄÄÄÄÄÄÄÅUI0π…ïŸΩ≠ï=â©ïç—UI0°’…∞§Ï(ÄÄÄÄÄÄÄÅÙ(ÄÄÄÄÄÄÄÅ—°…Ω‹Åï……Ω»Ï(ÄÄÄÄÄÅÙ((ÄÄÄÄÄÅ…ï—’…∏ÅÏ(ÄÄÄÄÄÄÄÅ¡±Ö‰°ÕΩ’πë%ê§ÅÏ(ÄÄÄÄÄÄÄÄÄÅ•òÄ°ë•Õ¡ΩÕïê§Å—°…Ω‹Åπï‹Å……Ω»†ü¶~œ¶äG¢÷öÍCñﬁÀ¶+öR˚éú§Ï(ÄÄÄÄÄÄÄÄÄÅçΩπÕ–Å•êÄÙÅÕΩ’πë%êÄ¸¸ÄƒÏ(ÄÄÄÄÄÄÄÄÄÅçΩπÕ–Å…ï≈’ïÕ–ÄÙÅÖ’ë•ºπ¡±Ö‰†§Ï(ÄÄÄÄÄÄÄÄÄÅŸΩ•êÅ…ï≈’ïÕ–πçÖ—ç††°ï……Ω»§ÄÙ¯ÅïŸïπ—Ãπï……Ω»°ï……Ω»§§Ï(ÄÄÄÄÄÄÄÄÄÅ…ï—’…∏Å•êÏ(ÄÄÄÄÄÄÄÅÙ∞(ÄÄÄÄÄÄÄÅ¡Ö’Õî°ÕΩ’πë%ê§ÅÏ(ÄÄÄÄÄÄÄÄÄÅ•òÄ°ÕΩ’πë%êÄÑÙÙÄƒ§Å…ï—’…∏Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ¡Ö’Õî†§Ï(ÄÄÄÄÄÄÄÅÙ∞(ÄÄÄÄÄÄÄÅÕ—Ω¿°ÕΩ’πë%ê§ÅÏ(ÄÄÄÄÄÄÄÄÄÅ•òÄ°ÕΩ’πë%êÄÑÙÙÅ’πëïô•πïêÄòòÅÕΩ’πë%êÄÑÙÙÄƒ§Å…ï—’…∏Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ¡Ö’Õî†§Ï(ÄÄÄÄÄÄÄÄÄÅ—…‰ÅÏÅÖ’ë•ºπç’……ïπ—Q•µîÄÙÄ¿ÏÅÙÅçÖ—ç†ÅÌÙ(ÄÄÄÄÄÄÄÅÙ∞(ÄÄÄÄÄÄÄÅÕïï≠5Ã°µ•±±•ÕïçΩπëÃ∞ÅÕΩ’πë%ê§ÅÏ(ÄÄÄÄÄÄÄÄÄÅ•òÄ°ÕΩ’πë%êÄÑÙÙÄƒ§Å…ï—’…∏Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπç’……ïπ—Q•µîÄÙÅµ•±±•ÕïçΩπëÃÄºÄƒ¿¿¿Ï(ÄÄÄÄÄÄÄÅÙ∞(ÄÄÄÄÄÄÄÅÕï—YΩ±’µî°ŸΩ±’µî§ÅÏÅÖ’ë•ºπŸΩ±’µîÄÙÅŸΩ±’µîÏÅÙ∞(ÄÄÄÄÄÄÄÅÕï—1ΩΩ¿°±ΩΩ¿§ÅÏÅÖ’ë•ºπ±ΩΩ¿ÄÙÅ±ΩΩ¿ÏÅÙ∞(ÄÄÄÄÄÄÄÅë•Õ¡ΩÕî†§ÅÏ(ÄÄÄÄÄÄÄÄÄÅ•òÄ°ë•Õ¡ΩÕïê§Å…ï—’…∏Ï(ÄÄÄÄÄÄÄÄÄÅë•Õ¡ΩÕïêÄÙÅ—…’îÏ(ÄÄÄÄÄÄÄÄÄÅç±ïÖπ’¿†§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ¡Ö’Õî†§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸïŸïπ—1•Õ—ïπï»†ùïπëïêú∞ÅΩππëïê§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸïŸïπ—1•Õ—ïπï»†ùï……Ω»ú∞ÅΩπA±ÖÂâÖç≠……Ω»§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ…ïµΩŸï——…•â’—î†ùÕ…åú§Ï(ÄÄÄÄÄÄÄÄÄÅÖ’ë•ºπ±ΩÖê†§Ï(ÄÄÄÄÄÄÄÄÄÅUI0π…ïŸΩ≠ï=â©ïç—UI0°’…∞§Ï(ÄÄÄÄÄÄÄÅÙ∞(ÄÄÄÄÄÅÙÏ((ÄÄÄÄÄÅô’πç—•Ω∏ÅΩππëïê†§ÅÏÅïŸïπ—Ãπïπëïê†§ÏÅÙ(ÄÄÄÄÄÅô’πç—•Ω∏ÅΩπA±ÖÂâÖç≠……Ω»†§ÅÏÅïŸïπ—Ãπï……Ω»°πï‹Å……Ω»°Ö’ë•ºπï……Ω»¸πµïÕÕÖùîÅÒÅÉ¶~œ¶äGäpëÌÖÕÕï—%ë˜äwöJ∑öR˚ñí«¢“óé	Ä§§ÏÅÙ(ÄÄÄÅÙ∞(ÄÅÙÏ)Ù
+import type { MediaBackend, MediaEvents, MediaHandle } from './media-session';
+
+export type AudioAsset = { id: string; mime: string; blob: Blob };
+
+export function createHtmlAudioBackend(getAsset: (id: string) => AudioAsset | undefined): MediaBackend {
+  return {
+    async prepare(assetId: string, signal: AbortSignal, events: MediaEvents): Promise<MediaHandle> {
+      const asset = getAsset(assetId);
+      if (!asset || !asset.mime.startsWith('audio/')) throw new Error('Êâæ‰∏çÂà∞ÂèØÊí≠ÊîæÁöÑÈü≥È¢ëÁ¥†Êùê„ÄÇ');
+      if (signal.aborted) throw new DOMException('Èü≥È¢ëÂáÜÂ§áÂ∑≤ÂèñÊ∂à„ÄÇ', 'AbortError');
+
+      const typedBlob = asset.blob.type === asset.mime
+        ? asset.blob
+        : new Blob([await asset.blob.arrayBuffer()], { type: asset.mime });
+      if (signal.aborted) throw new DOMException('Èü≥È¢ëÂáÜÂ§áÂ∑≤ÂèñÊ∂à„ÄÇ', 'AbortError');
+      const url = URL.createObjectURL(typedBlob);
+      const audio = new Audio();
+      audio.preload = 'auto';
+      let disposed = false;
+      let prepared = false;
+      let timer: number | null = null;
+      let resolveReady: (() => void) | null = null;
+      let rejectReady: ((error: Error) => void) | null = null;
+
+      const cleanup = () => {
+        if (timer !== null) window.clearTimeout(timer);
+        timer = null;
+        signal.removeEventListener('abort', cancel);
+        audio.removeEventListener('loadedmetadata', onReady);
+      };
+      const onReady = () => {
+        prepared = true;
+        cleanup();
+        audio.removeEventListener('error', onLoadError);
+        audio.addEventListener('error', onPlaybackError);
+        audio.addEventListener('ended', onEnded);
+        resolveReady?.();
+      };
+      const onLoadError = () => {
+        const error = new Error(audio.error?.message || `Èü≥È¢ë‚Äú${assetId}‚ÄùÊó†Ê≥ïËØªÂèñ„ÄÇ`);
+        events.error(error);
+        if (!prepared) {
+          cleanup();
+          audio.removeEventListener('error', onLoadError);
+          rejectReady?.(error);
+        }
+      };
+      const cancel = () => {
+        disposed = true;
+        cleanup();
+        audio.removeEventListener('error', onLoadError);
+        audio.pause();
+        audio.removeAttribute('src');
+        audio.load();
+        URL.revokeObjectURL(url);
+        rejectReady?.(new DOMException('Èü≥È¢ëÂáÜÂ§áÂ∑≤ÂèñÊ∂à„ÄÇ', 'AbortError'));
+      };
+
+      audio.addEventListener('loadedmetadata', onReady, { once: true });
+      audio.addEventListener('error', onLoadError);
+      signal.addEventListener('abort', cancel, { once: true });
+      audio.src = url;
+
+      try {
+        await new Promise<void>((resolve, reject) => {
+          resolveReady = resolve;
+          rejectReady = reject;
+          timer = window.setTimeout(() => reject(new Error(`Á≠âÂæÖÈü≥È¢ë‚Äú${assetId}‚ÄùËØªÂèñË∂ÖÊó∂„ÄÇ`)), 20000);
+          audio.load();
+        });
+      } catch (error) {
+        if (!disposed) {
+          disposed = true;
+          cleanup();
+          audio.removeEventListener('error', onLoadError);
+          audio.pause();
+          audio.removeAttribute('src');
+          audio.load();
+          URL.revokeObjectURL(url);
+        }
+        throw error;
+      }
+
+      return {
+        play(soundId) {
+          if (disposed) throw new Error('Èü≥È¢ëËµÑÊ∫êÂ∑≤ÈáäÊîæ„ÄÇ');
+          const id = soundId ?? 1;
+          const request = audio.play();
+          void request.catch((error) => events.error(error));
+          return id;
+        },
+        pause(soundId) {
+          if (soundId !== 1) return;
+          audio.pause();
+        },
+        stop(soundId) {
+          if (soundId !== undefined && soundId !== 1) return;
+          audio.pause();
+          try { audio.currentTime = 0; } catch {}
+        },
+        seekMs(milliseconds, soundId) {
+          if (soundId !== 1) return;
+          audio.currentTime = milliseconds / 1000;
+        },
+        setVolume(volume) { audio.volume = volume; },
+        setLoop(loop) { audio.loop = loop; },
+        dispose() {
+          if (disposed) return;
+          disposed = true;
+          cleanup();
+          audio.pause();
+          audio.removeEventListener('ended', onEnded);
+          audio.removeEventListener('error', onPlaybackError);
+          audio.removeAttribute('src');
+          audio.load();
+          URL.revokeObjectURL(url);
+        },
+      };
+
+      function onEnded() { events.ended(); }
+      function onPlaybackError() { events.error(new Error(audio.error?.message || `Èü≥È¢ë‚Äú${assetId}‚ÄùÊí≠ÊîæÂ§±Ë¥•„ÄÇ`)); }
+    },
+  };
+}

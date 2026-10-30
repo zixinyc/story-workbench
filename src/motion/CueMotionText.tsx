@@ -1,3 +1,117 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐI•…Ð°ìÕÍ•™™•Ð°ÕÍ•5•µ¼°ÕÍ•I•˜°ÕÍ•MÑ…Ñ”ô™É½´€É•…Ðœì)¥µÁ½ÉÐì•Ù…±Õ…Ñ•Q•áÑ™™•Ð°É…Á¡•µ•Ìô™É½´€œ¸½•™™•ÑÌ¹µ©Ìœì()ÑåÁ”Õ”€ôì¥èÍÑÉ¥¹œìÑ•áÐèÍÑÉ¥¹œì¡¥±‘É•¸üèÉÉ…äñìÑåÁ”èÍÑÉ¥¹œìÑ•áÐüèÍÑÉ¥¹œì½±½ÈüèÍÑÉ¥¹œôøìÍ•ÑÑ¥¹Ìè…¹äôì()™Õ¹Ñ¥½¸½±½ÉM±½ÑÌ¡Õ”èÕ”¤ì(€½¹ÍÐ½±½ÉÌèÍÑÉ¥¹mt€ômtì(€™½È€¡½¹ÍÐ¡¥±½˜Õ”¹¡¥±‘É•¸€üümt¤ì(€€€½±½ÉÌ¹ÁÕÍ  ¸¸¹É…Á¡•µ•Ì¡¡¥±¹Ñ•áÐ€üü€œœ¤¹µ…À  ¤€ôø¡¥±¹½±½È€üü€œœ¤¤ì(€ô(€½¹ÍÐ½Õ¹Ð€ôÉ…Á¡•µ•Ì¡Õ”¹Ñ•áÐ¤¹±•¹Ñ ì(€Ý¡¥±”€¡½±½ÉÌ¹±•¹Ñ €ð½Õ¹Ð¤½±½ÉÌ¹ÁÕÍ  œœ¤ì(€É•ÑÕÉ¸½±½ÉÌ¹Í±¥” À°½Õ¹Ð¤ì)ô()™Õ¹Ñ¥½¸½±½É½È¡½±½ÉÌèÍÑÉ¥¹mt°¥¹‘•àè¹Õµ‰•È°™…±±‰…¬èÍÑÉ¥¹œ¤ì(€É•ÑÕÉ¸½±½ÉÍm¥¹‘•átñð™…±±‰…¬ì)ô()™Õ¹Ñ¥½¸9•Ý±¥¹•Q•áÐ¡ìÙ…±Õ”°½±½ÉÌ°™…±±‰…¬ôèìÙ…±Õ”èÍÑÉ¥¹œì½±½ÉÌèÍÑÉ¥¹mtì™…±±‰…¬èÍÑÉ¥¹œô¤ì(€É•ÑÕÉ¸€ðùíÉ…Á¡•µ•Ì¡Ù…±Õ”¤¹µ…À ¡¡…È°¥¹‘•à¤€ôø€½ymqÉq¹t¬¼¹Ñ•ÍÐ¡¡…È¤€ü€ñ‰È­•äõí¥¹‘•áô€¼ø€è€ñÍÁ…¸­•äõí¥¹‘•áôÍÑå±”õíì½±½Èè½±½É½È¡½±½ÉÌ°¥¹‘•à°™…±±‰…¬¤õôùí¡…Éôð½ÍÁ…¸ø¥ôð¼øì)ô()™Õ¹Ñ¥½¸M±½ÑÌ¡ì¡…É…Ñ•ÉÌ°½±½ÉÌ°™…±±‰…¬°½Á…¥Ñä€ô€Äôèì¡…É…Ñ•ÉÌè…¹åmtì½±½ÉÌèÍÑÉ¥¹mtì™…±±‰…¬èÍÑÉ¥¹œì½Á…¥Ñäüè¹Õµ‰•Èô¤ì(€É•ÑÕÉ¸€ñÍÁ…¸±…ÍÍ9…µ”ô‰•™™•ÐµÍ±½ÑÌˆÍÑå±”õíì½Á…¥Ñäõôø(€€€í¡…É…Ñ•ÉÌ¹µ…À ¡¥Ñ•´°¥¹‘•à¤€ôø€ñÍÁ…¸­•äõí€‘í¥¹‘•áô´‘í¥Ñ•´¹Ñ•áÑõô±…ÍÍ9…µ”ô‰•™™•Ðµ±åÁ µÍ±½ÐˆÍÑå±”õíì½±½Èè½±½É½È¡½±½ÉÌ°¥¹‘•à°™…±±‰…¬¤õôø(€€€€€€ñÍÁ…¸±…ÍÍ9…µ”õí¥Ñ•´¹Ù¥Í¥‰±”€ü€œœ€è€•™™•Ðµ±åÁ µ¡¥‘‘•¸ôùí¥Ñ•´¹Ñ•áÐ€ôôô€œ€œ€ü€qÔÀÁ„Àœ€è¥Ñ•´¹Ñ•áÑôð½ÍÁ…¸ø(€€€€€í¥Ñ•´¹±¥Ñ €˜˜€ñÍÁ…¸±…ÍÍ9…µ”ô‰•™™•Ðµ±¥Ñ ˆ…É¥„µ¡¥‘‘•¸ô‰ÑÉÕ”ˆùí¥Ñ•´¹±¥Ñ¡ôð½ÍÁ…¸ùô(€€€€ð½ÍÁ…¸ø¥ô(€€ð½ÍÁ…¸øì)ô()™Õ¹Ñ¥½¸QÉ…¹Í±…Ñ¥½¹1¥¹•Ì¡ìÕ”°™É…µ”ôèìÕ”èÕ”ì™É…µ”è…¹äô¤ì(€½¹ÍÐ¡½ÍÐ€ôÕÍ•I•˜ñ!Q51MÁ…¹±•µ•¹Ðð¹Õ±°ø¡¹Õ±°¤ì(€½¹ÍÐÍ½ÕÉ•I•™Ì€ôÕÍ•I•˜ñÉÉ…äñ!Q51MÁ…¹±•µ•¹Ðð¹Õ±°øø¡mt¤ì(€½¹ÍÐÑ…É•ÑI•™Ì€ôÕÍ•I•˜ñÉÉ…äñ!Q51MÁ…¹±•µ•¹Ðð¹Õ±°øø¡mt¤ì(€½¹ÍÐmÁ…Ñ¡Ì°Í•ÑA…Ñ¡Ít€ôÕÍ•MÑ…Ñ”ñÉÉ…äñìèÍÑÉ¥¹œì­•äèÍÑÉ¥¹œôøø¡mt¤ì(€½¹ÍÐÑÉ…¹Í±…Ñ¥½¸€ô™É…µ”¹ÑÉ…¹Í±…Ñ¥½¸ì(€½¹ÍÐÍ½ÕÉ”€ôÑÉ…¹Í±…Ñ¥½¸ü¹Í½ÕÉ•]½É‘Ìü¹±•¹Ñ €üÑÉ…¹Í±…Ñ¥½¸¹Í½ÕÉ•]½É‘Ì€èÕ”¹Ñ•áÐ¹ÍÁ±¥Ð ½qÌ¬¼¤¹™¥±Ñ•È¡	½½±•…¸¤ì(€½¹ÍÐÑ…É•Ð€ôÑÉ…¹Í±…Ñ¥½¸ü¹Ñ…É•Ñ]½É‘Ì€üümtì(€½¹ÍÐ±…å½ÕÑ-•ä€ô€‘íÍ½ÕÉ”¹©½¥¸ ðœ¥ôèè‘íÑ…É•Ð¹©½¥¸ ðœ¥ôèè‘í)M=8¹ÍÑÉ¥¹¥™ä¡ÑÉ…¹Í±…Ñ¥½¸ü¹µ…ÁÁ¥¹Ì€üümt¥õ€ì((€ÕÍ•™™•Ð  ¤€ôøì(€€€½¹ÍÐÉ½½Ð€ô¡½ÍÐ¹ÕÉÉ•¹Ðì(€€€¥˜€ …É½½Ð¤É•ÑÕÉ¸ì(€€€½¹ÍÐ‰½Õ¹‘Ì€ôÉ½½Ð¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤ì(€€€½¹ÍÐÁ½¥¹ÑÌ€ôÑÉ…¹Í±…Ñ¥½¸ü¹µ…ÁÁ¥¹Ìü¹™±…Ñ5…À ¡µ…ÁÁ¥¹œè…¹ä¤€ôøµ…ÁÁ¥¹œ¹Í½ÕÉ•%¹‘•á•Ì¹µ…À ¡Í½ÕÉ•%¹‘•àè¹Õµ‰•È¤€ôøì(€€€€€½¹ÍÐ™É½´€ôÍ½ÕÉ•I•™Ì¹ÕÉÉ•¹ÑmÍ½ÕÉ•%¹‘•átü¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤ì(€€€€€½¹ÍÐÑ¼€ôÑ…É•ÑI•™Ì¹ÕÉÉ•¹Ñmµ…ÁÁ¥¹œ¹Ñ…É•Ñ%¹‘•átü¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤ì(€€€€€¥˜€ …™É½´ñð€…Ñ¼¤É•ÑÕÉ¸¹Õ±°ì(€€€€€½¹ÍÐàÄ€ô™É½´¹±•™Ð€¬™É½´¹Ý¥‘Ñ €¼€È€´‰½Õ¹‘Ì¹±•™Ðì(€€€€€½¹ÍÐäÄ€ô™É½´¹‰½ÑÑ½´€´‰½Õ¹‘Ì¹Ñ½À€¬€Èì(€€€€€½¹ÍÐàÈ€ôÑ¼¹±•™Ð€¬Ñ¼¹Ý¥‘Ñ €¼€È€´‰½Õ¹‘Ì¹±•™Ðì(€€€€€½¹ÍÐäÈ€ôÑ¼¹Ñ½À€´‰½Õ¹‘Ì¹Ñ½À€´€Ìì(€€€€€½¹ÍÐ±…¹•d€ôäÄ€¬5…Ñ ¹µ…à ÄÀ°€¡äÈ€´äÄ¤€¨€À¸ÔÔ¤ì(€€€€€É•ÑÕÉ¸ìè4€‘íàÅô€‘íäÅô€‘íàÅô€‘í±…¹•eô°€‘íàÉô€‘í±…¹•eô°€‘íàÉô€‘íäÉõ€°­•äè€‘íÍ½ÕÉ•%¹‘•áô´‘íµ…ÁÁ¥¹œ¹Ñ…É•Ñ%¹‘•áõ€ôì(€€€ô¤¹™¥±Ñ•È¡	½½±•…¸¤€üümt¤ì(€€€Í•ÑA…Ñ¡Ì¡Á½¥¹ÑÌ…ÌÉÉ…äñìèÍÑÉ¥¹œì­•äèÍÑÉ¥¹œôø¤ì(€ô°m±…å½ÕÑ-•ä°Õ”¹¥‘t¤ì((€É•ÑÕÉ¸€ñÍÁ…¸É•˜õí¡½ÍÑô±…ÍÍ9…µ”ô‰ÑÉ…¹Í±…Ñ¥½¸µ•™™•Ðˆø(€€€€ñÍÙœ±…ÍÍ9…µ”ô‰ÑÉ…¹Í±…Ñ¥½¸µÝ¥É•Ìˆ…É¥„µ¡¥‘‘•¸ô‰ÑÉÕ”ˆø(€€€€€íÁ…Ñ¡Ì¹µ…À ¡Á…Ñ ¤€ôø€ñÁ…Ñ ­•äõíÁ…Ñ ¹­•åôõíÁ…Ñ ¹‘ôÁ…Ñ¡1•¹Ñ ôˆÄˆÍÑÉ½­•…Í¡…ÉÉ…äôˆÄˆÍÑÉ½­•…Í¡½™™Í•ÐõìÄ€´€¡ÑÉ…¹Í±…Ñ¥½¸ü¹±¥¹•AÉ½É•ÍÌ€üü€À¥ô€¼ø¥ô(€€€€ð½ÍÙœø(€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰ÑÉ…¹Í±…Ñ¥½¸µÉ½ÜÍ½ÕÉ”µÉ½ÜˆùíÍ½ÕÉ”¹µ…À ¡Ý½ÉèÍÑÉ¥¹œ°¥¹‘•àè¹Õµ‰•È¤€ôø€ñÍÁ…¸­•äõí•¸´‘í¥¹‘•áõôÉ•˜õì¡¹½‘”¤€ôøìÍ½ÕÉ•I•™Ì¹ÕÉÉ•¹Ñm¥¹‘•át€ô¹½‘”ìõôùíÝ½É‘ôð½ÍÁ…¸ø¥ôð½ÍÁ…¸ø(€€€€ñÍÁ…¸±…ÍÍ9…µ”ô‰ÑÉ…¹Í±…Ñ¥½¸µÉ½ÜÑ…É•ÐµÉ½ÜˆùíÑ…É•Ð¹µ…À ¡Ý½ÉèÍÑÉ¥¹œ°¥¹‘•àè¹Õµ‰•È¤€ôø€ñÍÁ…¸­•äõíé ´‘í¥¹‘•áõôÉ•˜õì¡¹½‘”¤€ôøìÑ…É•ÑI•™Ì¹ÕÉÉ•¹Ñm¥¹‘•át€ô¹½‘”ìõôùíÝ½É‘ôð½ÍÁ…¸ø¥ôð½ÍÁ…¸ø(€€ð½ÍÁ…¸øì)ô()•áÁ½ÉÐ™Õ¹Ñ¥½¸Õ•5½Ñ¥½¹Q•áÐ¡ìÕ”°•±…ÁÍ•‘5Ì°ÍÑ…Ñ¥AÉ•Ù¥•Ü€ô™…±Í”ôèìÕ”èÕ”ì•±…ÁÍ•‘5Ìè¹Õµ‰•ÈìÍÑ…Ñ¥AÉ•Ù¥•Üüè‰½½±•…¸ô¤ì(€½¹ÍÐÍ•ÑÑ¥¹Ì€ôÕ”¹Í•ÑÑ¥¹Ìì(€½¹ÍÐ½±½ÉÌ€ôÕÍ•5•µ¼  ¤€ôø½±½ÉM±½ÑÌ¡Õ”¤°mÕ•t¤ì(€½¹ÍÐ™É…µ”è…¹ä€ôÕÍ•5•µ¼  ¤€ôø•Ù…±Õ…Ñ•Q•áÑ™™•Ð¡Í•ÑÑ¥¹Ì°Õ”¹Ñ•áÐ°•±…ÁÍ•‘5Ì¤°mÍ•ÑÑ¥¹Ì°Õ”¹Ñ•áÐ°•±…ÁÍ•‘5Ít¤ì(€¥˜€¡™É…µ”¹µ½‘”€ôôô€Ù•ÉÑ¥…±I•Ù•…°œ¤É•ÑÕÉ¸€ñÍÁ…¸±…ÍÍ9…µ”ô‰Õ”µÑ•áÐµ½¹Ñ•¹ÐÙ•ÉÑ¥…°µÉ•Ù•…°ˆÍÑå±”õíì™½¹ÑM¥é”èµ¥¸ Å•´°€‘ìÐÀ€¼™É…µ”¹É½ÝÌ€¼€Ä¸ÉõÅ¤°€‘ìÜÔ€¼™É…µ”¹½±Õµ¹Ì¹±•¹Ñ €¼€Ä¸ÑõÅ¤¥€õôø(€€€í™É…µ”¹½±Õµ¹Ì¹µ…À ¡½±Õµ¸è…¹ä°¥¹‘•àè¹Õµ‰•È¤€ôø€ñÍÁ…¸±…ÍÍ9…µ”ô‰Ù•ÉÑ¥…°µÉ•Ù•…°µ½±Õµ¸ˆ­•äõí¥¹‘•áôÍÑå±”õíì½Á…¥ÑäèÍÑ…Ñ¥AÉ•Ù¥•Ü€ü€Ä€è½±Õµ¸¹½Á…¥Ñäõôùí½±Õµ¸¹¡…É…Ñ•ÉÌ¹µ…À ¡¥Ñ•´è…¹ä¤€ôø€ñÍÁ…¸­•äõí¥Ñ•´¹¥¹‘•áô±…ÍÍ9…µ”õì…ÍÑ…Ñ¥AÉ•Ù¥•Ü€˜˜€…¥Ñ•´¹Ù¥Í¥‰±”€ü€•™™•Ðµ±åÁ µ¡¥‘‘•¸œ€èÕ¹‘•™¥¹•‘ôÍÑå±”õíì½±½Èè½±½É½È¡½±½ÉÌ°¥Ñ•´¹¥¹‘•à°Í•ÑÑ¥¹Ì¹½±½È¤õôùí¥Ñ•´¹Ñ•áÐ€ôôô€œ€œ€ü€qÔÀÁ„Àœ€è¥Ñ•´¹Ñ•áÑôð½ÍÁ…¸ø¥ôð½ÍÁ…¸ø¥ô(€€ð½ÍÁ…¸øì(€¥˜€¡ÍÑ…Ñ¥AÉ•Ù¥•Üñð™É…µ”¹µ½‘”€ôôô€Á±…¥¸œ¤ì(€€€É•ÑÕÉ¸€ñÍÁ…¸±…ÍÍ9…µ”ô‰Õ”µÑ•áÐµ½¹Ñ•¹ÐˆÍÑå±”õíÍÑ…Ñ¥AÉ•Ù¥•Ü€üÕ¹‘•™¥¹•€èì½Á…¥Ñäè™É…µ”¹½ÀV¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅæ6—G’Âf–ÇFW#¢g&ÖRæ&ÇW%‚ò&ÇW"‚G¶g&ÖRæ&ÇW%‡×‚–¢VæFVf–æVBÂG&ç6f÷&Ó¢g&ÖRçG&ç6f÷&ÒÇÂVæFVf–æVB×ÓãÄæWvÆ–æUFW‡BfÇVS×¶7VRçFW‡GÒ6öÆ÷'3×¶6öÆ÷'7ÒfÆÆ&6³×·6WGF–æw2æ6öÆ÷'ÒóãÂ÷7ãã°¢Ð¢–b†g&ÖRæÖöFRÓÓÒvv†÷7D6öçfW&vRr’°¢6öç7B6†F÷w2Òg&ÖRæv†÷7DÖ÷VçBâò³ÂãRÂ%ÒæfÆDÖ‚‡F–ÂÂ–æFW‚’Óâ°¢6öç7Böfg6WBÒg&ÖRæv†÷7Döfg6WDVÒ¢F–Ã°¢6öç7BÇ†Òg&ÖRæv†÷7DÖ÷VçB¢³ãƒ‚Âã3RÂãUÕ¶–æFW…Ó°¢&WGW&â¶G²Ööfg6WGÖVÒÓãFVÒ&v&ƒCBÃ##Ã#3ÂG¶Ç†Ò–ÂG¶öfg6WGÖVÒãFVÒ&v&ƒƒ"ÃÃ#CÂG¶Ç†Ò–Ó°¢Ò’æ¦ö–â‚rÂr’¢væöæRs°¢&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçBv†÷7BÖ6öçfW&vR"7G–ÆS×·²÷6—G“¢g&ÖRæ÷6—G’ÂFW‡E6†F÷s¢6†F÷w2×ÓãÄæWvÆ–æUFW‡BfÇVS×¶7VRçFW‡GÒ6öÆ÷'3×¶6öÆ÷'7ÒfÆÆ&6³×·6WGF–æw2æ6öÆ÷'ÒóãÂ÷7ãã°¢Ð¢–b†g&ÖRæÖöFRÓÓÒvFV6öFRr’&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçB"7G–ÆS×·²÷6—G“¢g&ÖRæ÷6—G’×ÓãÅ6Æ÷G26†&7FW'3×¶g&ÖRæ6†&7FW'7Ò6öÆ÷'3×¶6öÆ÷'7ÒfÆÆ&6³×·6WGF–æw2æ6öÆ÷'ÒóãÂ÷7ãã°¢–b†g&ÖRæÖöFRÓÓÒv6†&7FW'2r’&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçB#ãÅ6Æ÷G26†&7FW'3×¶g&ÖRæ6†&7FW'7Ò6öÆ÷'3×¶6öÆ÷'7ÒfÆÆ&6³×·6WGF–æw2æ6öÆ÷'ÒóãÂ÷7ãã°¢–b†g&ÖRæÖöFRÓÓÒwv÷&EVæFW&Æ–æRr’&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçBv÷&BÖVffV7BÖ6öçFVçB"7G–ÆS×·²÷6—G“¢g&ÖRæ÷6—G’×Óç²†g&ÖRçv÷&G2óòµÒ’æÖ‚‡v÷&C¢ç’Âv÷&D–æFWƒ¢çVÖ&W"’ÓâÇ7â6Æ74æÖSÒ'v÷&BÖVffV7B"¶W“×¶G·v÷&D–æFW‡ÒÒG·v÷&BçFW‡GÖÓà¢·v÷&Bæ6†&7FW'2æÖ‚†—FVÓ¢ç’Â6†$–æFWƒ¢çVÖ&W"’ÓâÇ7â¶W“×¶G·v÷&D–æFW‡ÒÒG¶6†$–æFW‡ÖÒ6Æ74æÖS×¶—FVÒçf—6–&ÆRòrr¢vVffV7BÖvÇ—‚Ö†–FFVâwÒ7G–ÆS×·²6öÆ÷#¢6öÆ÷$f÷"†6öÆ÷'2Âv÷&Bç7F'D–æFW‚²6†$–æFW‚Â6WGF–æw2æ6öÆ÷"’×Óç¶—FVÒçFW‡BÓÓÒrròuÇSr¢—FVÒçFW‡GÓÂ÷7ãâ—Ð¢·v÷&Bç76TgFW"bbÇ7ãâÂ÷7ãçÐ¢·v÷&BçVæFW&Æ–æRâbbÆ’7G–ÆS×·²v–GFƒ¢G·v÷&BçVæFW&Æ–æR¢ÒVÂ†V–v‡C¢G¶g&ÖRç&ÖWFW'2çVæFW&Æ–æUF†–6¶æW77×†×ÒóçÐ¢Â÷7ãâ—ÓÂ÷7ãã°¢–b†g&ÖRæÖöFRÓÓÒv¶W—v÷&D6†—r’°¢&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçB¶W—v÷&BÖVffV7BÖ6öçFVçB"7G–ÆS×·²÷6—G“¢g&ÖRæ÷6—G’×Óç¶g&ÖRæ6†&7FW'2æÖ‚†—FVÓ¢ç’Â–æFWƒ¢çVÖ&W"’Óâ°¢6öç7B¶W—v÷&BÒg&ÖRæ¶W—v÷&G2æf–æB‚†VçG'“¢ç’’ÓâVçG'’æ6ö×ÆWFRbb–æFW‚ãÒVçG'’ç7F'Bbb–æFW‚ÂVçG'’æVæB“°¢6öç7B6WGF–æw57G–ÆRÒ¶W—v÷&Bò²&6¶w&÷VæC¢g&ÖRç&ÖWFW'2æ6†—6öÆ÷"Â6öÆ÷#¢6öÆ÷$f÷"†6öÆ÷'2Â–æFW‚Âg&ÖRç&ÖWFW'2æ6†—FW‡D6öÆ÷"’ÂFF–ætÆVgC¢–æFW‚ÓÓÒ¶W—v÷&Bç7F'BòG¶g&ÖRç&ÖWFW'2æ6†—FF–æw×†¢VæFVf–æVBÂFF–æu&–v‡C¢–æFW‚ÓÓÒ¶W—v÷&BæVæBÒòG¶g&ÖRç&ÖWFW'2æ6†—FF–æw×†¢VæFVf–æVBÒ¢²6öÆ÷#¢6öÆ÷$f÷"†6öÆ÷'2Â–æFW‚Â6WGF–æw2æ6öÆ÷"’Ó°¢&WGW&âÅ&V7Bäg&vÖVçB¶W“×¶G¶–æFW‡ÒÒG¶—FVÒçFW‡GÖÓãÇ7â6Æ74æÖS×¶¶W—v÷&Bòv¶W—v÷&BÖ6†—ÖvÇ—‚r¢—FVÒçf—6–&ÆRòrr¢vVffV7BÖvÇ—‚Ö†–FFVâwÒ7G–ÆS×·²ââç6WGF–æw57G–ÆRÂ÷6—G“¢—FVÒæ÷6—G’×Óç¶—FVÒçFW‡GÓÂ÷7ãç¶¶W—v÷&Bbb–æFW‚ÓÓÒ¶W—v÷&BæVæBÒbbg&ÖRç&ÖWFW'2ç6†÷t–G2bbÇ7W6Æ74æÖSÒ&¶W—v÷&BÖFVÖòÖ–B#îzK®hHò³²g&ÖRæ¶W—v÷&G2æ–æFW„öb†¶W—v÷&B—ÓÂ÷7WçÓÂõ&V7Bäg&vÖVçCã°¢Ò—ÓÂ÷7ãã°¢Ð¢–b†g&ÖRæÖöFRÓÓÒwG&ç6ÆF–öåv—&W2r’&WGW&âÅG&ç6ÆF–öäÆ–æW27VS×¶7VWÒg&ÖS×¶g&ÖWÒóã°¢–b†g&ÖRæÖöFRÓÓÒw&Ww&—FRr’°¢6öç7B6†'2Òw&†VÖW2†g&ÖRçf—6–&ÆUFW‡B“°¢&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçB&Ww&—FRÖVffV7B#ç¶6†'2æÖ‚†6†"Â–æFW‚’ÓâÇ7â¶W“×¶G¶–æFW‡ÒÒG¶6†'ÖÒ7G–ÆS×·²6öÆ÷#¢6öÆ÷$f÷"†6öÆ÷'2Â–æFW‚Â6WGF–æw2æ6öÆ÷"’×Óç¶6†'ÓÂ÷7ãâ—×¶g&ÖRæ6&WBbbÆ’6Æ74æÖSÒ'&Ww&—FRÖ6&WB"7G–ÆS×·²÷6—G“¢g&ÖRæ6&WEf—6–&ÆRò¢×ÒóçÓÂ÷7ãã°¢Ð¢–b†g&ÖRæÖöFRÓÓÒw7G&–¶U&Ww&—FRr’°¢6öç7BöÆD6†'2Òw&†VÖW2†g&ÖRæöÆEFW‡B“°¢6öç7BæWt6†'2Òw&†VÖW2†g&ÖRææWuFW‡B’ç6Æ–6RƒÂg&ÖRææWt6÷VçB“°¢&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçB7G&–¶RÖVffV7B#à¢Ç7â6Æ74æÖSÒ'7G&–¶RÖöÆB"7G–ÆS×·²÷6—G“¢g&ÖRæöÆD÷6—G’×Óç¶öÆD6†'2æÖ‚†6†#¢7G&–ærÂ–æFWƒ¢çVÖ&W"’ÓâÇ7â¶W“×¶G¶–æFW‡ÒÒG¶6†'ÖÒ7G–ÆS×·²6öÆ÷#¢6öÆ÷$f÷"†6öÆ÷'2Â–æFW‚Â6WGF–æw2æ6öÆ÷"’×Óç¶6†'ÓÂ÷7ãâ—×¶g&ÖRç7G&–¶Uf—6–&ÆRbbÆ’7G–ÆS×·²v–GFƒ¢G¶g&ÖRç7G&–¶U&öw&W72¢ÒVÂ&6¶w&÷VæC¢g&ÖRç7G&–¶T6öÆ÷"×ÒóçÓÂ÷7ãà¢¶g&ÖRææWuf—6–&ÆRbbÇ7â6Æ74æÖSÒ'7G&–¶RÖæWr#ç¶æWt6†'2æÖ‚†6†#¢7G&–ærÂ–æFWƒ¢çVÖ&W"’ÓâÇ7â¶W“×¶G¶–æFW‡ÒÒG¶6†'ÖÒ7G–ÆS×·²6öÆ÷#¢6öÆ÷$f÷"†6öÆ÷'2Â–æFW‚Â6WGF–æw2æ6öÆ÷"’×Óç¶6†'ÓÂ÷7ãâ—ÓÂ÷7ãçÐ¢Â÷7ãã°¢Ð¢–b†g&ÖRæÖöFRÓÓÒvWf÷&FRr’&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçB#ãÅ6Æ÷G26†&7FW'3×¶g&ÖRæ6†&7FW'7Ò6öÆ÷'3×¶6öÆ÷'7ÒfÆÆ&6³×·6WGF–æw2æ6öÆ÷'ÒóãÂ÷7ãã°¢&WGW&âÇ7â6Æ74æÖSÒ&7VR×FW‡BÖ6öçFVçB#ãÄæWvÆ–æUFW‡BfÇVS×¶7VRçFW‡GÒ6öÆ÷'3×¶6öÆ÷'7ÒfÆÆ&6³×·6WGF–æw2æ6öÆ÷'ÒóãÂ÷7ãã°§Ð 
+import React, { useEffect, useMemo, useRef, useState } from 'react';
+import { evaluateTextEffect, graphemes } from './effects.mjs';
+
+type Cue = { id: string; text: string; children?: Array<{ type: string; text?: string; color?: string }>; settings: any };
+
+function colorSlots(cue: Cue) {
+  const colors: string[] = [];
+  for (const child of cue.children ?? []) {
+    colors.push(...graphemes(child.text ?? '').map(() => child.color ?? ''));
+  }
+  const count = graphemes(cue.text).length;
+  while (colors.length < count) colors.push('');
+  return colors.slice(0, count);
+}
+
+function colorFor(colors: string[], index: number, fallback: string) {
+  return colors[index] || fallback;
+}
+
+function NewlineText({ value, colors, fallback }: { value: string; colors: string[]; fallback: string }) {
+  return <>{graphemes(value).map((char, index) => /^[\r\n]+$/.test(char) ? <br key={index} /> : <span key={index} style={{ color: colorFor(colors, index, fallback) }}>{char}</span>)}</>;
+}
+
+function Slots({ characters, colors, fallback, opacity = 1 }: { characters: any[]; colors: string[]; fallback: string; opacity?: number }) {
+  return <span className="effect-slots" style={{ opacity }}>
+    {characters.map((item, index) => <span key={`${index}-${item.text}`} className="effect-glyph-slot" style={{ color: colorFor(colors, index, fallback) }}>
+      <span className={item.visible ? '' : 'effect-glyph-hidden'}>{item.text === ' ' ? '\u00a0' : item.text}</span>
+      {item.glitch && <span className="effect-glitch" aria-hidden="true">{item.glitch}</span>}
+    </span>)}
+  </span>;
+}
+
+function TranslationLines({ cue, frame }: { cue: Cue; frame: any }) {
+  const host = useRef<HTMLSpanElement | null>(null);
+  const sourceRefs = useRef<Array<HTMLSpanElement | null>>([]);
+  const targetRefs = useRef<Array<HTMLSpanElement | null>>([]);
+  const [paths, setPaths] = useState<Array<{ d: string; key: string }>>([]);
+  const translation = frame.translation;
+  const source = translation?.sourceWords?.length ? translation.sourceWords : cue.text.split(/\s+/).filter(Boolean);
+  const target = translation?.targetWords ?? [];
+  const layoutKey = `${source.join('|')}::${target.join('|')}::${JSON.stringify(translation?.mappings ?? [])}`;
+
+  useEffect(() => {
+    const root = host.current;
+    if (!root) return;
+    const bounds = root.getBoundingClientRect();
+    const points = translation?.mappings?.flatMap((mapping: any) => mapping.sourceIndexes.map((sourceIndex: number) => {
+      const from = sourceRefs.current[sourceIndex]?.getBoundingClientRect();
+      const to = targetRefs.current[mapping.targetIndex]?.getBoundingClientRect();
+      if (!from || !to) return null;
+      const x1 = from.left + from.width / 2 - bounds.left;
+      const y1 = from.bottom - bounds.top + 2;
+      const x2 = to.left + to.width / 2 - bounds.left;
+      const y2 = to.top - bounds.top - 3;
+      const laneY = y1 + Math.max(10, (y2 - y1) * 0.55);
+      return { d: `M ${x1} ${y1} C ${x1} ${laneY}, ${x2} ${laneY}, ${x2} ${y2}`, key: `${sourceIndex}-${mapping.targetIndex}` };
+    }).filter(Boolean) ?? []);
+    setPaths(points as Array<{ d: string; key: string }>);
+  }, [layoutKey, cue.id]);
+
+  return <span ref={host} className="translation-effect">
+    <svg className="translation-wires" aria-hidden="true">
+      {paths.map((path) => <path key={path.key} d={path.d} pathLength="1" strokeDasharray="1" strokeDashoffset={1 - (translation?.lineProgress ?? 0)} />)}
+    </svg>
+    <span className="translation-row source-row">{source.map((word: string, index: number) => <span key={`en-${index}`} ref={(node) => { sourceRefs.current[index] = node; }}>{word}</span>)}</span>
+    <span className="translation-row target-row">{target.map((word: string, index: number) => <span key={`zh-${index}`} ref={(node) => { targetRefs.current[index] = node; }}>{word}</span>)}</span>
+  </span>;
+}
+
+export function CueMotionText({ cue, elapsedMs, staticPreview = false }: { cue: Cue; elapsedMs: number; staticPreview?: boolean }) {
+  const settings = cue.settings;
+  const colors = useMemo(() => colorSlots(cue), [cue]);
+  const frame: any = useMemo(() => evaluateTextEffect(settings, cue.text, elapsedMs), [settings, cue.text, elapsedMs]);
+  if (frame.mode === 'verticalReveal') return <span className="cue-text-content vertical-reveal" style={{ fontSize: `min(1em, ${40 / frame.rows / 1.2}cqi, ${75 / frame.columns.length / 1.4}cqi)` }}>
+    {frame.columns.map((column: any, index: number) => <span className="vertical-reveal-column" key={index} style={{ opacity: staticPreview ? 1 : column.opacity }}>{column.characters.map((item: any) => <span key={item.index} className={!staticPreview && !item.visible ? 'effect-glyph-hidden' : undefined} style={{ color: colorFor(colors, item.index, settings.color) }}>{item.text === ' ' ? '\u00a0' : item.text}</span>)}</span>)}
+  </span>;
+  if (staticPreview || frame.mode === 'plain') {
+    return <span className="cue-text-content" style={staticPreview ? undefined : { opacity: frame.opacity, filter: frame.blurPx ? `blur(${frame.blurPx}px)` : undefined, transform: frame.transform || undefined }}><NewlineText value={cue.text} colors={colors} fallback={settings.color} /></span>;
+  }
+  if (frame.mode === 'ghostConverge') {
+    const shadows = frame.ghostAmount > 0 ? [1, 1.5, 2].flatMap((tail, index) => {
+      const offset = frame.ghostOffsetEm * tail;
+      const alpha = frame.ghostAmount * [0.88, 0.35, 0.15][index];
+      return [`${-offset}em -0.04em 0 rgba(44,220,230,${alpha})`, `${offset}em 0.04em 0 rgba(182,100,240,${alpha})`];
+    }).join(',') : 'none';
+    return <span className="cue-text-content ghost-converge" style={{ opacity: frame.opacity, textShadow: shadows }}><NewlineText value={cue.text} colors={colors} fallback={settings.color} /></span>;
+  }
+  if (frame.mode === 'decode') return <span className="cue-text-content" style={{ opacity: frame.opacity }}><Slots characters={frame.characters} colors={colors} fallback={settings.color} /></span>;
+  if (frame.mode === 'characters') return <span className="cue-text-content"><Slots characters={frame.characters} colors={colors} fallback={settings.color} /></span>;
+  if (frame.mode === 'wordUnderline') return <span className="cue-text-content word-effect-content" style={{ opacity: frame.opacity }}>{(frame.words ?? []).map((word: any, wordIndex: number) => <span className="word-effect" key={`${wordIndex}-${word.text}`}>
+    {word.characters.map((item: any, charIndex: number) => <span key={`${wordIndex}-${charIndex}`} className={item.visible ? '' : 'effect-glyph-hidden'} style={{ color: colorFor(colors, word.startIndex + charIndex, settings.color) }}>{item.text === ' ' ? '\u00a0' : item.text}</span>)}
+    {word.spaceAfter && <span> </span>}
+    {word.underline > 0 && <i style={{ width: `${word.underline * 100}%`, height: `${frame.parameters.underlineThickness}px` }} />}
+  </span>)}</span>;
+  if (frame.mode === 'keywordChip') {
+    return <span className="cue-text-content keyword-effect-content" style={{ opacity: frame.opacity }}>{frame.characters.map((item: any, index: number) => {
+      const keyword = frame.keywords.find((entry: any) => entry.complete && index >= entry.start && index < entry.end);
+      const settingsStyle = keyword ? { background: frame.parameters.chipColor, color: colorFor(colors, index, frame.parameters.chipTextColor), paddingLeft: index === keyword.start ? `${frame.parameters.chipPadding}px` : undefined, paddingRight: index === keyword.end - 1 ? `${frame.parameters.chipPadding}px` : undefined } : { color: colorFor(colors, index, settings.color) };
+      return <React.Fragment key={`${index}-${item.text}`}><span className={keyword ? 'keyword-chip-glyph' : item.visible ? '' : 'effect-glyph-hidden'} style={{ ...settingsStyle, opacity: item.opacity }}>{item.text}</span>{keyword && index === keyword.end - 1 && frame.parameters.showIds && <sup className="keyword-demo-id">ç¤ºæ„ {101 + frame.keywords.indexOf(keyword)}</sup>}</React.Fragment>;
+    })}</span>;
+  }
+  if (frame.mode === 'translationWires') return <TranslationLines cue={cue} frame={frame} />;
+  if (frame.mode === 'rewrite') {
+    const chars = graphemes(frame.visibleText);
+    return <span className="cue-text-content rewrite-effect">{chars.map((char, index) => <span key={`${index}-${char}`} style={{ color: colorFor(colors, index, settings.color) }}>{char}</span>)}{frame.caret && <i className="rewrite-caret" style={{ opacity: frame.caretVisible ? 1 : 0 }} />}</span>;
+  }
+  if (frame.mode === 'strikeRewrite') {
+    const oldChars = graphemes(frame.oldText);
+    const newChars = graphemes(frame.newText).slice(0, frame.newCount);
+    return <span className="cue-text-content strike-effect">
+      <span className="strike-old" style={{ opacity: frame.oldOpacity }}>{oldChars.map((char: string, index: number) => <span key={`${index}-${char}`} style={{ color: colorFor(colors, index, settings.color) }}>{char}</span>)}{frame.strikeVisible && <i style={{ width: `${frame.strikeProgress * 100}%`, background: frame.strikeColor }} />}</span>
+      {frame.newVisible && <span className="strike-new">{newChars.map((char: string, index: number) => <span key={`${index}-${char}`} style={{ color: colorFor(colors, index, settings.color) }}>{char}</span>)}</span>}
+    </span>;
+  }
+  if (frame.mode === 'evaporate') return <span className="cue-text-content"><Slots characters={frame.characters} colors={colors} fallback={settings.color} /></span>;
+  return <span className="cue-text-content"><NewlineText value={cue.text} colors={colors} fallback={settings.color} /></span>;
+}

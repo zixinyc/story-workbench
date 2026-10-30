@@ -1,115 +1,168 @@
-®•y€h~)›≠Ê•ñá∂*'°î±ÍÏdÖ»4
-i´Z.áî˙ËÇ∂¶∞¸≠Üâœ ÿhü}wß+a¢w±yï·¡Ω…–ÅçΩπÕ–Å5=Q%=9}AIMQLÄÙÅl(ÄÅÏÅ•êËÄùπΩπîú∞ÅπÖµîËÄüö^Éñ*£öV ú∞ÅÕ’µµÖ…‰ËÄü¶vgööb˚ûíÎñ∫3öV”öZñ∂\úÅÙ∞(ÄÅÏÅ•êËÄù—Â¡•πúú∞ÅπÖµîËÄüöfª¶kö&Oñ∂\ú∞ÅÕ’µµÖ…‰ËÄüö2'ñnÎñ∫k¶ñÍõ¶Cñ∂_öb˚û:¿úÅÙ∞(ÄÅÏÅ•êËÄùâ±’…M°Ö…¿ú∞ÅπÖµîËÄüö¢áûŒ+ñ>cö‚öf¿ú∞ÅÕ’µµÖ…‰ËÄüöZñ∂_íÓ;ö~Sûõ¶Cö∂óñ>cö‚öñhúÅÙ∞(ÄÅÏÅ•êËÄù…•Õîú∞ÅπÖµîËÄüí‚+ûûÔöﬁáñîú∞ÅÕ’µµÖ…‰ËÄü¢ˆÔñ˙ªí‚+ûûÔñÊ€öﬁáñîúÅÙ∞(ÄÅÏÅ•êËÄùÕ°Ö≠îú∞ÅπÖµîËÄü¢ˆÔñ˙ª¶rñ*†ú∞ÅÕ’µµÖ…‰ËÄüû~∑ö^€éñ¬?ñÊñÍõ¶rñ*†úÅÙ∞(ÄÅÏÅ•êËÄùëïçΩëîú∞ÅπÖµîËÄù¿ƒÉ¢ûèûÇöb˚ñ∂\ú∞ÅÕ’µµÖ…‰ËÄüñ>´ör'öZ√ñ∂_û~∑öjíÊ«ûÇæÚ3¶j?ñB;ñnÎñ∫húÅÙ∞(ÄÅÏÅ•êËÄù›Ω…ëUπëï…±•πîú∞ÅπÖµîËÄù¿»É¶C¢æ7ñÎñ∂_í‚;ö&ØûÍ¸ú∞ÅÕ’µµÖ…‰ËÄüö2'¢æ7ûÓñÎû:√æÚ3í‚/ñ"KûÍˇ¢ﬁ¶j?ñˆOñ&7¢æ7ö:£¢˛lúÅÙ∞(ÄÅÏÅ•êËÄù≠ïÂ›Ω…ë°•¿ú∞ÅπÖµîËÄù¿ÃÉñœ¶Rª¢æ7ñ>7¢&ÀñÚÎ¢¬ú∞ÅÕ’µµÖ…‰ËÄüñœ¶Rª¢æ7ñ∫3öV”ñÎû:√ñB;ñ"ö6ãñ>7¢&Àñv\úÅÙ∞(ÄÅÏÅ•êËÄù—…ÖπÕ±Ö—•Ωπ]•…ïÃú∞ÅπÖµîËÄù¿–Éñ>3¢æ∑¢æ7ñv_¢˛{ûÍ¸ú∞ÅÕ’µµÖ…‰ËÄüí‚∑öZ¢æ7ñv_í‚;¢.«öZ¢æ7ûÓíÊ/¶^”ûR¶Vˇ¢˛{ûÍ¸úÅÙ∞(ÄÅÏÅ•êËÄù…ï›…•—îú∞ÅπÖµîËÄù¿‘Éû*Á¢∆Ø¶öÇÛ¶7ñdú∞ÅÕ’µµÖ…‰ËÄüñ#ñg¢6'û¢ˇéñs¶Üˇé¶öÇÛæÚ3ñ7¶7ñdúÅÙ∞(ÄÅÏÅ•êËÄùÕ—…•≠ïIï›…•—îú∞ÅπÖµîËÄù¿ÿÉñ"Kö:'ñ7öRÁñdú∞ÅÕ’µµÖ…‰ËÄüö^üñ>óñ#ñ>ø¢æÔæÚ3ñ7ñ"KûÍˇéöR€ö.ãñÊ€ñgöZ√ñ>îúÅÙ∞(ÄÅÏÅ•êËÄùïŸÖ¡Ω…Ö—îú∞ÅπÖµîËÄù¿‹Éñ:íˆ7¢J„ñ>Gí‚;örØñ>ó¶öÇú∞ÅÕ’µµÖ…‰ËÄüö2'ñnÎñ∫kûû7ñ∂Cñ:íˆ7ö⁄#ñí«æÚ3í˛wö*ìñ>óörñB;¶öÇúÅÙ∞(ÄÅÏÅ•êËÄùŸï…—•çÖ±IïŸïÖ∞ú∞ÅπÖµîËÄùI@µ»ÉûÆ[ö:K¶K¢˛lú∞ÅÕ’µµÖ…‰ËÄüñnÎñ∫kñ∂_öû˜íÓ;í‚+ñBGí‚/öb˚ñ∂_æÚ3ö2'ñ"_¶b¢æÔñB;¶ñËúÅÙ∞(ÄÅÏÅ•êËÄùù°ΩÕ—ΩπŸï…ùîú∞ÅπÖµîËÄùI@µƒÉ¶Rg¢&Àö∫/ñˆ«öR€öVlú∞ÅÕ’µµÖ…‰ËÄüö∂èöZí˛wö2ñ>ø¢æÔæÚ3¶vKû“Øö∫/ñˆ«ñ"ûöÔñB;ñn{ñ"√ö‚öf√öZñ∂\úÅÙ∞)tÏ()ï·¡Ω…–ÅçΩπÕ–ÅMUAA=IQ}5=Q%=9LÄÙÅπï‹ÅMï–°5=Q%=9}AIMQLπµÖ¿†°•—ï¥§ÄÙ¯Å•—ï¥π•ê§§Ï()çΩπÕ–Åπ’µâï…I’±îÄÙÄ°µ•∏∞ÅµÖ‡∞Å•π—ïùï»ÄÙÅôÖ±Õî§ÄÙ¯Ä°ÏÅ—Â¡îËÄùπ’µâï»ú∞Åµ•∏∞ÅµÖ‡∞Ä∏∏∏°•π—ïùï»Ä¸ÅÏÅ•π—ïùï»ËÅ—…’îÅÙÄËÅÌÙ§ÅÙ§Ï)çΩπÕ–Å—ï·—I’±îÄÙÄ°µÖ·1ïπù—†ÄÙÄ»¿¿¿¿§ÄÙ¯Ä°ÏÅ—Â¡îËÄùÕ—…•πúú∞ÅµÖ·1ïπù—†ÅÙ§Ï)çΩπÕ–ÅâΩΩ±I’±îÄÙÅÏÅ—Â¡îËÄùâΩΩ±ïÖ∏úÅÙÏ)çΩπÕ–ÅçΩ±Ω…I’±îÄÙÅÏÅ—Â¡îËÄùçΩ±Ω»úÅÙÏ)ï·¡Ω…–ÅçΩπÕ–Å5=Q%=9}AI5QI}IU1LÄÙÅÏ(ÄÅπΩπîËÅÌÙ∞(ÄÅ—Â¡•πúËÅÏÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åç°Ö…M—ï¡5ÃËÅπ’µâï…I’±î†ƒ∞Ä‘¿¿¿§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§ÅÙ∞(ÄÅâ±’…M°Ö…¿ËÅÏÅÕ—…ïπù—†ËÅπ’µâï…I’±î†¿∞Äƒ§∞Åç±ïÖ…5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅ…•ÕîËÅÏÅÕ—…ïπù—†ËÅπ’µâï…I’±î†¿∞Äƒ§∞Å…•ÕïA‡ËÅπ’µâï…I’±î†¿∞Äƒ¿¿¿§∞ÅôÖëï5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅÕ°Ö≠îËÅÏÅÕ—…ïπù—†ËÅπ’µâï…I’±î†¿∞Äƒ§∞Åë’…Ö—•Ωπ5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅëïçΩëîËÅÏÅÕïïêËÅπ’µâï…I’±î†¥»ƒ–‹–‡Ãÿ–‡∞Ä»ƒ–‹–‡Ãÿ–‹∞Å—…’î§∞ÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åç°Ö…M—ï¡5ÃËÅπ’µâï…I’±î†ƒ∞Ä‘¿¿¿§∞ÅÕï——±ï5ÃËÅπ’µâï…I’±î†ƒ∞Ä‘¿¿¿§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åï·•—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅ›Ω…ëUπëï…±•πîËÅÏÅ›Ω…ëÕQï·–ËÅ—ï·—I’±î†§∞ÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Å›Ω…ë’…Ö—•Ωπ5ÃËÅπ’µâï…I’±î†ƒ∞ÄÃ¿¿¿¿§∞Åç°Ö…M—ï¡5ÃËÅπ’µâï…I’±î†ƒ∞Ä‘¿¿¿§∞Å’πëï…±•πïQ°•ç≠πïÕÃËÅπ’µâï…I’±î†ƒ∞Ä»¿§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åï·•—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅ≠ïÂ›Ω…ë°•¿ËÅÏÅ≠ïÂ›Ω…ëÕQï·–ËÅ—ï·—I’±î†§∞ÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åç°Ö…M—ï¡5ÃËÅπ’µâï…I’±î†ƒ∞Ä‘¿¿¿§∞Åç°•¡AÖëë•πúËÅπ’µâï…I’±î†¿∞Äÿ¿§∞Åç°•¡Ω±Ω»ËÅçΩ±Ω…I’±î∞Åç°•¡Qï·—Ω±Ω»ËÅçΩ±Ω…I’±î∞ÅÕ°Ω›%ëÃËÅâΩΩ±I’±î∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åï·•—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅ—…ÖπÕ±Ö—•Ωπ]•…ïÃËÅÏÅïπù±•Õ°Qï·–ËÅ—ï·—I’±î†§∞Åç°•πïÕïQï·–ËÅ—ï·—I’±î†§∞ÅµÖ¡¡•πùQï·–ËÅ—ï·—I’±î†§∞Å±•πï…Ω›5ÃËÅπ’µâï…I’±î†ƒ∞ÄÃ¿¿¿¿§∞ÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åï·•—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅ…ï›…•—îËÅÏÅë…Öô—Qï·–ËÅ—ï·—I’±î†§∞Å…ï›…•—ïQï·–ËÅ—ï·—I’±î†§∞ÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Å¡Ö’Õï5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿§∞Åëï±ï—ïΩ’π–ËÅπ’µâï…I’±î†¿∞Äƒ¿¿¿¿∞Å—…’î§∞Å—Â¡ï¡ÃËÅπ’µâï…I’±î†¿∏ƒ∞Äƒ¿¿§∞ÅâÖç≠Õ¡Öçï¡ÃËÅπ’µâï…I’±î†¿∏ƒ∞Äƒ¿¿§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§ÅÙ∞(ÄÅÕ—…•≠ïIï›…•—îËÅÏÅΩ±ëQï·–ËÅ—ï·—I’±î†§∞Åπï›Qï·–ËÅ—ï·—I’±î†§∞ÅÕ—…•≠ï—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞ÅÕ—…•≠ï…Ö›5ÃËÅπ’µâï…I’±î†ƒ∞Äƒ¿¿¿¿§∞ÅÕ—…•≠ï!Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿§∞ÅçΩ±±Ö¡Õï5ÃËÅπ’µâï…I’±î†ƒ∞Äƒ¿¿¿¿§∞Å—Â¡ï¡ÃËÅπ’µâï…I’±î†¿∏ƒ∞Äƒ¿¿§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞ÅÕ—…•≠ïΩ±Ω»ËÅçΩ±Ω…I’±îÅÙ∞(ÄÅïŸÖ¡Ω…Ö—îËÅÏÅÕïïêËÅπ’µâï…I’±î†¥»ƒ–‹–‡Ãÿ–‡∞Ä»ƒ–‹–‡Ãÿ–‹∞Å—…’î§∞Å¡…Ω—ïç—ïëQï·–ËÅ—ï·—I’±î†§∞ÅïŸÖ¡Ω…Ö—•ΩπM—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞ÅïŸÖ¡Ω…Ö—•Ωππë5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿¿§∞Åô•πÖ±!Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿§∞ÅâÖç≠Õ¡Öçï’…Ö—•Ωπ5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅŸï…—•çÖ±IïŸïÖ∞ËÅÏÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åç°Ö…M—ï¡5ÃËÅπ’µâï…I’±î†ƒ∞Ä‘¿¿¿§∞ÅçΩ±’µπ1ïπù—†ËÅπ’µâï…I’±î†»∞Äƒÿ∞Å—…’î§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞ÅçΩ±’µπ·•—M—ï¡5ÃËÅπ’µâï…I’±î†¿∞Ä‘¿¿¿§∞Åï·•—5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§ÅÙ∞(ÄÅù°ΩÕ—ΩπŸï…ùîËÅÏÅÕ—Ö…—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞ÅôÖëï5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§∞Åç°Öπùï—5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞ÅÕ¡±•—5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§∞Å…ï—’…π5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§∞ÅΩôôÕï—¥ËÅπ’µâï…I’±î†¿∞Äƒ§∞ÅÕ—…ïπù—†ËÅπ’µâï…I’±î†¿∞Äƒ§∞Å°Ω±ë5ÃËÅπ’µâï…I’±î†¿∞Äÿ¿¿¿¿¿§∞Åï·•—5ÃËÅπ’µâï…I’±î†ƒ∞Äÿ¿¿¿¿§ÅÙ∞)ÙÏ()ï·¡Ω…–Åô’πç—•Ω∏ÅëïôÖ’±—5Ω—•ΩπMï——•πùÃ°µΩ—•Ω∏∞Å—ï·–ÄÙÄúú§ÅÏ(ÄÅçΩπÕ–Åç°Ö…ÃÄÙÅù…Ö¡°ïµïÃ°—ï·–§Ï(ÄÅçΩπÕ–Å±ÖÕ—1•πîÄÙÅM—…•πú°—ï·–§πÕ¡±•–†ùq∏ú§πÖ–†¥ƒ§Ä¸¸ÄúúÏ(ÄÅÕ›•—ç†Ä°µΩ—•Ω∏§ÅÏ(ÄÄÄÅçÖÕîÄù—Â¡•πúúËÅ…ï—’…∏ÅÏÅÕ—Ö…—5ÃËÄ»‘¿∞Åç°Ö…M—ï¡5ÃËÄ‹¿∞Å°Ω±ë5ÃËÄƒ¿¿¿ÅÙÏ(ÄÄÄÅçÖÕîÄùâ±’…M°Ö…¿úËÅ…ï—’…∏ÅÏÅÕ—…ïπù—†ËÄƒ∞Åç±ïÖ…5ÃËÄÿ‘¿ÅÙÏ(ÄÄÄÅçÖÕîÄù…•ÕîúËÅ…ï—’…∏ÅÏÅÕ—…ïπù—†ËÄƒ∞Å…•ÕïA‡ËÄ»»∞ÅôÖëï5ÃËÄÿ¿¿ÅÙÏ(ÄÄÄÅçÖÕîÄùÕ°Ö≠îúËÅ…ï—’…∏ÅÏÅÕ—…ïπù—†ËÄ¿∏Ã‘∞Åë’…Ö—•Ωπ5ÃËÄ‡¿¿ÅÙÏ(ÄÄÄÄV¢ïÁm°¯ßv∑öñZjÿ®ûá¬R«´±í –)§6≠h∫jSÎ¢
-⁄ö√Ú∂'?+a¢}ıﬁú≠Üâﬁ≈Ê66RvFV6ˆFRs¢&WGW&‚≤6VVC¢r¬7F'D◊3¢C¬6Ü%7FW◊3¢¬6WGF∆T◊3¢É¬Üˆ∆D◊3¢#¬WÜóD◊3¢3”∞¢66Rwv˜&EVÊFW&∆ñÊRs¢&WGW&‚≤v˜&G5FWáC¢FWáBÁG&ñ“ÇíÁ7∆óBÇı«2≤ÚíÊfñ«FW"Ñ&ˆˆ∆V‚íÊ¶ˆñ‚ÇrÚrí«¬FWáB¬7F'D◊3¢S¬v˜&DGW&Fñˆ‰◊3¢C3¬6Ü%7FW◊3¢cR¬VÊFW&∆ñÊUFÜñ6∂ÊW73¢"¬Üˆ∆D◊3¢#¬WÜóD◊3¢3”∞¢66Rv∂Wóv˜&D6Üós¢&WGW&‚≤∂Wóv˜&G5FWáC¢rr¬7F'D◊3¢S¬6Ü%7FW◊3¢SR¬6ÜóFFñÊs¢r¬6Üó6ˆ∆˜#¢r3#S&##br¬6ÜóFWáD6ˆ∆˜#¢r6ffcÜV"r¬6Ü˜tñG3¢f«6R¬Üˆ∆D◊3¢#¬WÜóD◊3¢3”∞¢66RwG&Á6∆FñˆÂvó&W2s¢&WGW&‚≤VÊv∆ó6ÖFWáC¢rr¬6ÜñÊW6UFWáC¢rr¬÷ñÊuFWáC¢rr¬∆ñÊTw&˜t◊3¢#¬7F'D◊3¢S¬Üˆ∆D◊3¢#¬WÜóD◊3¢3”∞¢66Rw&Ww&óFRs¢&WGW&‚≤G&gEFWáC¢6Ü'2Á6∆ñ6RÉ¬÷FÇÊ÷ÇÉ¬÷FÇÊ6Vñ¬Ü6Ü'2Ê∆VÊwFÇ¢„SRíííÊ¶ˆñ‚Çrrí¬&Ww&óFUFWáC¢FWáB¬7F'D◊3¢S¬W6T◊3¢s¬FV∆WFT6˜VÁC¢"¬GóT73¢Ç¬&6∑76T73¢"¬Üˆ∆D◊3¢#”∞¢66Rw7G&ñ∂U&Ww&óFRs¢&WGW&‚≤ˆ∆EFWáC¢FWáB¬ÊWuFWáC¢FWáB¬7G&ñ∂TD◊3¢C¬7G&ñ∂TG&t◊3¢#¬7G&ñ∂TÜˆ∆D◊3¢3¬6ˆ∆∆6T◊3¢S¬GóT73¢B¬Üˆ∆D◊3¢#¬7G&ñ∂T6ˆ∆˜#¢r6#ÉFC2r”∞¢66RvWf˜&FRs¢&WGW&‚≤6VVC¢3¬&˜FV7FVEFWáC¢∆7D∆ñÊR¬Wf˜&FñˆÂ7F'D◊3¢c¬Wf˜&Fñˆ‰VÊD◊3¢C3¬fñÊƒÜˆ∆D◊3¢s¬&6∑76TGW&Fñˆ‰◊3¢s”∞¢66RwfW'Fñ6≈&WfV¬s¢&WGW&‚≤7F'D◊3¢S¬6Ü%7FW◊3¢#¬6ˆ«V÷‰∆VÊwFÉ¢Ç¬Üˆ∆D◊3¢#¬6ˆ«V÷‰WÜóE7FW◊3¢¬WÜóD◊3¢3”∞¢66RvvÜ˜7D6ˆÁfW&vRs¢&WGW&‚≤7F'D◊3¢#S¬fFT◊3¢S¬6ÜÊvTD◊3¢##¬7∆óD◊3¢SS¬&WGW&‰◊3¢#S¬ˆfg6WDV”¢„#Ç¬7G&VÊwFÉ¢¬Üˆ∆D◊3¢#¬WÜóD◊3¢3”∞¢FVfV«C¢&WGW&‚∑”∞¢–ß–†¶Wá˜'BgVÊ7Fñˆ‚Wf«VFUFWáDVffV7Bá6WGFñÊw2¬FWáB¬V∆6VD◊2í∞¢6ˆÁ7B÷˜Fñˆ‚“6WGFñÊw3ÚÊ÷˜Fñˆ‚ÛÚvÊˆÊRs∞¢6ˆÁ7B&÷WFW'2“≤‚‚ÊFVfV«D÷˜FñˆÂ6WGFñÊw2Ü÷˜Fñˆ‚¬FWáBí¬‚‚‚á6WGFñÊw3ÚÊ÷˜FñˆÂ6WGFñÊw2ÛÚ∑“í”∞¢6ˆÁ7BFñ÷R“÷FÇÊ÷ÇÉ¬ÁV÷&W"Êó4fñÊóFRÜV∆6VD◊2íÚV∆6VD◊2¢ì∞¢6ˆÁ7B6Ü'2“w&ÜV÷W2áFWáBì∞¢6ˆÁ7B&6R“≤÷˜Fñˆ‚¬&÷WFW'2¬Fñ÷R¬FWáC¢7G&ñÊráFWáBÛÚrrí¬6Ü&7FW'3¢6Ü'2Ê÷ÇÜ6Ü"í”‚á≤FWáC¢6Ü"¬fó6ñ&∆S¢G'VR¬˜6óGì¢“íí¬G&Á6f˜&”¢rr¬˜6óGì¢¬&«W%É¢¬v˜&G3¢ÁV∆¬¬∂Wóv˜&G3¢µ“¬G&Á6∆Fñˆ„¢ÁV∆¬¬7G&ñ∂S¢ÁV∆¬”∞¢ñbÜ÷˜Fñˆ‚””“wfW'Fñ6≈&WfV¬rí∞¢6ˆÁ7B∆‚“fW'Fñ6≈Ü6U∆‚á&÷WFW'2¬FWáBì∞¢6ˆÁ7B6ˆ«V÷Á2“∆‚Ê6ˆ«V÷Á2Ê÷ÇÜ6ˆ«V÷‚¬ñÊFWÇí”‚á∞¢6Ü&7FW'3¢6ˆ«V÷‚Ê÷ÇÜóFV“í”‚á≤‚‚ÊóFV“¬fó6ñ&∆S¢Fñ÷R„“&÷WFW'2Á7F'D◊2≤óFV“Ê˜&FW"¢&÷WFW'2Ê6Ü%7FW◊2“íí¿¢˜6óGì¢“6∆◊ÇáFñ÷R“∆‚ÊWÜóDB“ñÊFWÇ¢&÷WFW'2Ê6ˆ«V÷‰WÜóE7FW◊2íÚ&÷WFW'2ÊWÜóD◊2í¿¢“íì∞¢&WGW&‚≤‚‚Ê&6R¬÷ˆFS¢wfW'Fñ6≈&WfV¬r¬6ˆ«V÷Á2¬&˜w3¢∆‚Á&˜w2”∞¢–¢ñbÜ÷˜Fñˆ‚””“vvÜ˜7D6ˆÁfW&vRrí∞¢6ˆÁ7B∆‚“vÜ˜7EÜ6U∆‚á&÷WFW'2ì∞¢6ˆÁ7B∆ˆ6¬“Fñ÷R“∆‚Ê6ÜÊvTC∞¢6ˆÁ7B7∆óE&ˆw&W72“6∆◊Ü∆ˆ6¬Ú÷FÇÊ÷ñ‚É##¬&÷WFW'2Á7∆óD◊2íì∞¢6ˆÁ7B&WGW&Â&ˆw&W72“6∆◊ÇÜ∆ˆ6¬“&÷WFW'2Á7∆óD◊2íÚ&÷WFW'2Á&WGW&‰◊2ì∞¢6ˆÁ7B6÷ˆ˜FÖ&WGW&‚“&WGW&Â&ˆw&W72¢&WGW&Â&ˆw&W72¢É2“"¢&WGW&Â&ˆw&W72ì∞¢6ˆÁ7BvÜ˜7D÷˜VÁB“∆ˆ6¬¬Ú¢7∆óE&ˆw&W72¢É“6÷ˆ˜FÖ&WGW&‚í¢&÷WFW'2Á7G&VÊwFÉ∞¢&WGW&‚≤‚‚Ê&6R¬÷ˆFS¢vvÜ˜7D6ˆÁfW&vRr¬vÜ˜7D÷˜VÁB¬vÜ˜7Dˆfg6WDV”¢&÷WFW'2Êˆfg6WDV“¢vÜ˜7D÷˜VÁB¬˜6óGì¢6∆◊ÇáFñ÷R“&÷WFW'2Á7F'D◊2íÚ&÷WFW'2ÊfFT◊2í¢WÜóDgFW"áFñ÷R¬∆‚Ê6ˆ◊∆WFTB¬&÷WFW'2ÊÜˆ∆D◊2¬&÷WFW'2ÊWÜóD◊2í”∞¢–¢ñbÜ÷˜Fñˆ‚””“wGóñÊrrí∞¢6ˆÁ7Bfó6ñ&∆T6˜VÁB“÷FÇÊ÷ñ‚Ü6Ü'2Ê∆VÊwFÇ¬÷FÇÊ÷ÇÉ¬÷FÇÊf∆ˆ˜"ÇáFñ÷R“&÷WFW'2Á7F'D◊2íÚ&÷WFW'2Ê6Ü%7FW◊2í≤íì∞¢&WGW&‚≤‚‚Ê&6R¬÷ˆFS¢v6Ü&7FW'2r¬6Ü&7FW'3¢6Ü'2Ê÷ÇÜ6Ü"¬ñÊFWÇí”‚á≤FWáC¢6Ü"¬fó6ñ&∆S¢ñÊFWÇ¬fó6ñ&∆T6˜VÁB¬˜6óGì¢ñÊFWÇ¬fó6ñ&∆T6˜VÁBÚ¢“íí”∞¢–¢ñbÜ÷˜Fñˆ‚””“v&«W%6Ü'rí∞¢6ˆÁ7B&ˆw&W72“6∆◊áFñ÷RÚ&÷WFW'2Ê6∆V$◊2ì∞¢&WGW&‚≤‚‚Ê&6R¬÷ˆFS¢w∆ñ‚r¬&«W%É¢É“&ˆw&W72í¢¢&÷WFW'2Á7G&VÊwFÇ”∞¢–¢ñbÜ÷˜Fñˆ‚””“w&ó6Rrí∞¢6ˆÁ7B&ˆw&W72“6∆◊áFñ÷RÚ&÷WFW'2ÊfFT◊2ì∞¢&WGW&‚≤‚‚Ê&6R¬÷ˆFS¢w∆ñ‚r¬˜6óGì¢&ˆw&W72¬G&Á6f˜&”¢G&Á6∆FUíÇG≤É“&ˆw&W72í¢&÷WFW'2Á&ó6UÇ¢&÷WFW'2Á7G&VÊwFá◊Çñ”∞¢–¢ñbÜ÷˜Fñˆ‚””“w6Ü∂Rrí∞¢6ˆÁ7B&ˆw&W72“6∆◊áFñ÷RÚ&÷WFW'2ÊGW&Fñˆ‰◊2ì∞¢6ˆÁ7BÊv∆R“Fñ÷R¬&÷WFW'2ÊGW&Fñˆ‰◊2Ú÷FÇÁ6ñ‚áFñ÷RÚC"í¢&÷WFW'2Á7G&VÊwFÇ¢"„B¢É“&ˆw&W72¢„CRí¢∞¢&WGW&‚≤‚‚Ê&6R¬÷ˆFS¢w∆ñ‚r¬G&Á6f˜&”¢&˜FFRÇG∂Êv∆W÷FVrñ”∞¢–¢ñbÜ÷˜Fñˆ‚””“vFV6ˆFRrí∞¢6ˆÁ7B6∆˜G2“6Ü'2Ê÷ÇÜ6Ü"¬ñÊFWÇí”‚∞¢6ˆÁ7B7F'B“&÷WFW'2Á7F'D◊2≤ñÊFWÇ¢&÷WFW'2Ê6Ü%7FW◊3∞¢ñbáFñ÷R¬7F'Bí&WGW&‚≤FWáC¢6Ü"¬fó6ñ&∆S¢f«6R¬v∆óF6É¢ÁV∆¬”∞¢ñbáFñ÷R¬7F'B≤&÷WFW'2Á6WGF∆T◊2bbıµ«>˚»Œ8.˚»˚…˛8˚…æ˚…¢¬‚ı“˜RÁFW7BÜ6Ü"íí&WGW&‚≤FWáC¢6Ü"¬fó6ñ&∆S¢G'VR¬v∆óF6É¢v∆óF6Ñv«óÇá&÷WFW'2Á6VVB¬ñÊFWÇ¬6Ü"í”∞¢&WGW&‚≤FWáC¢6Ü"¬fó6ñ&∆S¢G'VR¬v∆óF6É¢ÁV∆¬”∞¢“ì∞¢6ˆÁ7B∆7E7F'B“&÷WFW'2Á7F'D◊2≤÷FÇÊ÷ÇÉ¬6Ü'2Ê∆VÊwFÇ“í¢&÷WFW'2Ê6Ü%7FW◊2≤&÷WFW'2Á6WGF∆T◊3∞¢6ˆÁ7BWÜóB“Fñ÷R‚∆7E7F'B≤&÷WFW'2ÊÜˆ¡ZäWù∂á‚ù⁄ﬁjYhq´b¢z	KÆ∆H\É@¶ê⁄µ¢Ëq©OÆà+jk ÿhú¸≠Üâ˜◊zr∂'{ô\»»€[\
+export const MOTION_PRESETS = [
+  { id: 'none', name: 'Êó†Âä®Êïà', summary: 'ÈùôÊÄÅÊòæÁ§∫ÂÆåÊï¥ÊñáÂ≠ó' },
+  { id: 'typing', name: 'ÊôÆÈÄöÊâìÂ≠ó', summary: 'ÊåâÂõ∫ÂÆöÈÄüÂ∫¶ÈÄêÂ≠óÊòæÁé∞' },
+  { id: 'blurSharp', name: 'Ê®°Á≥äÂèòÊ∏ÖÊô∞', summary: 'ÊñáÂ≠ó‰ªéÊüîÁÑ¶ÈÄêÊ≠•ÂèòÊ∏ÖÊ•ö' },
+  { id: 'rise', name: '‰∏äÁßªÊ∑°ÂÖ•', summary: 'ËΩªÂæÆ‰∏äÁßªÂπ∂Ê∑°ÂÖ•' },
+  { id: 'shake', name: 'ËΩªÂæÆÈúáÂä®', summary: 'Áü≠Êó∂„ÄÅÂ∞èÂπÖÂ∫¶ÈúáÂä®' },
+  { id: 'decode', name: 'D01 Ëß£Á†ÅÊòæÂ≠ó', summary: 'Âè™ÊúâÊñ∞Â≠óÁü≠ÊöÇ‰π±Á†ÅÔºåÈöèÂêéÂõ∫ÂÆö' },
+  { id: 'wordUnderline', name: 'D02 ÈÄêËØçÂá∫Â≠ó‰∏éÊâ´Á∫ø', summary: 'ÊåâËØçÁªÑÂá∫Áé∞Ôºå‰∏ãÂàíÁ∫øË∑üÈöèÂΩìÂâçËØçÊé®Ëøõ' },
+  { id: 'keywordChip', name: 'D03 ÂÖ≥ÈîÆËØçÂèçËâ≤Âº∫Ë∞É', summary: 'ÂÖ≥ÈîÆËØçÂÆåÊï¥Âá∫Áé∞ÂêéÂàáÊç¢ÂèçËâ≤Âùó' },
+  { id: 'translationWires', name: 'D04 ÂèåËØ≠ËØçÂùóËøûÁ∫ø', summary: '‰∏≠ÊñáËØçÂùó‰∏éËã±ÊñáËØçÁªÑ‰πãÈó¥ÁîüÈïøËøûÁ∫ø' },
+  { id: 'rewrite', name: 'D05 ÁäπË±´ÈÄÄÊ†ºÈáçÂÜô', summary: 'ÂÖàÂÜôËçâÁ®ø„ÄÅÂÅúÈ°ø„ÄÅÈÄÄÊ†ºÔºåÂÜçÈáçÂÜô' },
+  { id: 'strikeRewrite', name: 'D06 ÂàíÊéâÂÜçÊîπÂÜô', summary: 'ÊóßÂè•ÂÖàÂèØËØªÔºåÂÜçÂàíÁ∫ø„ÄÅÊî∂Êã¢Âπ∂ÂÜôÊñ∞Âè•' },
+  { id: 'evaporate', name: 'D07 Âéü‰ΩçËí∏Âèë‰∏éÊú´Âè•ÈÄÄÊ†º', summary: 'ÊåâÂõ∫ÂÆöÁßçÂ≠êÂéü‰ΩçÊ∂àÂ§±Ôºå‰øùÊä§Âè•ÊúÄÂêéÈÄÄÊ†º' },
+  { id: 'verticalReveal', name: 'RP-A2 Á´ñÊéíÈÄíËøõ', summary: 'Âõ∫ÂÆöÂ≠óÊßΩ‰ªé‰∏äÂêë‰∏ãÊòæÂ≠óÔºåÊåâÂàóÈòÖËØªÂêéÈÄÄÂá∫' },
+  { id: 'ghostConverge', name: 'RP-F1 ÈîôËâ≤ÊÆãÂΩ±Êî∂Êïõ', summary: 'Ê≠£Êñá‰øùÊåÅÂèØËØªÔºåÈùíÁ¥´ÊÆãÂΩ±ÂàÜÁ¶ªÂêéÂõûÂà∞Ê∏ÖÊô∞ÊñáÂ≠ó' },
+];
 
-\››\ù
-»\ò[Y]\úÀö€\»
-»\ò[Y]\úÀô^]\»H[YJH»\ò[Y]\úÀô^]\ HàN¬àô]\õà»ããòò\ŸK[ŸNà	ŸX€ŸIÀ⁄\òX›\úŒà€›À‹X⁄]Nà^]N¬àBàYà
-[›[€àOOH	›€‹ô[ô\õ[ôI H¬à€€ú›[àH€‹ô\ŸT[ä\ò[Y]\úÀ^
-N¬à€€ú›€‹ô»H[ãù€‹ôÀõX\
+export const SUPPORTED_MOTIONS = new Set(MOTION_PRESETS.map((item) => item.id));
 
-][JHOà¬à€€ú›ÿÿ[H[YHH][Kú›\ù¬à€€ú›ö\⁄XõP€›[ùHX]õZ[ä][Kò⁄\úÀõ[ô›X]õX^
-X]ôõ€‹äÿÿ[»\ò[Y]\úÀò⁄\î›\\ H
-»JJN¬à€€ú›õŸ‹ô\‹»H€[\
-ÿÿ[»X]õX^
-K][Kú‹[äJN¬àô]\õà»^à][Kù^›\ù[ô^à][Kú›\ù[ô^‹XŸPYù\éà][Kú‹XŸPYù\ã⁄\òX›\úŒà][Kò⁄\úÀõX\
+const numberRule = (min, max, integer = false) => ({ type: 'number', min, max, ...(integer ? { integer: true } : {}) });
+const textRule = (maxLength = 20000) => ({ type: 'string', maxLength });
+const boolRule = { type: 'boolean' };
+const colorRule = { type: 'color' };
+export const MOTION_PARAMETER_RULES = {
+  none: {},
+  typing: { startMs: numberRule(0, 600000), charStepMs: numberRule(1, 5000), holdMs: numberRule(0, 600000) },
+  blurSharp: { strength: numberRule(0, 1), clearMs: numberRule(1, 60000) },
+  rise: { strength: numberRule(0, 1), risePx: numberRule(0, 1000), fadeMs: numberRule(1, 60000) },
+  shake: { strength: numberRule(0, 1), durationMs: numberRule(1, 60000) },
+  decode: { seed: numberRule(-2147483648, 2147483647, true), startMs: numberRule(0, 600000), charStepMs: numberRule(1, 5000), settleMs: numberRule(1, 5000), holdMs: numberRule(0, 600000), exitMs: numberRule(0, 60000) },
+  wordUnderline: { wordsText: textRule(), startMs: numberRule(0, 600000), wordDurationMs: numberRule(1, 30000), charStepMs: numberRule(1, 5000), underlineThickness: numberRule(1, 20), holdMs: numberRule(0, 600000), exitMs: numberRule(0, 60000) },
+  keywordChip: { keywordsText: textRule(), startMs: numberRule(0, 600000), charStepMs: numberRule(1, 5000), chipPadding: numberRule(0, 60), chipColor: colorRule, chipTextColor: colorRule, showIds: boolRule, holdMs: numberRule(0, 600000), exitMs: numberRule(0, 60000) },
+  translationWires: { englishText: textRule(), chineseText: textRule(), mappingText: textRule(), lineGrowMs: numberRule(1, 30000), startMs: numberRule(0, 600000), holdMs: numberRule(0, 600000), exitMs: numberRule(0, 60000) },
+  rewrite: { draftText: textRule(), rewriteText: textRule(), startMs: numberRule(0, 600000), pauseMs: numberRule(0, 60000), deleteCount: numberRule(0, 10000, true), typeCps: numberRule(0.1, 100), backspaceCps: numberRule(0.1, 100), holdMs: numberRule(0, 600000) },
+  strikeRewrite: { oldText: textRule(), newText: textRule(), strikeAtMs: numberRule(0, 600000), strikeDrawMs: numberRule(1, 10000), strikeHoldMs: numberRule(0, 60000), collapseMs: numberRule(1, 10000), typeCps: numberRule(0.1, 100), holdMs: numberRule(0, 600000), strikeColor: colorRule },
+  evaporate: { seed: numberRule(-2147483648, 2147483647, true), protectedText: textRule(), evaporationStartMs: numberRule(0, 600000), evaporationEndMs: numberRule(1, 600000), finalHoldMs: numberRule(0, 60000), backspaceDurationMs: numberRule(1, 60000) },
+  verticalReveal: { startMs: numberRule(0, 600000), charStepMs: numberRule(1, 5000), columnLength: numberRule(2, 16, true), holdMs: numberRule(0, 600000), columnExitStepMs: numberRule(0, 5000), exitMs: numberRule(1, 60000) },
+  ghostConverge: { startMs: numberRule(0, 600000), fadeMs: numberRule(1, 60000), changeAtMs: numberRule(0, 600000), splitMs: numberRule(1, 60000), returnMs: numberRule(1, 60000), offsetEm: numberRule(0, 1), strength: numberRule(0, 1), holdMs: numberRule(0, 600000), exitMs: numberRule(1, 60000) },
+};
 
-⁄\ã⁄\í[ô^
-HOà
-»^à⁄\ãö\⁄XõNà⁄\í[ô^ö\⁄XõP€›[ù‹X⁄]Nà⁄\í[ô^ö\⁄XõP€›[ù»HàJJK[ô\õ[ôNàÿÿ[èH	âàÿÿ[][Kú‹[à
-»çL»õŸ‹ô\‹»àN¬àJN¬àô]\õà»ããòò\ŸK[ŸNà	›€‹ô[ô\õ[ôIÀ€‹ôÀ‹X⁄]Nà^]Yù\ä[YK[ãò€€\]P]\ò[Y]\úÀö€\À\ò[Y]\úÀô^]\ HN¬àBàYà
-[›[€àOOH	⁄Ÿ^]€‹ô⁄\	 H¬à€€ú›ö\⁄XõP€›[ùHX]õZ[ä⁄\úÀõ[ô›X]õX^
-X]ôõ€‹ä
-[YHH\ò[Y]\úÀú›\ù\ H»\ò[Y]\úÀò⁄\î›\\ H
-»JJN¬à€€ú›Ÿ^]€‹ô»H\úŸS\›
-\ò[Y]\úÀöŸ^]€‹ô’^
-Kôõ]X\
+export function defaultMotionSettings(motion, text = '') {
+  const chars = graphemes(text);
+  const lastLine = String(text).split('\n').at(-1) ?? '';
+  switch (motion) {
+    case 'typing': return { startMs: 250, charStepMs: 70, holdMs: 1000 };
+    case 'blurSharp': return { strength: 1, clearMs: 650 };
+    case 'rise': return { strength: 1, risePx: 22, fadeMs: 600 };
+    case 'shake': return { strength: 0.35, durationMs: 800 };
+    case 'decode': return { seed: 17, startMs: 400, charStepMs: 100, settleMs: 80, holdMs: 1200, exitMs: 300 };
+    case 'wordUnderline': return { wordsText: text.trim().split(/\s+/).filter(Boolean).join(' / ') || text, startMs: 500, wordDurationMs: 430, charStepMs: 65, underlineThickness: 2, holdMs: 1200, exitMs: 300 };
+    case 'keywordChip': return { keywordsText: '', startMs: 500, charStepMs: 55, chipPadding: 7, chipColor: '#252b26', chipTextColor: '#fff8eb', showIds: false, holdMs: 1200, exitMs: 300 };
+    case 'translationWires': return { englishText: '', chineseText: '', mappingText: '', lineGrowMs: 120, startMs: 500, holdMs: 1200, exitMs: 300 };
+    case 'rewrite': return { draftText: chars.slice(0, Math.max(1, Math.ceil(chars.length * 0.55))).join(''), rewriteText: text, startMs: 500, pauseMs: 700, deleteCount: 2, typeCps: 8, backspaceCps: 12, holdMs: 1200 };
+    case 'strikeRewrite': return { oldText: text, newText: text, strikeAtMs: 1400, strikeDrawMs: 120, strikeHoldMs: 300, collapseMs: 150, typeCps: 4, holdMs: 1200, strikeColor: '#b84a43' };
+    case 'evaporate': return { seed: 31, protectedText: lastLine, evaporationStartMs: 1600, evaporationEndMs: 4300, finalHoldMs: 700, backspaceDurationMs: 700 };
+    case 'verticalReveal': return { startMs: 500, charStepMs: 200, columnLength: 8, holdMs: 1200, columnExitStepMs: 100, exitMs: 300 };
+    case 'ghostConverge': return { startMs: 250, fadeMs: 500, changeAtMs: 2200, splitMs: 550, returnMs: 1250, offsetEm: 0.28, strength: 1, holdMs: 1200, exitMs: 300 };
+    default: return {};
+  }
+}
 
-Ÿ^]€‹ô
-HOà[ÿÿ›\úô[òŸ\ ›ö[ô ^
-KŸ^]€‹ô
-KõX\
-
-‹›\ù[ôJHOà
-»^àŸ^]€‹ô›\ù[ô€€\]Nàö\⁄XõP€›[ùèH[ôJJJN¬àô]\õà»ããòò\ŸK[ŸNà	⁄Ÿ^]€‹ô⁄\	À⁄\òX›\úŒà⁄\úÀõX\
-
-⁄\ã[ô^
-HOà
-»^à⁄\ãö\⁄XõNà[ô^ö\⁄XõP€›[ù‹X⁄]Nà[ô^ö\⁄XõP€›[ù»HàJJKŸ^]€‹ôÀ‹X⁄]Nà^]Yù\ä[YK\ò[Y]\úÀú›\ù\»
-»⁄\úÀõ[ô›
-à\ò[Y]\úÀò⁄\î›\\À\ò[Y]\úÀö€\À\ò[Y]\úÀô^]\ HN¬àBàYà
-[›[€àOOH	›ò[ú€][€ï⁄\ô\… H¬à€€ú›€›\òŸU€‹ô»H›ö[ô \ò[Y]\úÀô[ô€\⁄^	… Kùö[J
-Kú‹]
-◊ À Kôö[\äõ€€X[äN¬à€€ú›\ôŸ]€‹ô»H\úŸS\›
-\ò[Y]\úÀò⁄[ô\ŸU^
-N¬à€€ú›X\[ô‹»H\úŸSX\[ô‹ \ò[Y]\úÀõX\[ô’^€›\òŸU€‹ôÀ\ôŸ]€‹ô N¬àô]\õà»ããòò\ŸK[ŸNà	›ò[ú€][€ï⁄\ô\…Àò[ú€][€éà»€›\òŸU€‹ôÀ\ôŸ]€‹ôÀX\[ô‹À[ôTõŸ‹ô\‹Œà€[\
-
-[YHH\ò[Y]\úÀú›\ù\ H»\ò[Y]\úÀõ[ôQ‹õ›”\ HK‹X⁄]Nà^]Yù\ä[YK\ò[Y]\úÀú›\ù\À\ò[Y]\úÀö€\À\ò[Y]\úÀô^]\ HN¬àBàYà
-[›[€àOOH	‹ô]‹ö]I H¬à€€ú›òYùH‹ò\[Y\ ›ö[ô \ò[Y]\úÀôòYù^œ»	… JN¬à€€ú›ô]ö\ŸYH‹ò\[Y\ ›ö[ô \ò[Y]\úÀúô]‹ö]U^œ»^
-JN¬à€€ú›‹»HX]õX^
-K\ò[Y]\úÀù\P‹ N¬à€€ú›ö\ú›ö[ö\⁄H\ò[Y]\úÀú›\ù\»
-»òYùõ[ô›»‹»
-àL¬à€€ú›[]T›\ùHö\ú›ö[ö\⁄
-»\ò[Y]\úÀú]\ŸS\Œ¬à€€ú›[]P€›[ùHX]õZ[äòYùõ[ô›X]õX^
-\ò[Y]\úÀô[]P€›[ù
-JN¬à€€ú›[]Q[ôH[]T›\ù
-»[]P€›[ù»X]õX^
-K\ò[Y]\úÀòòX⁄‹‹XŸP‹ H
-àL¬à]ö\⁄XõU^H	…Œ¬àYà
-[YH\ò[Y]\úÀú›\ù\ Hö\⁄XõU^H	…Œ¬à[ŸHYà
-[YHö\ú›ö[ö\⁄
-Hö\⁄XõU^HòYùú€XŸJX]õZ[äòYùõ[ô›X]ôõ€‹ä
-[YHH\ò[Y]\úÀú›\ù\ H»L
-à‹ H
-»JJKöõ⁄[ä	… N¬à[ŸHYà
-[YH[]T›\ù
-Hö\⁄XõU^HòYùöõ⁄[ä	… N¬à[ŸHYà
-[YH[]Q[ô	âà[]P€›[ù
-Hö\⁄XõU^HòYùú€XŸJX]õX^
-òYùõ[ô›HX]ôõ€‹ä
-[YHH[]T›\ù
-H»L
-à\ò[Y]\úÀòòX⁄‹‹XŸP‹ HHJJKöõ⁄[ä	… N¬à[ŸHYà
-[YH[]Q[ô
-»ô]ö\ŸYõ[ô›»‹»
-àL
-Hö\⁄XõU^Hô]ö\ŸYú€XŸJX]õZ[äô]ö\ŸYõ[ô›X]ôõ€‹ä
-[YHH[]Q[ô
-H»L
-à‹ H
-»JJKöõ⁄[ä	… N¬à[ŸHö\⁄XõU^Hô]ö\ŸYöõ⁄[ä	… N¬àô]\õà»ããòò\ŸK[ŸNà	‹ô]‹ö]IÀö\⁄XõU^ÿ\ô]à[YHèH\ò[Y]\úÀú›\ù\»	âà[YH[]Q[ô
-»ô]ö\ŸYõ[ô›»‹»
-àLÿ\ô]ö\⁄XõNàX]ôõ€‹ä[YH»L
-H	HàOOH‹X⁄]NàHN¬àBàYà
-[›[€àOOH	‹›öZŸTô]‹ö]I H¬à€€ú›€^H›ö[ô \ò[Y]\úÀõ€^œ»^
-N¬à€€ú›ô]’^H›ö[ô \ò[Y]\úÀõô]’^œ»^
-N¬à€€ú›ò]‘›\ùH\ò[Y]\úÀú›öZŸP]\Œ¬à€€ú›ò]—[ôHò]‘›\ù
-»\ò[Y]\úÀú›öZŸQò]”\Œ¬à€€ú›€€\ŸT›\ùHò]—[ô
-»\ò[Y]\úÀú›öZŸR€\Œ¬à€€ú›ô]‘›\ùH€€\ŸT›\ù
-»\ò[Y]\úÀò€€\ŸS\Œ¬à€€ú›ô]–€›[ùHX]õZ[ä‹ò\[Y\ ô]’^
-Kõ[ô›X]õX^
-X]ôõ€‹ä
-[YHHô]‘›\ù
-H»
-L»X]õX^
-K\ò[Y]\úÀù\P‹ JJH
-»JJN¬àô]\õà»ããòò\ŸK[ŸNà	‹›öZŸTô]‹ö]IÀ€^ô]’^ô]’ö\⁄XõNà[YHèHô]‘›\ùô]–€›[ù€‹X⁄]Nà[YH€€\ŸT›\ù»Hà[YHô]‘›\ù»HH€[\
-
-[YHH€€\ŸT›\ù
-H»\ò[Y]\úÀò€€\ŸS\ Hà›öZŸTõŸ‹ô\‹Œà€[\
-
-[YHHò]‘›\ù
-H»\ò[Y]\úÀú›öZŸQò]”\ K›öZŸUö\⁄XõNà[YHèHò]‘›\ù›öZŸP€€‹éà\ò[Y]\úÀú›öZŸP€€‹ã‹X⁄]Nà[YHèHô]‘›\ù
-»‹ò\[Y\ ô]’^
-Kõ[ô›»X]õX^
-K\ò[Y]\úÀù\P‹ H
-àL
-»\ò[Y]\úÀö€\»»àHN¬àBàYà
-[›[€àOOH	Ÿ]ò\‹ò]I H¬à€€ú›õ›X›Y^H›ö[ô \ò[Y]\úÀúõ›X›Y^œ»	… N¬à€€ú›õ›X›Y€ŸU[ö]›\ùHõ›X›Y^»›ö[ô ^
-Kõ\›[ô^Ÿäõ›X›Y^
-HàLN¬à€€ú›õ›X›Y›\ùHõ›X›Y€ŸU[ö]›\ù»LHà‹ò\[Y\ ›ö[ô ^
-Kú€XŸJõ›X›Y€ŸU[ö]›\ù
-JKõ[ô›¬à€€ú›õ›X›Y[ôHõ›X›Y›\ùj)^v⁄äwky©e°∆≠äâË|%,zª!röCj÷ã°∆•>∫ ≠©¨?+a¢sÚ∂'ﬂ]È ÿhùÏ^ 0 ? -1 : protectedStart + graphemes(protectedText).length;
+export function evaluateTextEffect(settings, text, elapsedMs) {
+  const motion = settings?.motion ?? 'none';
+  const parameters = { ...defaultMotionSettings(motion, text), ...(settings?.motionSettings ?? {}) };
+  const time = Math.max(0, Number.isFinite(elapsedMs) ? elapsedMs : 0);
+  const chars = graphemes(text);
+  const base = { motion, parameters, time, text: String(text ?? ''), characters: chars.map((char) => ({ text: char, visible: true, opacity: 1 })), transform: '', opacity: 1, blurPx: 0, words: null, keywords: [], translation: null, strike: null };
+  if (motion === 'verticalReveal') {
+    const plan = verticalPhasePlan(parameters, text);
+    const columns = plan.columns.map((column, index) => ({
+      characters: column.map((item) => ({ ...item, visible: time >= parameters.startMs + item.order * parameters.charStepMs })),
+      opacity: 1 - clamp((time - plan.exitAt - index * parameters.columnExitStepMs) / parameters.exitMs),
+    }));
+    return { ...base, mode: 'verticalReveal', columns, rows: plan.rows };
+  }
+  if (motion === 'ghostConverge') {
+    const plan = ghostPhasePlan(parameters);
+    const local = time - plan.changeAt;
+    const splitProgress = clamp(local / Math.min(220, parameters.splitMs));
+    const returnProgress = clamp((local - parameters.splitMs) / parameters.returnMs);
+    const smoothReturn = returnProgress * returnProgress * (3 - 2 * returnProgress);
+    const ghostAmount = local < 0 ? 0 : splitProgress * (1 - smoothReturn) * parameters.strength;
+    return { ...base, mode: 'ghostConverge', ghostAmount, ghostOffsetEm: parameters.offsetEm * ghostAmount, opacity: clamp((time - parameters.startMs) / parameters.fadeMs) * exitAfter(time, plan.completeAt, parameters.holdMs, parameters.exitMs) };
+  }
+  if (motion === 'typing') {
+    const visibleCount = Math.min(chars.length, Math.max(0, Math.floor((time - parameters.startMs) / parameters.charStepMs) + 1));
+    return { ...base, mode: 'characters', characters: chars.map((char, index) => ({ text: char, visible: index < visibleCount, opacity: index < visibleCount ? 1 : 0 })) };
+  }
+  if (motion === 'blurSharp') {
+    const progress = clamp(time / parameters.clearMs);
+    return { ...base, mode: 'plain', blurPx: (1 - progress) * 10 * parameters.strength };
+  }
+  if (motion === 'rise') {
+    const progress = clamp(time / parameters.fadeMs);
+    return { ...base, mode: 'plain', opacity: progress, transform: `translateY(${(1 - progress) * parameters.risePx * parameters.strength}px)` };
+  }
+  if (motion === 'shake') {
+    const progress = clamp(time / parameters.durationMs);
+    const angle = time < parameters.durationMs ? Math.sin(time / 42) * parameters.strength * 2.4 * (1 - progress * 0.45) : 0;
+    return { ...base, mode: 'plain', transform: `rotate(${angle}deg)` };
+  }
+  if (motion === 'decode') {
+    const slots = chars.map((char, index) => {
+      const start = parameters.startMs + index * parameters.charStepMs;
+      if (time < start) return { text: char, visible: false, glitch: null };
+      if (time < start + parameters.settleMs && !/[\sÔºå„ÄÇÔºÅÔºü„ÄÅÔºõÔºö,.!?]/u.test(char)) return { text: char, visible: true, glitch: glitchGlyph(parameters.seed, index, char) };
+      return { text: char, visible: true, glitch: null };
+    });
+    const lastStart = parameters.startMs + Math.max(0, chars.length - 1) * parameters.charStepMs + parameters.settleMs;
+    const exit = time > lastStart + parameters.holdMs ? clamp((lastStart + parameters.holdMs + parameters.exitMs - time) / parameters.exitMs) : 1;
+    return { ...base, mode: 'decode', characters: slots, opacity: exit };
+  }
+  if (motion === 'wordUnderline') {
+    const plan = wordPhasePlan(parameters, text);
+    const words = plan.words.map((item) => {
+      const local = time - item.start;
+      const visibleCount = Math.min(item.chars.length, Math.max(0, Math.floor(local / parameters.charStepMs) + 1));
+      const progress = clamp(local / Math.max(1, item.span));
+      return { text: item.text, startIndex: item.startIndex, spaceAfter: item.spaceAfter, characters: item.chars.map((char, charIndex) => ({ text: char, visible: charIndex < visibleCount, opacity: charIndex < visibleCount ? 1 : 0 })), underline: local >= 0 && local < item.span + 250 ? progress : 0 };
+    });
+    return { ...base, mode: 'wordUnderline', words, opacity: exitAfter(time, plan.completeAt, parameters.holdMs, parameters.exitMs) };
+  }
+  if (motion === 'keywordChip') {
+    const visibleCount = Math.min(chars.length, Math.max(0, Math.floor((time - parameters.startMs) / parameters.charStepMs) + 1));
+    const keywords = parseList(parameters.keywordsText).flatMap((keyword) => allOccurrences(String(text), keyword).map(([start, end]) => ({ text: keyword, start, end, complete: visibleCount >= end })));
+    return { ...base, mode: 'keywordChip', characters: chars.map((char, index) => ({ text: char, visible: index < visibleCount, opacity: index < visibleCount ? 1 : 0 })), keywords, opacity: exitAfter(time, parameters.startMs + chars.length * parameters.charStepMs, parameters.holdMs, parameters.exitMs) };
+  }
+  if (motion === 'translationWires') {
+    const sourceWords = String(parameters.englishText || '').trim().split(/\s+/).filter(Boolean);
+    const targetWords = parseList(parameters.chineseText);
+    const mappings = parseMappings(parameters.mappingText, sourceWords, targetWords);
+    return { ...base, mode: 'translationWires', translation: { sourceWords, targetWords, mappings, lineProgress: clamp((time - parameters.startMs) / parameters.lineGrowMs) }, opacity: exitAfter(time, parameters.startMs, parameters.holdMs, parameters.exitMs) };
+  }
+  if (motion === 'rewrite') {
+    const draft = graphemes(String(parameters.draftText ?? ''));
+    const revised = graphemes(String(parameters.rewriteText ?? text));
+    const cps = Math.max(1, parameters.typeCps);
+    const firstFinish = parameters.startMs + draft.length / cps * 1000;
+    const deleteStart = firstFinish + parameters.pauseMs;
+    const deleteCount = Math.min(draft.length, Math.max(0, parameters.deleteCount));
+    const deleteEnd = deleteStart + deleteCount / Math.max(1, parameters.backspaceCps) * 1000;
+    let visibleText = '';
+    if (time < parameters.startMs) visibleText = '';
+    else if (time < firstFinish) visibleText = draft.slice(0, Math.min(draft.length, Math.floor((time - parameters.startMs) / 1000 * cps) + 1)).join('');
+    else if (time < deleteStart) visibleText = draft.join('');
+    else if (time < deleteEnd && deleteCount) visibleText = draft.slice(0, Math.max(0, draft.length - Math.floor((time - deleteStart) / 1000 * parameters.backspaceCps) - 1)).join('');
+    else if (time < deleteEnd + revised.length / cps * 1000) visibleText = revised.slice(0, Math.min(revised.length, Math.floor((time - deleteEnd) / 1000 * cps) + 1)).join('');
+    else visibleText = revised.join('');
+    return { ...base, mode: 'rewrite', visibleText, caret: time >= parameters.startMs && time < deleteEnd + revised.length / cps * 1000, caretVisible: Math.floor(time / 450) % 2 === 0, opacity: 1 };
+  }
+  if (motion === 'strikeRewrite') {
+    const oldText = String(parameters.oldText ?? text);
+    const newText = String(parameters.newText ?? text);
+    const drawStart = parameters.strikeAtMs;
+    const drawEnd = drawStart + parameters.strikeDrawMs;
+    const collapseStart = drawEnd + parameters.strikeHoldMs;
+    const newStart = collapseStart + parameters.collapseMs;
+    const newCount = Math.min(graphemes(newText).length, Math.max(0, Math.floor((time - newStart) / (1000 / Math.max(1, parameters.typeCps))) + 1));
+    return { ...base, mode: 'strikeRewrite', oldText, newText, newVisible: time >= newStart, newCount, oldOpacity: time < collapseStart ? 1 : time < newStart ? 1 - clamp((time - collapseStart) / parameters.collapseMs) : 0, strikeProgress: clamp((time - drawStart) / parameters.strikeDrawMs), strikeVisible: time >= drawStart, strikeColor: parameters.strikeColor, opacity: time >= newStart + graphemes(newText).length / Math.max(1, parameters.typeCps) * 1000 + parameters.holdMs ? 0 : 1 };
+  }
+  if (motion === 'evaporate') {
+    const protectedText = String(parameters.protectedText ?? '');
+    const protectedCodeUnitStart = protectedText ? String(text).lastIndexOf(protectedText) : -1;
+    const protectedStart = protectedCodeUnitStart < 0 ? -1 : graphemes(String(text).slice(0, protectedCodeUnitStart)).length;
+    const protectedEnd = protectedStart < 0 ? -1 : protectedStart + graphemes(protectedText).length;
     const duration = Math.max(1, parameters.evaporationEndMs - parameters.evaporationStartMs);
     const charsFrame = chars.map((char, index) => {
       const isProtected = index >= protectedStart && index < protectedEnd;
@@ -178,5 +231,77 @@ export function verticalPhasePlan(parameters, text) {
   });
   const completeAt = parameters.startMs + Math.max(0, order - 1) * parameters.charStepMs;
   const exitAt = completeAt + parameters.holdMs;
-  return { columns, ro®•y€h~)›≠Ê•ñá∂*'°î±ÍÏdÖ»4
-i´Z.áî˙ËÇ∂¶∞¸≠Üâœ ÿhü}wß+a¢w±y›ÃËÅ5Ö—†πµÖ‡†ƒ∞Ä∏∏πçΩ±’µπÃπµÖ¿†°çΩ±’µ∏§ÄÙ¯ÅçΩ±’µ∏π±ïπù—†§§∞ÅçΩµ¡±ï—ï–∞Åï·•—–∞Å—Ω—Ö∞ËÅï·•—–Ä¨Å5Ö—†πµÖ‡†¿∞ÅçΩ±’µπÃπ±ïπù—†Ä¥Äƒ§Ä®Å¡Ö…Öµï—ï…ÃπçΩ±’µπ·•—M—ï¡5ÃÄ¨Å¡Ö…Öµï—ï…Ãπï·•—5ÃÅÙÏ)Ù()ï·¡Ω…–Åô’πç—•Ω∏Åù°ΩÕ—A°ÖÕïA±Ö∏°¡Ö…Öµï—ï…Ã§ÅÏ(ÄÅçΩπÕ–Åç°Öπùï–ÄÙÅ5Ö—†πµÖ‡°¡Ö…Öµï—ï…Ãπç°Öπùï—5Ã∞Å¡Ö…Öµï—ï…ÃπÕ—Ö…—5ÃÄ¨Å¡Ö…Öµï—ï…ÃπôÖëï5Ã§Ï(ÄÅçΩπÕ–ÅçΩµ¡±ï—ï–ÄÙÅç°Öπùï–Ä¨Å¡Ö…Öµï—ï…ÃπÕ¡±•—5ÃÄ¨Å¡Ö…Öµï—ï…Ãπ…ï—’…π5ÃÏ(ÄÅ…ï—’…∏ÅÏÅç°Öπùï–∞ÅçΩµ¡±ï—ï–∞Å—Ω—Ö∞ËÅçΩµ¡±ï—ï–Ä¨Å¡Ö…Öµï—ï…Ãπ°Ω±ë5ÃÄ¨Å¡Ö…Öµï—ï…Ãπï·•—5ÃÅÙÏ)Ù()ô’πç—•Ω∏Å¡Ö…Õï]Ω…ë…Ω’¡Ã°ŸÖ±’î∞Å—ï·–§ÅÏ(ÄÅçΩπÕ–Å›Ω…ëÃÄÙÅM—…•πú°ŸÖ±’îÄ¸¸Äúú§πÕ¡±•–†úºú§πµÖ¿†°•—ï¥§ÄÙ¯Å•—ï¥π—…•¥†§§πô•±—ï»°	ΩΩ±ïÖ∏§Ï(ÄÅ•òÄ†Ö›Ω…ëÃπ±ïπù—†§Å…ï—’…∏Åm—ï·—tÏ(ÄÅ…ï—’…∏Å›Ω…ëÃπ©Ω•∏†úú§ÄÙÙÙÅ—ï·–ÅÒÅ›Ω…ëÃπ©Ω•∏†úÄú§ÄÙÙÙÅ—ï·–Ä¸Å›Ω…ëÃÄËÅm—ï·—tÏ)Ù((ººÉ¢æ7ûÓ¶b€ö∫◊æÚköæ?í‚´¢æ7¢œñ¬Gñ6ÉûR†Å›Ω…ë’…Ö—•Ωπ5œæÚo¢æ7ñí´¶Vˇö^€ñÓ€¶Vˇñ"¿ãörñB;í‚í‚´ñ∂_öb˚û:√ñ∫0ãæÚ0(ººÉñB;í‚í‚´¢æ7ö2'û“ø¢∫áö^€¶VˇñÚñû/æÚ3ñ£öZñ∫3ö"CñB;ö&7¢˛oñó¶b¢æÔñsûVgí‚;¶ñrÎé(ººÉö∆ñ‚üí‚;ñÓÎ¢∫ªö^€¶Vˇ¶˜ñÚWûR£¢˛gí‚íÓ˜ûÍø¢∫áû∫_æÚ3¶ˇñ7ñÎû:¿ãñÓÎ¢∫ªö^€¶Vˇñíéñ∫{¶fö>Cñ&7¶ñrËãûj¶Vˇí‚∑öZöb˚ûíÎí‚7ñ£é)ï·¡Ω…–Åô’πç—•Ω∏Å›Ω…ëA°ÖÕïA±Ö∏°¡Ö…Öµï—ï…Ã∞Å—ï·–§ÅÏ(ÄÅçΩπÕ–Å—Ω≠ïπÃÄÙÅ¡Ö…Õï]Ω…ë…Ω’¡Ã°¡Ö…Öµï—ï…Ãπ›Ω…ëÕQï·–∞ÅM—…•πú°—ï·–§§Ï(ÄÅçΩπÕ–ÅÕΩ’…çîÄÙÅM—…•πú°—ï·–§Ï(ÄÅçΩπÕ–Å°ÖÕM¡ÖçîÄÙÅÕΩ’…çîπ•πç±’ëïÃ†úÄú§Ï(ÄÅ±ï–Åç’…ÕΩ»ÄÙÅ¡Ö…Öµï—ï…ÃπÕ—Ö…—5ÃÏ(ÄÅ±ï–ÅΩôôÕï–ÄÙÄ¿Ï(ÄÅçΩπÕ–Å›Ω…ëÃÄÙÅ—Ω≠ïπÃπµÖ¿†°›Ω…ê∞Å•πëï‡§ÄÙ¯ÅÏ(ÄÄÄÅçΩπÕ–Åç°Ö…ÃÄÙÅù…Ö¡°ïµïÃ°›Ω…ê§Ï(ÄÄÄÅçΩπÕ–Å—Â¡ï5ÃÄÙÅ5Ö—†πµÖ‡†¿∞Åç°Ö…Ãπ±ïπù—†Ä¥Äƒ§Ä®Å¡Ö…Öµï—ï…Ãπç°Ö…M—ï¡5ÃÏ(ÄÄÄÅçΩπÕ–ÅÕ¡Ö∏ÄÙÅ5Ö—†πµÖ‡°¡Ö…Öµï—ï…Ãπ›Ω…ë’…Ö—•Ωπ5Ã∞Å—Â¡ï5Ã§Ï(ÄÄÄÅçΩπÕ–ÅÕ¡Öçïô—ï»ÄÙÅ°ÖÕM¡ÖçîÄòòÅ•πëï‡ÄÅ—Ω≠ïπÃπ±ïπù—†Ä¥ÄƒÏ(ÄÄÄÅçΩπÕ–Å•—ï¥ÄÙÅÏÅ—ï·–ËÅ›Ω…ê∞Åç°Ö…Ã∞ÅÕ—Ö…–ËÅç’…ÕΩ»∞ÅÕ¡Ö∏∞Å—Â¡ïë–ËÅç’…ÕΩ»Ä¨Å—Â¡ï5Ã∞ÅÕ—Ö…—%πëï‡ËÅΩôôÕï–∞ÅÕ¡Öçïô—ï»ÅÙÏ(ÄÄÄÅç’…ÕΩ»Ä¨ÙÅÕ¡Ö∏Ï(ÄÄÄÅΩôôÕï–Ä¨ÙÅç°Ö…Ãπ±ïπù—†Ä¨Ä°Õ¡Öçïô—ï»Ä¸ÄƒÄËÄ¿§Ï(ÄÄÄÅ…ï—’…∏Å•—ï¥Ï(ÄÅÙ§Ï(ÄÅ…ï—’…∏ÅÏÅ›Ω…ëÃ∞ÅçΩµ¡±ï—ï–ËÅç’…ÕΩ»∞Åï·•—–ËÅç’…ÕΩ»Ä¨Å¡Ö…Öµï—ï…Ãπ°Ω±ë5Ã∞Å—Ω—Ö∞ËÅç’…ÕΩ»Ä¨Å¡Ö…Öµï—ï…Ãπ°Ω±ë5ÃÄ¨Å¡Ö…Öµï—ï…Ãπï·•—5ÃÅÙÏ)Ù()ô’πç—•Ω∏Å¡Ö…Õï1•Õ–°ŸÖ±’î§ÅÏÅ…ï—’…∏ÅM—…•πú°ŸÖ±’îÄ¸¸Äúú§πÕ¡±•–†ΩmpΩq∏≥æÚ0Ìtº§πµÖ¿†°•—ï¥§ÄÙ¯Å•—ï¥π—…•¥†§§πô•±—ï»°	ΩΩ±ïÖ∏§ÏÅÙ()ô’πç—•Ω∏Å¡Ö…Õï5Ö¡¡•πùÃ°ŸÖ±’î∞ÅÕΩ’…çï]Ω…ëÃ∞Å—Ö…ùï—]Ω…ëÃ§ÅÏ(ÄÅ…ï—’…∏ÅM—…•πú°ŸÖ±’îÄ¸¸Äúú§πÕ¡±•–†ùq∏ú§πµÖ¿†°±•πî§ÄÙ¯ÅÏ(ÄÄÄÅçΩπÕ–Åm—Ö…ùï–∞ÅÕΩ’…çïÃÄÙÄúùtÄÙÅ±•πîπÕ¡±•–†úËú§Ï(ÄÄÄÅçΩπÕ–Å—Ö…ùï—%πëï‡ÄÙÅ—Ö…ùï—]Ω…ëÃπ•πëï·=ò°—Ö…ùï–π—…•¥†§§Ï(ÄÄÄÅçΩπÕ–ÅÕΩ’…çï%πëï·ïÃÄÙÅÕΩ’…çïÃπÕ¡±•–†Ωl∞Øétº§πµÖ¿†°›Ω…ê§ÄÙ¯ÅÕΩ’…çï]Ω…ëÃπ•πëï·=ò°›Ω…êπ—…•¥†§§§πô•±—ï»†°•πëï‡§ÄÙ¯Å•πëï‡Ä¯ÙÄ¿§Ï(ÄÄÄÅ…ï—’…∏Å—Ö…ùï—%πëï‡Ä¯ÙÄ¿ÄòòÅÕΩ’…çï%πëï·ïÃπ±ïπù—†Ä¸ÅÏÅ—Ö…ùï—%πëï‡∞ÅÕΩ’…çï%πëï·ïÃÅÙÄËÅπ’±∞Ï(ÄÅÙ§πô•±—ï»°	ΩΩ±ïÖ∏§Ï)Ù()ô’πç—•Ω∏ÅÖ±±=çç’……ïπçïÃ°—ï·–∞Å—Ö…ùï–§ÅÏ(ÄÅçΩπÕ–ÅÕ—Ö…—ÃÄÙÅmtÏ(ÄÅ±ï–Å¡ΩÕ•—•Ω∏ÄÙÄ¿Ï(ÄÅ›°•±îÄ°—Ö…ùï–ÄòòÄ°¡ΩÕ•—•Ω∏ÄÙÅ—ï·–π•πëï·=ò°—Ö…ùï–∞Å¡ΩÕ•—•Ω∏§§Ä¯ÙÄ¿§ÅÏÅÕ—Ö…—Ãπ¡’Õ†°mù…Ö¡°ïµïÃ°—ï·–πÕ±•çî†¿∞Å¡ΩÕ•—•Ω∏§§π±ïπù—†∞Åù…Ö¡°ïµïÃ°—ï·–πÕ±•çî†¿∞Å¡ΩÕ•—•Ω∏Ä¨Å—Ö…ùï–π±ïπù—†§§π±ïπù—°t§ÏÅ¡ΩÕ•—•Ω∏Ä¨ÙÅ—Ö…ùï–π±ïπù—†ÏÅÙ(ÄÅ…ï—’…∏ÅÕ—Ö…—ÃÏ)Ù()ô’πç—•Ω∏ÅÕïïëïëUπ•–°Õïïê∞Å•πëï‡§ÅÏ(ÄÅ±ï–ÅŸÖ±’îÄÙÄ°9’µâï»°Õïïê§ÅÄ¿§ÅxÅ5Ö—†π•µ’∞°•πëï‡Ä¨Äƒ∞Ä¡‡–’êÂòÕà§Ï(ÄÅŸÖ±’îÄÙÅ5Ö—†π•µ’∞°ŸÖ±’îÅxÄ°ŸÖ±’îÄ¯¯¯Äƒÿ§∞Ä¡‡–’êÂòÕà§Ï(ÄÅŸÖ±’îÄÙÅ5Ö—†π•µ’∞°ŸÖ±’îÅxÄ°ŸÖ±’îÄ¯¯¯Äƒÿ§∞Ä¡‡–’êÂòÕà§Ï(ÄÅ…ï—’…∏Ä†°ŸÖ±’îÅxÄ°ŸÖ±’îÄ¯¯¯Äƒÿ§§Ä¯¯¯Ä¿§ÄºÄ–»‰–‰ÿ‹»‰ÿÏ)Ù()ô’πç—•Ω∏Åù±•—ç°±Â¡†°Õïïê∞Å•πëï‡∞ÅΩ…•ù•πÖ∞§ÅÏ(ÄÅçΩπÕ–Åù±Â¡°ÃÄÙÄüäZOäZKäZGä^ä^äZœäZ˜ä^/ä^?\¨®º¸úÏ(ÄÅçΩπÕ–Å’π•–ÄÙÅÕïïëïëUπ•–°Õïïê∞Å•πëï‡§Ï(ÄÅ…ï—’…∏Åù…Ö¡°ïµïÃ°ù±Â¡°Ã•m5Ö—†πô±ΩΩ»°’π•–Ä®Åù…Ö¡°ïµïÃ°ù±Â¡°Ã§π±ïπù—†•tÄ¸¸ÅΩ…•ù•πÖ∞Ï)Ù()ô’πç—•Ω∏Åï·•—ô—ï»°—•µî∞ÅçΩµ¡±ï—ï–∞Å°Ω±ë5Ã∞Åï·•—5Ã§ÅÏ(ÄÅ•òÄ°—•µîÄÙÅçΩµ¡±ï—ï–Ä¨Å°Ω±ë5ÃÅÒÅï·•—5ÃÄÙÄ¿§Å…ï—’…∏ÄƒÏ(ÄÅ…ï—’…∏Åç±Öµ¿†°çΩµ¡±ï—ï–Ä¨Å°Ω±ë5ÃÄ¨Åï·•—5ÃÄ¥Å—•µî§ÄºÅï·•—5Ã§Ï)Ù()ô’πç—•Ω∏Åç±Öµ¿°ŸÖ±’î§ÅÏÅ…ï—’…∏Å5Ö—†πµÖ‡†¿∞Å5Ö—†πµ•∏†ƒ∞Å9’µâï»π•Õ•π•—î°ŸÖ±’î§Ä¸ÅŸÖ±’îÄËÄ¿§§ÏÅÙ(
+  return { columns, rows: Math.max(1, ...columns.map((column) => column.length)), completeAt, exitAt, total: exitAt + Math.max(0, columns.length - 1) * parameters.columnExitStepMs + parameters.exitMs };
+}
+
+export function ghostPhasePlan(parameters) {
+  const changeAt = Math.max(parameters.changeAtMs, parameters.startMs + parameters.fadeMs);
+  const completeAt = changeAt + parameters.splitMs + parameters.returnMs;
+  return { changeAt, completeAt, total: completeAt + parameters.holdMs + parameters.exitMs };
+}
+
+function parseWordGroups(value, text) {
+  const words = String(value ?? '').split('/').map((item) => item.trim()).filter(Boolean);
+  if (!words.length) return [text];
+  return words.join('') === text || words.join(' ') === text ? words : [text];
+}
+
+// ËØçÁªÑÈò∂ÊÆµÔºöÊØè‰∏™ËØçËá≥Â∞ëÂç†Áî® wordDurationMsÔºõËØçÂ§™ÈïøÊó∂Âª∂ÈïøÂà∞"ÊúÄÂêé‰∏Ä‰∏™Â≠óÊòæÁé∞ÂÆå"Ôºå
+// Âêé‰∏Ä‰∏™ËØçÊåâÁ¥ØËÆ°Êó∂ÈïøÂºÄÂßãÔºåÂÖ®ÊñáÂÆåÊàêÂêéÊâçËøõÂÖ•ÈòÖËØªÂÅúÁïô‰∏éÈÄÄÂú∫„ÄÇ
+// Ê±ÇÂ∏ß‰∏éÂª∫ËÆÆÊó∂ÈïøÈÉΩÂºïÁî®Ëøô‰∏Ä‰ªΩÁ∫ØËÆ°ÁÆóÔºåÈÅøÂÖçÂá∫Áé∞"Âª∫ËÆÆÊó∂ÈïøÂ§ü„ÄÅÂÆûÈôÖÊèêÂâçÈÄÄÂú∫"ÁöÑÈïø‰∏≠ÊñáÊòæÁ§∫‰∏çÂÖ®„ÄÇ
+export function wordPhasePlan(parameters, text) {
+  const tokens = parseWordGroups(parameters.wordsText, String(text));
+  const source = String(text);
+  const hasSpace = source.includes(' ');
+  let cursor = parameters.startMs;
+  let offset = 0;
+  const words = tokens.map((word, index) => {
+    const chars = graphemes(word);
+    const typeMs = Math.max(0, chars.length - 1) * parameters.charStepMs;
+    const span = Math.max(parameters.wordDurationMs, typeMs);
+    const spaceAfter = hasSpace && index < tokens.length - 1;
+    const item = { text: word, chars, start: cursor, span, typedAt: cursor + typeMs, startIndex: offset, spaceAfter };
+    cursor += span;
+    offset += chars.length + (spaceAfter ? 1 : 0);
+    return item;
+  });
+  return { words, completeAt: cursor, exitAt: cursor + parameters.holdMs, total: cursor + parameters.holdMs + parameters.exitMs };
+}
+
+function parseList(value) { return String(value ?? '').split(/[\/\n,Ôºå;]/).map((item) => item.trim()).filter(Boolean); }
+
+function parseMappings(value, sourceWords, targetWords) {
+  return String(value ?? '').split('\n').map((line) => {
+    const [target, sources = ''] = line.split(':');
+    const targetIndex = targetWords.indexOf(target.trim());
+    const sourceIndexes = sources.split(/[,+„ÄÅ]/).map((word) => sourceWords.indexOf(word.trim())).filter((index) => index >= 0);
+    return targetIndex >= 0 && sourceIndexes.length ? { targetIndex, sourceIndexes } : null;
+  }).filter(Boolean);
+}
+
+function allOccurrences(text, target) {
+  const starts = [];
+  let position = 0;
+  while (target && (position = text.indexOf(target, position)) >= 0) { starts.push([graphemes(text.slice(0, position)).length, graphemes(text.slice(0, position + target.length)).length]); position += target.length; }
+  return starts;
+}
+
+function seededUnit(seed, index) {
+  let value = (Number(seed) | 0) ^ Math.imul(index + 1, 0x45d9f3b);
+  value = Math.imul(value ^ (value >>> 16), 0x45d9f3b);
+  value = Math.imul(value ^ (value >>> 16), 0x45d9f3b);
+  return ((value ^ (value >>> 16)) >>> 0) / 4294967296;
+}
+
+function glitchGlyph(seed, index, original) {
+  const glyphs = '‚ñì‚ñí‚ñë‚óá‚óÜ‚ñ≥‚ñΩ‚óã‚óè√ó+*/?';
+  const unit = seededUnit(seed, index);
+  return graphemes(glyphs)[Math.floor(unit * graphemes(glyphs).length)] ?? original;
+}
+
+function exitAfter(time, completeAt, holdMs, exitMs) {
+  if (time <= completeAt + holdMs || exitMs <= 0) return 1;
+  return clamp((completeAt + holdMs + exitMs - time) / exitMs);
+}
+
+function clamp(value) { return Math.max(0, Math.min(1, Number.isFinite(value) ? value : 0)); }

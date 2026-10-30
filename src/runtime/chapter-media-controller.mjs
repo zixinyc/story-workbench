@@ -1,2 +1,32 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞìµÕÍ¥I…¹•Ğô™É½´€œ¸¸½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•…Ñ•¡…ÁÑ•É5•‘¥…½¹ÑÉ½±±•È¡ì•Ñ¡…ÁÑ•È°•Ñ5ÕÍ¥M•ÍÍ¥½¸°•Ñ™™•ÑM•ÍÍ¥½¸ô¤ì(€±•Ğ…Ñ¥Ù•I…¹•%€ô¹Õ±°ì((€É•ÑÕÉ¸ì(€€€•¹Ñ•È¡Õ”¤ì(€€€€€½¹ÍĞÉ…¹”€ôµÕÍ¥I…¹•Ğ¡•Ñ¡…ÁÑ•È ¤°Õ”¹Á…É…É…Á¡%¤ì(€€€€€¥˜€¡É…¹”ü¹¥€„ôô…Ñ¥Ù•I…¹•%¤ì(€€€€€€€½¹ÍĞ¡…‘Ñ¥Ù•I…¹”€ô…Ñ¥Ù•I…¹•%€„ôô¹Õ±°ì(€€€€€€€…Ñ¥Ù•I…¹•%€ôÉ…¹”ü¹¥€üü¹Õ±°ì(€€€€€€€½¹ÍĞµÕÍ¥Œ€ô•Ñ5ÕÍ¥M•ÍÍ¥½¸ ¤ì(€€€€€€€¥˜€¡É…¹”¤ì(€€€€€€€€€µÕÍ¥Œü¹Í•ÑY½±Õµ”¡É…¹”¹Ù½±Õµ”¤ì(€€€€€€€€€µÕÍ¥Œü¹Í•Ñ1½½À¡É…¹”¹±½½À¤ì(€€€€€€€€€Ù½¥µÕÍ¥Œü¹ÍÑ…ÉĞ¡É…¹”¹…ÍÍ•Ñ%¤ì(€€€€€€€ô•±Í”¥˜€¡¡…‘Ñ¥Ù•I…¹”¤µÕÍ¥Œü¹ÍÑ½À ¤ì(€€€€€ô(€€€€€½¹ÍĞ•™™•ÑÌ€ô•Ñ™™•ÑM•ÍÍ¥½¸ ¤ì(€€€€€¥˜€¡Õ”¹Í•ÑÑ¥¹Ì¹…Õ‘¥½%¤Ù½¥•™™•ÑÌü¹ÍÑ…ÉĞ¡Õ”¹Í•ÑÑ¥¹Ì¹…Õ‘¥½%¤ì(€€€€€•±Í”•™™•ÑÌü¹ÍÑ½À ¤ì(€€€ô°(€€€Á…ÕÍ” ¤ì•Ñ5ÕÍ¥M•ÍÍ¥½¸ ¤ü¹Á…ÕÍ” ¤ì•Ñ™™•ÑM•ÍÍ¥½¸ ¤ü¹Á…ÕÍ” ¤ìô°(€€€É•ÍÕµ” ¤ì•Ñ5ÕÍ¥M•ÍÍ¥½¸ ¤ü¹É•ÍÕµ” ¤ì•Ñ™™•ÑM•ÍÍ¥½¸ ¤ü¹É•ÍÕµ” ¤ìô°(€€€Í••­™™•ÑÌ¡µ¥±±¥Í•½¹‘Ì¤ì•Ñ™™•ÑM•ÍÍ¥½¸ ¤ü¹Í••­5Ì¡µ¥±±¥Í•½¹‘Ì¤ìô°(€€€ÍÑ½À ¤ì(€€€€€…Ñ¥Ù•I…¹•%€ô¹Õ±°ì(€€€€€•Ñ5ÕÍ¥M•ÍÍ¥½¸ ¤ü¹ÍÑ½À ¤ì(€€€€€•Ñ™™•ÑM•ÍÍ¥½¸ ¤ü¹ÍÑ½À ¤ì(€€€ô°(€ôì)ô
+import { musicRangeAt } from '../domain/model/chapters.mjs';
+
+export function createChapterMediaController({ getChapter, getMusicSession, getEffectSession }) {
+  let activeRangeId = null;
+
+  return {
+    enter(cue) {
+      const range = musicRangeAt(getChapter(), cue.paragraphId);
+      if (range?.id !== activeRangeId) {
+        const hadActiveRange = activeRangeId !== null;
+        activeRangeId = range?.id ?? null;
+        const music = getMusicSession();
+        if (range) {
+          music?.setVolume(range.volume);
+          music?.setLoop(range.loop);
+          void music?.start(range.assetId);
+        } else if (hadActiveRange) music?.stop();
+      }
+      const effects = getEffectSession();
+      if (cue.settings.audioId) void effects?.start(cue.settings.audioId);
+      else effects?.stop();
+    },
+    pause() { getMusicSession()?.pause(); getEffectSession()?.pause(); },
+    resume() { getMusicSession()?.resume(); getEffectSession()?.resume(); },
+    seekEffects(milliseconds) { getEffectSession()?.seekMs(milliseconds); },
+    stop() {
+      activeRangeId = null;
+      getMusicSession()?.stop();
+      getEffectSession()?.stop();
+    },
+  };
+}

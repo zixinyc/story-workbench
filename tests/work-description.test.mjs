@@ -1,11 +1,153 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞìÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ°É•…Ñ•I•Ù¥•İ½Õµ•¹ÑÌô™É½´€œ¸¸½ÍÉŒ½…¤µÉ•Ù¥•Ü½É•Ù¥•ÜµÁ…­…”¹µ©Ìœì)¥µÁ½ÉĞìÉ•…Ñ•]½É­•ÍÉ¥ÁÑ¥½¸ô™É½´€œ¸¸½ÍÉŒ½…¤µÉ•Ù¥•Ü½İ½É¬µ‘•ÍÉ¥ÁÑ¥½¸¹µ©Ìœì)¥µÁ½ÉĞìÉ•…Ñ•A…É…É…Á¡É½ÕÀ°Í•Ñ5ÕÍ¥I…¹”°…Ñ¥Ù•¡…ÁÑ•Èô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì)¥µÁ½ÉĞìÉ•…Ñ••µ½AÉ½©•Ğô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ğ¹µ©Ìœì()™Õ¹Ñ¥½¸™¥áÑÕÉ•AÉ½©•Ğ ¤ì(€±•ĞÁÉ½©•Ğ€ôÉ•…Ñ••µ½AÉ½©•Ğ ¤ì(€½¹ÍĞ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì(€½¹ÍĞ¥‘Ì€ô¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹µ…À ¡‰±½¬¤€ôø‰±½¬¹¥¤ì(€±•Ğ¹•áĞ€ôÉ•…Ñ•A…É…É…Á¡É½ÕÀ¡¡…ÁÑ•È°¥‘Ì¹Í±¥” À°€È¤°€Ÿ²³’âîœ¤ì(€¹•áĞ€ôÍ•Ñ5ÕÍ¥I…¹”¡¹•áĞ°€…ÍÍ•Ğµ‰´œ°¥‘Ì¹Í±¥” À°€È¤°ìÙ½±Õµ”è€À¸Ü°±½½ÀèÑÉÕ”ô¤ì(€ÁÉ½©•Ğ€ôì(€€€€¸¸¹ÁÉ½©•Ğ°(€€€…ÍÍ•ÑÌèl(€€€€€ì¥è€…ÍÍ•Ğµ‰œœ°¹…µ”è€Ÿ–’s¢†\¹©Áœœ°­¥¹è€¥µ…”œ°µ¥µ”è€¥µ…”½©Á•œœ°Í¥é”è€ÄÀÀ°İ¥‘Ñ è€ÄäÈÀ°¡•¥¡Ğè€ÄÀàÀô°(€€€€€ì¥è€…ÍÍ•Ğµ¥µœœ°¹…µ”è€Ÿêãšv„¹Á¹œœ°­¥¹è€¥µ…”œ°µ¥µ”è€¥µ…”½Á¹œœ°Í¥é”è€ÔÀ°İ¥‘Ñ è€ØĞÀ°¡•¥¡Ğè€ÌØÀô°(€€€€€ì¥è€…ÍÍ•ĞµÍ™àœ°¹…µ”è€Ÿ¦n£–À¹İ…Øœ°­¥¹è€…Õ‘¥¼œ°µ¥µ”è€…Õ‘¥¼½İ…Øœ°Í¥é”è€àÀô°(€€€€€ì¥è€…ÍÍ•Ğµ‰´œ°¹…µ”è€Ÿ–ò›’æ@¹½œœ°­¥¹è€…Õ‘¥¼œ°µ¥µ”è€…Õ‘¥¼½½œœ°Í¥é”è€äÀô°(€€€t°(€€€¡…ÁÑ•ÉÌèÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹µ…À ¡¥Ñ•´¤€ôø¥Ñ•´¹¥€ôôô¡…ÁÑ•È¹¥€ü¹•áĞ€è¥Ñ•´¤°(€ôì(€½¹ÍĞÕÉÉ•¹Ğ€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì(€½¹ÍĞ•áÁ±¥¥Ğ€ôÕÉÉ•¹Ğ¹‘½Õµ•¹Ğ¹‰±½­Ì¹™±…Ñ5…À ¡Á…É…É…Á ¤€ôøÁ…É…É…Á ¹¡¥±‘É•¸¹™¥±Ñ•È ¡¹½‘”¤€ôø¹½‘”¹ÑåÁ”€ôôô€Õ”œ¤¹µ…À ¡Õ”¤€ôø€¡ìÕ”°Á…É…É…Á ô¤¤¤ì(€€¼¼ƒ²³’â–>—¢ºû¢3šf¿’â;–nû–Æ¾ò3²³’ê3–>—’â7¢ºû¾ò3R£šv—¦ª3¢¾‹šr³–>—¢ºûö¸€¼ƒšÊÿR£–&7–>”‹j–2ë–"(€½¹ÍĞ™¥ÉÍĞ€ô•áÁ±¥¥ÑlÁt¹Õ”ì(€™¥ÉÍĞ¹Í•ÑÑ¥¹Ì€ôì€¸¸¹™¥ÉÍĞ¹Í•ÑÑ¥¹Ì°‰…­É½Õ¹‘%è€…ÍÍ•Ğµ‰œœ°ÍÁ•…­•Èè€Ÿ–êS–¶CšÆ@œ°µ½Ñ¥½¸è€‘•½‘”œ°µ½Ñ¥½¹M•ÑÑ¥¹ÌèìÍ••è€Ü°ÍÑ…ÉÑ5Ìè€ĞÀÀ°¡…ÉMÑ•Á5Ìè€ÄÀÀ°Í•ÑÑ±•5Ìè€àÀ°¡½±‘5Ìè€ÄÈÀÀ°•á¥Ñ5Ìè€ÌÀÀô°Í•¹•1…å•ÉÌèmì¥è€±…å•È´Äœ°…ÍÍ•Ñ%è€…ÍÍ•Ğµ¥µœœ°àè€ÄÀÀ°äè€ÈÀÀ°İ¥‘Ñ è€ØĞÀ°¡•¥¡Ğè€ÌØÀ°½Á…¥Ñäè€À¸à°é%¹‘•àè€Ä°É½Ñ…Ñ¥½¸è€ĞÔ°É½Àèì±•™Ğè€À¸Ä°Ñ½Àè€À°É¥¡Ğè€À°‰½ÑÑ½´è€Àôõt°…Õ‘¥½%è€…ÍÍ•ĞµÍ™àœôì(€½¹ÍĞÍ•½¹€ô•áÁ±¥¥ÑlÅtü¹Õ”ì(€¥˜€¡Í•½¹¤ì½¹ÍĞì‰…­É½Õ¹‘%°Í•¹•1…å•ÉÌ°€¸¸¹É•ÍĞô€ôÍ•½¹¹Í•ÑÑ¥¹ÌìÍ•½¹¹Í•ÑÑ¥¹Ì€ôÉ•ÍĞìô(€É•ÑÕÉ¸ÁÉ½©•Ğì)ô()½¹ÍĞ‰…Í•!…Í €ô€¡…Í µ™½ÈµÑ•ÍĞœì)½¹ÍĞ½…°€ô€Ÿ¢º§–ú«:¿ššnÓ–òèœì()Ñ•ÍĞ Ÿ’ös–N¢¾Óšb;¢«–â›’â+’â/šZ¾ò3’â7’úw¢Ö[š^Ÿ–¾ç¢¾w¾ò3’âS’â7ò[¦ƒ¢ö¿’îÛšÊ‡šr'jšVÃš6¸œ°€ ¤€ôøì(€½¹ÍĞÁÉ½©•Ğ€ô™¥áÑÕÉ•AÉ½©•Ğ ¤ì(€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÁÉ½©•Ğ°ìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%èÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ô¤ì(€½¹ÍĞÑ•áĞ€ôÉ•…Ñ•]½É­•ÍÉ¥ÁÑ¥½¸¡Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °½…°¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Ñ•áĞ°€¿šÊ‡šr'r/¢ş’æ/–&7–¾ç¢¾t¼¤ì(€…ÍÍ•ÉĞ¹½¬ …Ñ•áĞ¹¥¹±Õ‘•Ì Ÿ’öƒ–êS¢¾—~—¦O’æ/–&7j¢º£¢ºèœ¤¤ì(€…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì¡‰…Í•!…Í ¤°€Ÿ–ş¦†ï–â›–~ëêÿš2êäœ¤ì(€…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì¡ÁÉ½©•Ğ¹¹…µ”¤¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Ñ•áĞ°€¿šr«š>C’úl¼°€Ÿ¢ö¿’îÛšÊ‡šr'’êë&§¢†£¾ò3–ş¦†ï–gšb;šr«š>C’úo¢3’â7šb¿ò[¦€œ¤ì)ô¤ì()Ñ•ÍĞ Ÿ’ös–N¢¾Óšb;îg–ë¢Ï–ºh%ƒ’â;š¶šZ–£šZ¾ò3–>¿nÓš:—–ºk’ö7¢ššRç–N«’â–>”œ°€ ¤€ôøì(€½¹ÍĞÁÉ½©•Ğ€ô™¥áÑÕÉ•AÉ½©•Ğ ¤ì(€½¹ÍĞ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì(€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÁÉ½©•Ğ°ìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%è¡…ÁÑ•È¹¥ô¤ì(€½¹ÍĞÑ•áĞ€ôÉ•…Ñ•]½É­•ÍÉ¥ÁÑ¥½¸¡Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °½…°¤ì(€½¹ÍĞÕ•%‘Ì€ô¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹™±…Ñ5…À ¡‰±½¬¤€ôø‰±½¬¹¡¥±‘É•¸¹™¥±Ñ•È ¡¹½‘”¤€ôø¹½‘”¹ÑåÁ”€ôôô€Õ”œ¤¹µ…À ¡¹½‘”¤€ôø¹½‘”¹¥¤¤ì(€™½È€¡½¹ÍĞÕ•%½˜Õ•%‘Ì¤…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì¡Õ•%¤°ƒòë–ÂGšòS–ë–>”%€‘íÕ•%‘õ€¤ì(€…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì¡¡…ÁÑ•È¹É½ÕÁÍlÁt¹¥¤°€Ÿòë–ÂGî%œ¤ì(€™½È€¡½¹ÍĞ‰±½¬½˜¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¤…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì¡‰±½¬¹¥¤°ƒòë–ÂGšº×¢Bô%€‘í‰±½¬¹¥‘õ€¤ì)ô¤ì()Ñ•ÍĞ Ÿ’ös–N¢¾Óšb;–2ë–"šr³–>—¢ºûö»’â;šÊÿR£–&7–>—¾ò3’â7š*+îŸš&ÿ–gš"Cš^ƒ¢3šf¼œ°€ ¤€ôøì(€½¹ÍĞÁÉ½©•Ğ€ô™¥áÑÕÉ•AÉ½©•Ğ ¤ì(€½¹ÍĞ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì(€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÁÉ½©•Ğ°ìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%è¡…ÁÑ•È¹¥ô¤ì(€½¹ÍĞÑ•áĞ€ôÉ•…Ñ•]½É­•ÍÉ¥ÁÑ¥½¸¡Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °½…°¤ì(€…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì Ÿšr³–>—¢ºûö¸œ¤°€Ÿ¢ºûö»’ê¢3šf¿j¦
-–>—–êSš‚’âëšr³–>—¢ºûö¸œ¤ì(€…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì ŸšÊÿR£–&7–>”œ¤°€Ÿ–Û–B;j–>—–¶C–êSš‚’âëšÊÿR£–&7–>”œ¤ì(€€¼¼ƒ¢ºûö»¢3šf¿’æ/–&7j–>—–¶Cšr³šv—–ÂÇšÊ‡šr'¢3šf¿–>¿îŸš&ÿ¾ò3¦
-–’–ë:À‹š^ƒ¢3šf¼‹šb¿š¶†»j(€½¹ÍĞ±¥¹•Ì€ôÑ•áĞ¹ÍÁ±¥Ğ q¸œ¤ì(€½¹ÍĞ¥¹¡•É¥Ñ•€ô±¥¹•Ì¹™¥±Ñ•È ¡±¥¹”¤€ôø±¥¹”¹¥¹±Õ‘•Ì Ÿ¢3šf¿¾òkšÊÿR£–&7–>”œ¤¤ì(€…ÍÍ•ÉĞ¹½¬¡¥¹¡•É¥Ñ•¹±•¹Ñ €ø€À°€Ÿ¢Ï–ÂG–êSšr'–>—–¶CšÊÿR£–&7–>—¢3šf¼œ¤ì(€…ÍÍ•ÉĞ¹½¬¡¥¹¡•É¥Ñ•¹•Ù•Éä ¡±¥¹”¤€ôø±¥¹”¹¥¹±Õ‘•Ì Ÿ–’s¢†\¹©Áœœ¤¤°€ŸšÊÿR£š^Û–ş¦†ï–g–ë–º{¦fRšV#j¢3šf¿ÒƒšvC¾ò3’â7¢÷–>«–d‹šÊÿR£–&7–>”‹¢3Vg¦èœ¤ì)ô¤ì()Ñ•ÍĞ Ÿ’ös–N¢¾Óšb;–B3š^Ûîg–ë–*£šV#šbO¢¾ï–B7Ã’â;–¦ %¾ò3–æÛ–g–ë–º{¦f–>šVÀœ°€ ¤€ôøì(€½¹ÍĞÁÉ½©•Ğ€ô™¥áÑÕÉ•AÉ½©•Ğ ¤ì(€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÁÉ½©•Ğ°ìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%èÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ô¤ì(€½¹ÍĞÑ•áĞ€ôÉ•…Ñ•]½É­•ÍÉ¥ÁÑ¥½¸¡Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °½…°¤ì(€…ÍÍ•ÉĞ¹½¬¡Ñ•áĞ¹¥¹±Õ‘•Ì ÀÄƒ¢‚šbû–¶\œ¤°€Ÿ–êSšr'š`V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅé>Šû¾YŞz{r“°¢76W'Bæö²‡FW‡Bæ–æ6ÇVFW2‚vÖ÷F–öä–C¢FV6öFRr’Â~[©NYÎi{n{¹Xh^˜:‚”Br“°¢76W'Bæö²‚÷6VVCÓròçFW7B‡FW‡B’Â~[©NXiX{®Zéî™˜^yIşiXXø.i[r“°§Ò“° §FW7B‚~xºÎz¸¾KÙÎY8ŠûNiˆîKˆŞY
-¾Z©.KÙ>i{niˆîzîZ;iˆîûÈÎKˆŞˆ;ŞŠê’vVçBZ;z{yÈ¾‹ø~Z©.KÙ2rÂ‚’Óâ°¢6öç7B&ö¦V7BÒf—‡GW&U&ö¦V7B‚“°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ²G—S¢v6†FW"rÂ6†FW$–C¢&ö¦V7Bæ7F—fT6†FW$–BÒ“°¢6öç7BFW‡BÒ7&VFUv÷&´FW67&—F–öâ‡6æ6†÷BÂ&6T†6‚ÂvöÂÂæWr6WB‚’ÂfÇ6R“°¢76W'BæÖF6‚‡FW‡BÂşiÊ®™˜N[ŠnK»¾KÙ^Z©.KÙ>ih~K»bò“°¢76W'BæÖF6‚‡FW‡BÂşKˆŞŠhZ;z{yÈ¾‹ø~Y»îx˜~h‰nY
-Î‹ø~Z;™û2ò“°¢6öç7BF&ÆRÒFW‡Bç7Æ—B‚r22Kˆ>8{JiÙkˆ^XÙRr•³Òóòrs°¢76W'BæÖF6‚‡F&ÆRÂõÇÂY
-bÇÂò“°§Ò“° §FW7B‚~™¨şXÈ^™˜N[ŠnZ©.KÙ>i{n{¹X{®XÈ^Xh^y»Zû‹zş[èNûÈÎK‰NKˆŞXiiÊÎiË®{¹ŞZû‹zş[èBrÂ‚’Óâ°¢6öç7B&ö¦V7BÒf—‡GW&U&ö¦V7B‚“°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ²G—S¢v6†FW"rÂ6†FW$–C¢&ö¦V7Bæ7F—fT6†FW$–BÒ“°¢6öç7BGF6†VBÒæWr6WB‡6æ6†÷Bæ76WG2æÖ‚†76WB’Óâ76WBæ–B’“°¢6öç7BFW‡BÒ7&VFUv÷&´FW67&—F–öâ‡6æ6†÷BÂ&6T†6‚ÂvöÂÂGF6†VBÂG'VR“°¢76W'BæÖF6‚‡FW‡BÂşZ©.KÙ5Âö76WBÖ&uÂæ§rò“°¢76W'Bæö²‚õ´Õ¦×¥Ó¥ÅÂòçFW7B‡FW‡B’Â~KˆŞ[©NZûÎX{®iÊÎiË®{¹ŞZû‹zş[èBr“°§Ò“° §FW7B‚~KÙÎY8ŠûNiˆîh¨®ˆ8Îišş™û>K™Xih‰hÈ{¸N‹ùî{ºŞŠhny¹nûÈÎˆÎKˆŞiŠşjøşXú^˜xŞi*ÒrÂ‚’Óâ°¢6öç7B&ö¦V7BÒf—‡GW&U&ö¦V7B‚“°¢6öç7B6†FW"Ò7F—fT6†FW"‡&ö¦V7B“°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ²G—S¢v6†FW"rÂ6†FW$–C¢6†FW"æ–BÒ“°¢6öç7BFW‡BÒ7&VFUv÷&´FW67&—F–öâ‡6æ6†÷BÂ&6T†6‚ÂvöÂ“°¢76W'Bæö²‡FW‡Bæ–æ6ÇVFW2‚~hÈ{¸NŠhny¹ny¨N‹ùî{ºŞi*ŞiKâr’Â~[ø^š¾Xiiˆâ$tÒiŠş{¸NˆÈ>Y»N‹ùî{ºŞi*ŞiKâr“°¢76W'Bæö²‡FW‡Bæ–æ6ÇVFW2‚~[ÊnK™æövrr’“°¢76W'Bæö²‡FW‡Bæ–æ6ÇVFW2‚~™û>˜xòãrr’“°§Ò“° §FW7B‚~KÙÎY8ŠûNiˆîiˆîzîX‰~X{®‹ÚşK»nKˆŞiJşhÈ8™ÈKÙÎˆ^ZHNyny¨NXªKÙÂrÂ‚’Óâ°¢6öç7B&ö¦V7BÒf—‡GW&U&ö¦V7B‚“°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ²G—S¢v6†FW"rÂ6†FW$–C¢&ö¦V7Bæ7F—fT6†FW$–BÒ“°¢6öç7BFW‡BÒ7&VFUv÷&´FW67&—F–öâ‡6æ6†÷BÂ&6T†6‚ÂvöÂ“°¢f÷"†6öç7B—FVÒöb²~ikZ)îh‰nXŠ™šNzºˆ¨"rÂ~˜xŞ{¸N{¸N{¹>ièBrÂ~[˜:ZÙ~ˆ›"uÒ’°¢76W'Bæö²‡FW‡Bæ–æ6ÇVFW2†—FVÒ’ÂiÊ®X‰~X{®iÊ®iJşhÈšûÉ¢G¶—FV×Ö“°¢Ğ§Ò“° §FW7B‚~ZèÎi[NZê™ˆ^XÈ^Xh^Y
-¾YÎKˆK»ŞKÙÎY8ŠûNiˆîûÈÎK‰NhùzK®ŠøŞŠhk.XøÎ{¹>iéÎXˆn[ÈrÂ‚’Óâ°¢6öç7B&ö¦V7BÒf—‡GW&U&ö¦V7B‚“°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ²G—S¢v6†FW"rÂ6†FW$–C¢&ö¦V7Bæ7F—fT6†FW$–BÒ“°¢6öç7Bf–ÆW2Ò7&VFU&Wf–WtFö7VÖVçG2‡6æ6†÷BÂ&6T†6‚ÂvöÂ“°¢76W'Bæö²†f–ÆW5²~KÙÎY8ŠûNiˆâæÖBuÒÂu¤•Xh^[ø^š¾Y
-¾KÙÎY8ŠûNiˆâr“°¢76W'Bæö²†f–ÆW5²~KÙÎY8ŠûNiˆâæÖBuÒæ–æ6ÇVFW2†&6T†6‚’“°¢6öç7B&ö×BÒf–ÆW5²~iK‹ù¾hùzK®ŠøÒæÖBuÓ°¢76W'Bæö²‡&ö×Bæ–æ6ÇVFW2‚~Zê™ˆ^hHşŠxæÖBr’Â~hùzK®ŠøŞ[©NŠhk.Kª~X{®Zê™ˆ^hHşŠxr“°¢76W'Bæö²‡&ö×Bæ–æ6ÇVFW2‚~iK‹ù¾[»®Šêâæ§6öâr’Â~hùzK®ŠøŞ[©NŠhk.Kª~X{®XúşZûÎY¹â¥4ôâr“°¢76W'Bæö²‡&ö×Bæ–æ6ÇVFW2‚~KŠNK»Òr’Â~hùzK®ŠøŞ[©N[Ë®‹>KŠNK»ŞXˆn[Èr“°¢76W'Bæö²‚&ö×Bæ–æ6ÇVFW2‚~Xú®‹é>X{®zÊnY‚r’Â~iz~y¨B.Xú®‹é>X{¢¥4ôâ.Xú>[èN[©N[{.z{¾™šBr“°¢76W'BæÖF6‚†f–ÆW5²~™ˆ^Šû¾ŠûNiˆâæÖBuÒÂşKÙÎY8ŠûNiˆåÂæÖBò“°§Ò“° §FW7B‚~hÈ{¸NZûÎX{®Xú®XÈ^Y
-¾˜KŠŞy¨N{¸NûÈÎ[›nŠûNiˆîˆÈ>Y»BrÂ‚’Óâ°¢6öç7B&ö¦V7BÒf—‡GW&U&ö¦V7B‚“°¢6öç7B6†FW"Ò7F—fT6†FW"‡&ö¦V7B“°¢6öç7BF&vWBÒ6†FW"æw&÷W5³Ó°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ²G—S¢vw&÷W2rÂ6†FW$–C¢6†FW"æ–BÂw&÷W–G3¢·F&vWBæ–EÒÒ“°¢76W'BæWVÂ‡6æ6†÷Bæ6†FW'2æÆVæwF‚Â“°¢76W'BæWVÂ‡6æ6†÷Bæ6†FW'5³Òæw&÷W2æÆVæwF‚Â“°¢76W'BæWVÂ‡6æ6†÷Bæ6†FW'5³ÒæFö7VÖVçBæ&Æö6·2æÆVæwF‚ÂF&vWBç&w&„–G2æÆVæwF‚“°¢6öç7BFW‡BÒ7&VFUv÷&´FW67&—F–öâ‡6æ6†÷BÂ&6T†6‚ÂvöÂ“°¢76W'BæÖF6‚‡FW‡BÂşhÈ~Zé®{¸Bò“°¢76W'Bæö²‚FW‡Bæ–æ6ÇVFW2†6†FW"æFö7VÖVçBæ&Æö6·2æB‚Ó’æ–B’Â~ˆÈ>Y»NZIny¨Një^‰ŞKˆŞ[©NX{®xër“°§Ò“° §FW7B‚~ZûÎX{®KÙÎY8ŠûNiˆîKˆŞiKXª[z^zˆ¾iÊÎ‹ª¾ûÈXú®Šû¾[ú¾xZ~ûÈ’rÂ‚’Óâ°¢6öç7B&ö¦V7BÒf—‡GW&U&ö¦V7B‚“°¢6öç7B&Vf÷&RÒ¥4ôâç7G&–æv–g’‡&ö¦V7B“°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ²G—S¢v6†FW"rÂ6†FW$–C¢&ö¦V7Bæ7F—fT6†FW$–BÒ“°¢7&VFUv÷&´FW67&—F–öâ‡6æ6†÷BÂ&6T†6‚ÂvöÂÂæWr6WB‚’ÂfÇ6R“°¢76W'BæWVÂ„¥4ôâç7G&–æv–g’‡&ö¦V7B’Â&Vf÷&RÂ~yIşh‰ih~j>KˆŞ[é~KúîiK[z^zˆ¾i[hÚâr“°§Ò“°
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { createReviewSnapshot, createReviewDocuments } from '../src/ai-review/review-package.mjs';
+import { createWorkDescription } from '../src/ai-review/work-description.mjs';
+import { createParagraphGroup, setMusicRange, activeChapter } from '../src/domain/model/chapters.mjs';
+import { createDemoProject } from '../src/domain/model/project.mjs';
+
+function fixtureProject() {
+  let project = createDemoProject();
+  const chapter = activeChapter(project);
+  const ids = chapter.document.blocks.map((block) => block.id);
+  let next = createParagraphGroup(chapter, ids.slice(0, 2), 'ç¬¬ä¸€ç»„');
+  next = setMusicRange(next, 'asset-bgm', ids.slice(0, 2), { volume: 0.7, loop: true });
+  project = {
+    ...project,
+    assets: [
+      { id: 'asset-bg', name: 'å¤œè¡—.jpg', kind: 'image', mime: 'image/jpeg', size: 100, width: 1920, height: 1080 },
+      { id: 'asset-img', name: 'çº¸æ¡.png', kind: 'image', mime: 'image/png', size: 50, width: 640, height: 360 },
+      { id: 'asset-sfx', name: 'é›¨å£°.wav', kind: 'audio', mime: 'audio/wav', size: 80 },
+      { id: 'asset-bgm', name: 'å¼¦ä¹.ogg', kind: 'audio', mime: 'audio/ogg', size: 90 },
+    ],
+    chapters: project.chapters.map((item) => item.id === chapter.id ? next : item),
+  };
+  const current = activeChapter(project);
+  const explicit = current.document.blocks.flatMap((paragraph) => paragraph.children.filter((node) => node.type === 'cue').map((cue) => ({ cue, paragraph })));
+  // ç¬¬ä¸€å¥è®¾èƒŒæ™¯ä¸å›¾å±‚ï¼Œç¬¬äºŒå¥ä¸è®¾ï¼Œç”¨æ¥éªŒè¯"æœ¬å¥è®¾ç½® / æ²¿ç”¨å‰å¥"çš„åŒºåˆ†
+  const first = explicit[0].cue;
+  first.settings = { ...first.settings, backgroundId: 'asset-bg', speaker: 'åº”å­æ±', motion: 'decode', motionSettings: { seed: 7, startMs: 400, charStepMs: 100, settleMs: 80, holdMs: 1200, exitMs: 300 }, sceneLayers: [{ id: 'layer-1', assetId: 'asset-img', x: 100, y: 200, width: 640, height: 360, opacity: 0.8, zIndex: 1, rotation: 45, crop: { left: 0.1, top: 0, right: 0, bottom: 0 } }], audioId: 'asset-sfx' };
+  const second = explicit[1]?.cue;
+  if (second) { const { backgroundId, sceneLayers, ...rest } = second.settings; second.settings = rest; }
+  return project;
+}
+
+const baseHash = 'hash-for-test';
+const goal = 'è®©å¾ªç¯æ„Ÿæ›´å¼º';
+
+test('ä½œå“è¯´æ˜è‡ªå¸¦ä¸Šä¸‹æ–‡ï¼Œä¸ä¾èµ–æ—§å¯¹è¯ï¼Œä¸”ä¸ç¼–é€ è½¯ä»¶æ²¡æœ‰çš„æ•°æ®', () => {
+  const project = fixtureProject();
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: project.activeChapterId });
+  const text = createWorkDescription(snapshot, baseHash, goal);
+  assert.match(text, /æ²¡æœ‰çœ‹è¿‡ä¹‹å‰å¯¹è¯/);
+  assert.ok(!text.includes('ä½ åº”è¯¥çŸ¥é“ä¹‹å‰çš„è®¨è®º'));
+  assert.ok(text.includes(baseHash), 'å¿…é¡»å¸¦åŸºçº¿æŒ‡çº¹');
+  assert.ok(text.includes(project.name));
+  assert.match(text, /æœªæä¾›/, 'è½¯ä»¶æ²¡æœ‰äººç‰©è¡¨ï¼Œå¿…é¡»å†™æ˜æœªæä¾›è€Œä¸æ˜¯ç¼–é€ ');
+});
+
+test('ä½œå“è¯´æ˜ç»™å‡ºç¨³å®š ID ä¸æ­£æ–‡å…¨æ–‡ï¼Œå¯ç›´æ¥å®šä½è¦æ”¹å“ªä¸€å¥', () => {
+  const project = fixtureProject();
+  const chapter = activeChapter(project);
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: chapter.id });
+  const text = createWorkDescription(snapshot, baseHash, goal);
+  const cueIds = chapter.document.blocks.flatMap((block) => block.children.filter((node) => node.type === 'cue').map((node) => node.id));
+  for (const cueId of cueIds) assert.ok(text.includes(cueId), `ç¼ºå°‘æ¼”å‡ºå¥ ID ${cueId}`);
+  assert.ok(text.includes(chapter.groups[0].id), 'ç¼ºå°‘ç»„ ID');
+  for (const block of chapter.document.blocks) assert.ok(text.includes(block.id), `ç¼ºå°‘æ®µè½ ID ${block.id}`);
+});
+
+test('ä½œå“è¯´æ˜åŒºåˆ†æœ¬å¥è®¾ç½®ä¸æ²¿ç”¨å‰å¥ï¼Œä¸æŠŠç»§æ‰¿å†™æˆæ— èƒŒæ™¯', () => {
+  const project = fixtureProject();
+  const chapter = activeChapter(project);
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: chapter.id });
+  const text = createWorkDescription(snapshot, baseHash, goal);
+  assert.ok(text.includes('æœ¬å¥è®¾ç½®'), 'è®¾ç½®äº†èƒŒæ™¯çš„é‚£å¥åº”æ ‡ä¸ºæœ¬å¥è®¾ç½®');
+  assert.ok(text.includes('æ²¿ç”¨å‰å¥'), 'å…¶åçš„å¥å­åº”æ ‡ä¸ºæ²¿ç”¨å‰å¥');
+  // è®¾ç½®èƒŒæ™¯ä¹‹å‰çš„å¥å­æœ¬æ¥å°±æ²¡æœ‰èƒŒæ™¯å¯ç»§æ‰¿ï¼Œé‚£å¤„å‡ºç°"æ— èƒŒæ™¯"æ˜¯æ­£ç¡®çš„
+  const lines = text.split('\n');
+  const inherited = lines.filter((line) => line.includes('èƒŒæ™¯ï¼šæ²¿ç”¨å‰å¥'));
+  assert.ok(inherited.length > 0, 'è‡³å°‘åº”æœ‰å¥å­æ²¿ç”¨å‰å¥èƒŒæ™¯');
+  assert.ok(inherited.every((line) => line.includes('å¤œè¡—.jpg')), 'æ²¿ç”¨æ—¶å¿…é¡»å†™å‡ºå®é™…ç”Ÿæ•ˆçš„èƒŒæ™¯ç´ æï¼Œä¸èƒ½åªå†™"æ²¿ç”¨å‰å¥"è€Œç•™ç©º');
+});
+
+test('ä½œå“è¯´æ˜åŒæ—¶ç»™å‡ºåŠ¨æ•ˆæ˜“è¯»åç§°ä¸å†…éƒ¨ IDï¼Œå¹¶å†™å‡ºå®é™…å‚æ•°', () => {
+  const project = fixtureProject();
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: project.activeChapterId });
+  const text = createWorkDescription(snapshot, baseHash, goal);
+  assert.ok(text.includes('D01 è§£ç æ˜¾å­—'), 'åº”æœ‰æ˜“è¯»åç§°');
+  assert.ok(text.includes('motionId: decode'), 'åº”åŒæ—¶ç»™å†…éƒ¨ ID');
+  assert.ok(/seed=7/.test(text), 'åº”å†™å‡ºå®é™…ç”Ÿæ•ˆå‚æ•°');
+});
+
+test('ç‹¬ç«‹ä½œå“è¯´æ˜ä¸å«åª’ä½“æ—¶æ˜ç¡®å£°æ˜ï¼Œä¸èƒ½è®© agent å£°ç§°çœ‹è¿‡åª’ä½“', () => {
+  const project = fixtureProject();
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: project.activeChapterId });
+  const text = createWorkDescription(snapshot, baseHash, goal, new Set(), false);
+  assert.match(text, /æœªé™„å¸¦ä»»ä½•åª’ä½“æ–‡ä»¶/);
+  assert.match(text, /ä¸è¦å£°ç§°çœ‹è¿‡å›¾ç‰‡æˆ–å¬è¿‡å£°éŸ³/);
+  const table = text.split('## ä¸ƒã€ç´ ææ¸…å•')[1] ?? '';
+  assert.match(table, /\| å¦ \|/);
+});
+
+test('éšåŒ…é™„å¸¦åª’ä½“æ—¶ç»™å‡ºåŒ…å†…ç›¸å¯¹è·¯å¾„ï¼Œä¸”ä¸å†™æœ¬æœºç»å¯¹è·¯å¾„', () => {
+  const project = fixtureProject();
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: project.activeChapterId });
+  const attached = new Set(snapshot.assets.map((asset) => asset.id));
+  const text = createWorkDescription(snapshot, baseHash, goal, attached, true);
+  assert.match(text, /åª’ä½“\/asset-bg\.jpg/);
+  assert.ok(!/[A-Za-z]:\\/.test(text), 'ä¸åº”å¯¼å‡ºæœ¬æœºç»å¯¹è·¯å¾„');
+});
+
+test('ä½œå“è¯´æ˜æŠŠèƒŒæ™¯éŸ³ä¹å†™æˆæŒ‰ç»„è¿ç»­è¦†ç›–ï¼Œè€Œä¸æ˜¯æ¯å¥é‡æ’­', () => {
+  const project = fixtureProject();
+  const chapter = activeChapter(project);
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: chapter.id });
+  const text = createWorkDescription(snapshot, baseHash, goal);
+  assert.ok(text.includes('æŒ‰ç»„è¦†ç›–çš„è¿ç»­æ’­æ”¾'), 'å¿…é¡»å†™æ˜ BGM æ˜¯ç»„èŒƒå›´è¿ç»­æ’­æ”¾');
+  assert.ok(text.includes('å¼¦ä¹.ogg'));
+  assert.ok(text.includes('éŸ³é‡ 0.7'));
+});
+
+test('ä½œå“è¯´æ˜æ˜ç¡®åˆ—å‡ºè½¯ä»¶ä¸æ”¯æŒã€éœ€ä½œè€…å¤„ç†çš„åŠ¨ä½œ', () => {
+  const project = fixtureProject();
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: project.activeChapterId });
+  const text = createWorkDescription(snapshot, baseHash, goal);
+  for (const item of ['æ–°å¢æˆ–åˆ é™¤ç« èŠ‚', 'é‡ç»„ç»„ç»“æ„', 'å±€éƒ¨å­—è‰²']) {
+    assert.ok(text.includes(item), `æœªåˆ—å‡ºæœªæ”¯æŒé¡¹ï¼š${item}`);
+  }
+});
+
+test('å®Œæ•´å®¡é˜…åŒ…å†…å«åŒä¸€ä»½ä½œå“è¯´æ˜ï¼Œä¸”æç¤ºè¯è¦æ±‚åŒç»“æœåˆ†å¼€', () => {
+  const project = fixtureProject();
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: project.activeChapterId });
+  const files = createReviewDocuments(snapshot, baseHash, goal);
+  assert.ok(files['ä½œå“è¯´æ˜.md'], 'ZIP å†…å¿…é¡»å«ä½œå“è¯´æ˜');
+  assert.ok(files['ä½œå“è¯´æ˜.md'].includes(baseHash));
+  const prompt = files['æ”¹è¿›æç¤ºè¯.md'];
+  assert.ok(prompt.includes('å®¡é˜…æ„è§.md'), 'æç¤ºè¯åº”è¦æ±‚äº§å‡ºå®¡é˜…æ„è§');
+  assert.ok(prompt.includes('æ”¹è¿›å»ºè®®.json'), 'æç¤ºè¯åº”è¦æ±‚äº§å‡ºå¯å¯¼å› JSON');
+  assert.ok(prompt.includes('ä¸¤ä»½'), 'æç¤ºè¯åº”å¼ºè°ƒä¸¤ä»½åˆ†å¼€');
+  assert.ok(!prompt.includes('åªè¾“å‡ºç¬¦åˆ'), 'æ—§çš„"åªè¾“å‡º JSON"å£å¾„åº”å·²ç§»é™¤');
+  assert.match(files['é˜…è¯»è¯´æ˜.md'], /ä½œå“è¯´æ˜\.md/);
+});
+
+test('æŒ‰ç»„å¯¼å‡ºåªåŒ…å«é€‰ä¸­çš„ç»„ï¼Œå¹¶è¯´æ˜èŒƒå›´', () => {
+  const project = fixtureProject();
+  const chapter = activeChapter(project);
+  const target = chapter.groups[0];
+  const snapshot = createReviewSnapshot(project, { type: 'groups', chapterId: chapter.id, groupIds: [target.id] });
+  assert.equal(snapshot.chapters.length, 1);
+  assert.equal(snapshot.chapters[0].groups.length, 1);
+  assert.equal(snapshot.chapters[0].document.blocks.length, target.paragraphIds.length);
+  const text = createWorkDescription(snapshot, baseHash, goal);
+  assert.match(text, /æŒ‡å®šç»„/);
+  assert.ok(!text.includes(chapter.document.blocks.at(-1).id), 'èŒƒå›´å¤–çš„æ®µè½ä¸åº”å‡ºç°');
+});
+
+test('å¯¼å‡ºä½œå“è¯´æ˜ä¸æ”¹åŠ¨å·¥ç¨‹æœ¬èº«ï¼ˆåªè¯»å¿«ç…§ï¼‰', () => {
+  const project = fixtureProject();
+  const before = JSON.stringify(project);
+  const snapshot = createReviewSnapshot(project, { type: 'chapter', chapterId: project.activeChapterId });
+  createWorkDescription(snapshot, baseHash, goal, new Set(), false);
+  assert.equal(JSON.stringify(project), before, 'ç”Ÿæˆæ–‡æ¡£ä¸å¾—ä¿®æ”¹å·¥ç¨‹æ•°æ®');
+});

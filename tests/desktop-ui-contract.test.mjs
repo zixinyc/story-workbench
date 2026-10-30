@@ -1,3 +1,109 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞí‘¥Ñ½Éô™É½´€Ñ¥ÁÑ…À½½É”œì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞìÉ•…‘¥±•Må¹Œô™É½´€¹½‘”é™Ìœì)¥µÁ½ÉĞì‰¥¹‘‘¥Ñ½ÉY¥•İ1¥ÍÑ•¹•ÉÌô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½•‘¥Ñ½ÈµÙ¥•Ü¹µ©Ìœì()½¹ÍĞÍ½ÕÉ”€ôÉ•…‘¥±•Må¹Œ¡¹•ÜUI0 œ¸¸½ÍÉŒ½µ…¥¸¹ÑÍàœ°¥µÁ½ÉĞ¹µ•Ñ„¹ÕÉ°¤°€ÕÑ˜àœ¤ì)½¹ÍĞÁÉ•±½…€ôÉ•…‘¥±•Må¹Œ¡¹•ÜUI0 œ¸¸½•±•ÑÉ½¸½ÁÉ•±½…¹©Ìœ°¥µÁ½ÉĞ¹µ•Ñ„¹ÕÉ°¤°€ÕÑ˜àœ¤ì)½¹ÍĞ•±•ÑÉ½¹5…¥¸€ôÉ•…‘¥±•Må¹Œ¡¹•ÜUI0 œ¸¸½•±•ÑÉ½¸½µ…¥¸¹µ©Ìœ°¥µÁ½ÉĞ¹µ•Ñ„¹ÕÉ°¤°€ÕÑ˜àœ¤ì()Ñ•ÍĞ Ÿ®ƒ¢*–J3šº×¢B÷î–F÷–B7’â7’úw¢ÖX±•ÑÉ½¸ƒ’â7šR¿š2j–:R|ÁÉ½µÁĞœ°€ ¤€ôøì(€…ÍÍ•ÉĞ¹‘½•Í9½Ñ5…Ñ ¡Í½ÕÉ”°€½İ¥¹‘½İp¹ÁÉ½µÁÑqÌ©p ¼¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…° ¡Í½ÕÉ”¹µ…Ñ  ½¹½Éµ…±¥é”è¹½Éµ…±¥é•¡…ÁÑ•É9…µ”½œ¤€üümt¤¹±•¹Ñ °€È¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…° ¡Í½ÕÉ”¹µ…Ñ  ½¹½Éµ…±¥é”è¹½Éµ…±¥é•A…É…É…Á¡É½ÕÁ9…µ”½œ¤€üümt¤¹±•¹Ñ °€Ì¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½™Õ¹Ñ¥½¸9…µ•%¹ÁÕÑ¥…±½œ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½É½±”ô‰‘¥…±½œˆ…É¥„µµ½‘…°ô‰ÑÉÕ”ˆ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½¥¹ÁÕÑI•™p¹ÕÉÉ•¹Ñpıp¹™½ÕÍp¡p¤ímqÍqMt©¥¹ÁÕÑI•™p¹ÕÉÉ•¹Ñpıp¹Í•±•Ñp¡p¤¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½½¹MÕ‰µ¥ĞõqíÍÕ‰µ¥Ñqô¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½•Ù•¹Ñp¹­•ä€ôôô€Í…Á”mqÍqMt©½¹…¹•±p¡p¤¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½µ…á1•¹Ñ õqìÄÈÁqô¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½±…ÍÍ9…µ”ô‰¹…µ”µ‘¥…±½œµ•ÉÉ½ÈˆÉ½±”ô‰…±•ÉĞˆ¼¤ì)ô¤ì()Ñ•ÍĞ ŸšZÃ–îëšº×¢B÷îR£†»¢º“–&7š6W¢:ßj®ƒ¢*–J3šº×¢Bô%œ°€ ¤€ôøì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½½¹ÍĞ¡…ÁÑ•É%€ô¡…ÁÑ•Ép¹¥íqÌ©½¹ÍĞÁ…É…É…Á¡%‘Ì€ôqmp¹p¹p¹Í•±•Ñ•‘A…É…É…Á¡Íqt¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½É•…Ñ•A…É…É…Á¡É½ÕÁp¡Ù…±Õ”°Á…É…É…Á¡%‘Ì°¹…µ•p¤¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½ÕÉÉ•¹Ñp¹…Ñ¥Ù•¡…ÁÑ•É%€„ôô¡…ÁÑ•É%¼¤ì)ô¤ì()Ñ•ÍĞ Ÿ–&Ÿšn»–öWš2'®ƒ¢*ŠKî–ºk’ö7¾ò3’â7–7¦C–>—¦7–’7–"_–ë¾òoîšN7’ösšr'šb;†»¢úçV0œ°€ ¤€ôøì(€…ÍÍ•ÉĞ¹‘½•Í9½Ñ5…Ñ ¡Í½ÕÉ”°€½É•¹‘•É=ÕÑ±¥¹•A…É…É…Á ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¼ñÍÑÉ½¹œû–&Ÿšn»–öTñp½ÍÑÉ½¹œø¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½±½…Ñ•É½ÕÁp¡¥Ñ•µp¹¡…ÁÑ•Ép¹¥°É½ÕÁp¹¥‘p¤¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¿šr«–"î¾ò!qí¥Ñ•µp¹Õ¹É½ÕÁ•‘½Õ¹Ñqôƒšº×¾ò$¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½‘…Ñ„µÉ½ÕÀµ¡•…‘•Èô‰p‘qíMMp¹•Í…Á•p¡Á•¹‘¥¹p¹¥‘p¥qôˆ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½‘¥Í…‰±•õqí¡…ÁÑ•É%¹‘•à€ğô€Áqô¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½‘¥Í…‰±•õqí¡…ÁÑ•É%¹‘•à€øôÁÉ½©•Ñp¹¡…ÁÑ•ÉÍp¹±•¹Ñ €´€Åqô¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½¥˜p …É•ÍÕ±Ñp¤qíqÌ©ÕÁ‘…Ñ•M…Ù•1…‰•±p¡ÁÉ•Ù¥½ÕÍM…Ù•1…‰•±p¤íqÌ©É•ÑÕÉ¸¹Õ±°ì¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½¥˜p ……Í½Áä€˜˜Í…Ù•Q¥µ•Ép¹ÕÉÉ•¹Ğ€„ôô¹Õ±±p¤¼¤ì)ô¤ì()Ñ•ÍĞ Ÿ’şw–¶c–öK–Æ{–r£¢ÂR£š^Û¦R–ºk¾ò3¢ş–"Ãj’şw–¶c’â7’òk–g¢şo–"¯j–Ş—¢,œ°€ ¤€ôøì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½½¹ÍĞÑ…É•Ñ-•ä€ô±¥‰É…Éå-•åI•™p¹ÕÉÉ•¹Ğì¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½¥˜p¡±¥‰É…Éå-•åI•™p¹ÕÉÉ•¹Ğ€„ôôÑ…É•Ñ-•åp¤É•ÑÕÉ¸É•ÍÕ±Ğì¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½Í…Ù•‘M¹…ÁÍ¡½ÑI•™p¹ÕÉÉ•¹Ğ€ôqì­•äèÑ…É•Ñ-•ä°p¹p¹p¹Í¹…ÁÍ¡½Ğqôì¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½Í…Ù•‘M¹…ÁÍ¡½ÑI•™p¹ÕÉÉ•¹Ñpıp¹­•ä€ôôôÑ…É•Ñ-•ä¼¤ì)ô¤ì()Ñ•ÍĞ Ÿn»–öW–ºk’ö7’â7–gîOšz–:–>Ë’â7šRçš¶šZîš"C–Fc’â;¦7’æ@œ°€ ¤€ôøì(€½¹ÍĞÍÑ…ÉĞ€ôÍ½ÕÉ”¹¥¹‘•á=˜ ½¹ÍĞÉÕ¹1½…Ñ”€ôœ¤ì(€½¹ÍĞ•¹€ôÍ½ÕÉ”¹¥¹‘•á=˜ ½¹ÍĞ±½…Ñ•É½ÕÀ€ôœ¤ì(€…ÍÍ•ÉĞ¹½¬¡ÍÑ…ÉĞ€ø€À€˜˜•¹€øÍÑ…ÉĞ°€Ÿ–êS¢÷š&û–"Ã–ºk’ö7–º{:Àœ¤ì(€½¹ÍĞ±½…Ñ”€ôÍ½ÕÉ”¹Í±¥”¡ÍÑ…ÉĞ°•¹¤ì(€…ÍÍ•ÉĞ¹‘½•Í9½Ñ5…Ñ ¡±½…Ñ”°€½½µµ¥Ñ¡…ÁÑ•ÉMÑÉÕÑÕÉ•ñÕÁ‘…Ñ•¡…ÁÑ•Éñµ½Ù•A…É…É…Á¡ÍñÍ•Ñ5ÕÍ¥I…¹•ñÍ•ÑÉ½ÕÁ½±±…ÁÍ•¼¤ì(€…ÍÍ•ÉĞ¹‘½•Í9½Ñ5…Ñ ¡±½…Ñ”°€½ÍÑ…ÉÑA±…å‰…­ñÁ±…å•ÉI•™p¹ÕÉÉ•¹Ñp¹Á±…ä¼¤ì(€€¼¨ƒ–ºk’ö7R£’î“&3¾ò3š^Ÿj–ºk’ö7–n{¢Â–ş¦†ï–’ÇšV €¨¼(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½¥˜p¡Á•¹‘¥¹p¹Ñ½­•¸€„ôô±½…Ñ•Q½­•¹I•™p¹ÕÉÉ•¹Ñp¤É•ÑÕÉ¸ì¼¤ì(€€¼¨ƒ¢Ş£®ƒ–ºk’ö7¢š¶'ò[¢úG–f£¢–nû–ÂÇî«¾ò3’â7R£–îÛš^Û–:ï2sš2¢öô€¨¼(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½Á•¹‘¥¹1½…Ñ•I•™p¹ÕÉÉ•¹Ğ€ô¹Õ±°íqÌ©ÉÕ¹1½…Ñ•p¡Á•¹‘¥¹1½…Ñ•p¤ì¼¤ì)ô¤ì()Ñ•ÍĞ Ÿ–Ş—¢/–êOš2'–Ş—¢/¦jSšï––ºç’â;–’[¦£’şw–¶c’ö7ö»¾ò3V3¦v‹’â7–7šr'–£–Æ’şw–¶cn»š‚œ°€ ¤€ôøì(€…ÍÍ•ÉĞ¹µ…Ñ ¡ÁÉ•±½…°€½±¥‰É…ÉäéÍ…Ù”¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡ÁÉ•±½…°€½±¥‰É…ÉäéÍ…Ù”µ…Ì¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡ÁÉ•±½…°€½±¥‰É…ÉäéÉ•…Ñ”¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡•±•ÑÉ½¹5…¥¸°€½±¥‰É…ÉäéÍ…Ù”µ…Ì¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡•±•ÑÉ½¹5…¥¸°€½±¥‰É…Éäé¥µÁ½ÉĞµ½µµ¥Ğ¼¤ì(€…ÍÍ•ÉĞ¹‘½•Í9½Ñ5…Ñ ¡•±•ÑÉ½¹5…¥¸°€½±•Ğµ…¹Õ…±M…Ù•Q…É•Ğ¼¤ì(€…ÍÍ•ÉĞ¹‘½•Í9½Ñ5…Ñ ¡•±•ÑÉ½¹5…¥¸°€½Í…Ù•Q…É•ÑM•ÑÑ¥¹ÍA…Ñ ¼¤ì(€€¼¨ƒ¦†Û¦£¢ššr'šâš–kj3–"š6‹–Ş—¢/7–—–>Œ€¨¼(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¼ñÍÕµµ…Éäû–"š6‹–Ş—¢,ñp½ÍÕµµ…Éäø¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¿–"š6‹–"À¼¤ì)ô¤ì()Ñ•ÍĞ $ƒ–º‡¦b–¾ó–ë’â;–îë¢º»–¾ó–—’öÿR£.³®/šr³–rÀ%A¾ò3V3¦v‹šb;†»–"–ò–Ş—¢/–2–J3–º‡¦b–2œ°€ ¤€ôøì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¿–¾ó–ë–º3šVÓ–º‡¦b–2¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¿–¾ó–ë’ös–N¢¾Óšb8¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¿–¾ó–—šRç¢şo–îë¢º¸¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¿–¾ó–ë–Ş—¢/–2¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€¿šš~”$ƒšRç¢şo–îë¢º¸¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡Í½ÕÉ”°€½ÑÉ±p­hƒ’âš²‡šJ“¦RšVÓš&ç’ş»šRä¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡ÁÉ•±½…°€½İ½É­ÍÁ…”éÉ•Ù¥•Üµ•áÁ½ÉĞ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡ÁÉ•±½…°€½İ½É­ÍÁ…”é•áÁ½ÉĞµ‘½Õµ•¹Ğ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡ÁÉ•±½…°€½İ½É­ÍÁ…”é…¤µ¡…¹•Ìµ¥µÁ½ÉĞ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡•±•ÑÉ½¹5…¥¸°€½µ…á¥¡…¹•Í	åÑ•Ì€ô€Èp¨€ÄÀÈĞp¨€ÄÀÈĞ¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡•±•ÑÉ½¹5…¥¸°€½p¹ÍÑ½ÉåÉ•Ù¥•İp¹é¥À¼¤ì(€…ÍÍ•ÉĞ¹‘½•Í9½Ñ5…Ñ ¡Í½ÕÉ”°€½™•Ñ¡qÌ©p ¼¤ì)ô¤ì()Ñ•ÍĞ Ÿ–"®ƒ–J3šZÃ–îë®ƒ¦Rš¾š^Ÿò[¢úG–f£–B;¾ò3šâBîG–ºk’â7–7¢¾ï–>[–ŞË–6ã¢ö÷hV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅèBF—Ff–WrrÂ‚’Óâ°¢76W'BæÖF6‚‡6÷W&6RÂ÷&WGW&â&–æDVF—F÷%f–WtÆ—7FVæW'5Â†VF—F÷"ÂÅ²ò“°¢6öç7BæÖW3Õ²w7F÷'’×&w&‚×6VÆV7BrÂw7F÷'’Öw&÷W×6VÆV7BrÂw7F÷'’Öw&÷WÖ×W6–2uÓ°¢f÷"†ÆWB6†FW#Ó¶6†FW#Ã3¶6†FW"²²—°¢6öç7BFöÓÖæWrWfVçEF&vWB‚“°¢6öç7BVF—F÷#Ôö&¦V7Bæ7&VFR„VF—F÷"ç&÷F÷G—R“°¢VF—F÷"æ6ÆÆ&6·3×·Ó°¢VF—F÷"æVF—F÷%f–Ws×¶FöÒÆ—4FW7G&÷–VC¦fÇ6WÓ°¢ÆWB6ÆÇ3Ó°¢6öç7B†æFÆW#Ò‚“Óç¶6ÆÇ2²³·Ó°¢6öç7B6ÆVçWÖ&–æDVF—F÷%f–WtÆ—7FVæW'2†VF—F÷"ÆæÖW2æÖ‚†æÖR“Óå¶æÖRÆ†æFÆW%Ò’“°¢f÷"†6öç7BæÖRöbæÖW2–FöÒæF—7F6„WfVçB†æWrWfVçB†æÖR’“°¢76W'BæWVÂ†6ÆÇ2Ã2“°¢VF—F÷"æVF—F÷%f–WsÖçVÆÃ²òòF—FVæÖ÷VçBYâf–WræFöÒzîZéîh©¾™I8 ¢76W'BçF‡&÷w2‚‚“ÓæVF—F÷"çf–WræFöÒÂöVF—F÷"f–Wr—2æ÷Bf–Æ&ÆRò“°¢76W'BæFöW4æ÷EF‡&÷r†6ÆVçW“°¢f÷"†6öç7BæÖRöbæÖW2–FöÒæF—7F6„WfVçB†æWrWfVçB†æÖR’“°¢76W'BæWVÂ†6ÆÇ2Ã2Â~iz~zºK¨¾K»nYØ~[{.z{¾™šNûÈÎKˆŞjè¾yYX‹ikzºr“°¢Ğ§Ò“° 
+import test from 'node:test';
+import {Editor} from '@tiptap/core';
+import assert from 'node:assert/strict';
+import { readFileSync } from 'node:fs';
+import { bindEditorViewListeners } from '../src/editor/editor-view.mjs';
+
+const source = readFileSync(new URL('../src/main.tsx', import.meta.url), 'utf8');
+const preload = readFileSync(new URL('../electron/preload.cjs', import.meta.url), 'utf8');
+const electronMain = readFileSync(new URL('../electron/main.mjs', import.meta.url), 'utf8');
+
+test('ç« èŠ‚å’Œæ®µè½ç»„å‘½åä¸ä¾èµ– Electron ä¸æ”¯æŒçš„åŸç”Ÿ prompt', () => {
+  assert.doesNotMatch(source, /window\.prompt\s*\(/);
+  assert.equal((source.match(/normalize: normalizeChapterName/g) ?? []).length, 2);
+  assert.equal((source.match(/normalize: normalizeParagraphGroupName/g) ?? []).length, 3);
+  assert.match(source, /function NameInputDialog/);
+  assert.match(source, /role="dialog" aria-modal="true"/);
+  assert.match(source, /inputRef\.current\?\.focus\(\);[\s\S]*inputRef\.current\?\.select\(\)/);
+  assert.match(source, /onSubmit=\{submit\}/);
+  assert.match(source, /event\.key === 'Escape'[\s\S]*onCancel\(\)/);
+  assert.match(source, /maxLength=\{120\}/);
+  assert.match(source, /className="name-dialog-error" role="alert"/);
+});
+
+test('æ–°å»ºæ®µè½ç»„ç”¨ç¡®è®¤å‰æ•è·çš„ç« èŠ‚å’Œæ®µè½ ID', () => {
+  assert.match(source, /const chapterId = chapter\.id;\s*const paragraphIds = \[\.\.\.selectedParagraphs\]/);
+  assert.match(source, /createParagraphGroup\(value, paragraphIds, name\)/);
+  assert.match(source, /current\.activeChapterId !== chapterId/);
+});
+
+test('å‰§æƒ…ç›®å½•æŒ‰ç« èŠ‚â†’ç»„å®šä½ï¼Œä¸å†é€å¥é‡å¤åˆ—å‡ºï¼›ç»„æ“ä½œæœ‰æ˜ç¡®è¾¹ç•Œ', () => {
+  assert.doesNotMatch(source, /renderOutlineParagraph/);
+  assert.match(source, /<strong>å‰§æƒ…ç›®å½•<\/strong>/);
+  assert.match(source, /locateGroup\(item\.chapter\.id, group\.id\)/);
+  assert.match(source, /æœªåˆ†ç»„ï¼ˆ\{item\.ungroupedCount\} æ®µï¼‰/);
+  assert.match(source, /data-group-header="\$\{CSS\.escape\(pending\.id\)\}"/);
+  assert.match(source, /disabled=\{chapterIndex <= 0\}/);
+  assert.match(source, /disabled=\{chapterIndex >= project\.chapters\.length - 1\}/);
+  assert.match(source, /if \(!result\) \{\s*updateSaveLabel\(previousSaveLabel\);\s*return null;/);
+  assert.match(source, /if \(!asCopy && saveTimer\.current !== null\)/);
+});
+
+test('ä¿å­˜å½’å±åœ¨è°ƒç”¨æ—¶é”å®šï¼Œè¿Ÿåˆ°çš„ä¿å­˜ä¸ä¼šå†™è¿›åˆ«çš„å·¥ç¨‹', () => {
+  assert.match(source, /const targetKey = libraryKeyRef\.current;/);
+  assert.match(source, /if \(libraryKeyRef\.current !== targetKey\) return result;/);
+  assert.match(source, /savedSnapshotRef\.current = \{ key: targetKey, \.\.\.snapshot \};/);
+  assert.match(source, /savedSnapshotRef\.current\?\.key === targetKey/);
+});
+
+test('ç›®å½•å®šä½ä¸å†™ç»“æ„å†å²ã€ä¸æ”¹æ­£æ–‡ã€ç»„æˆå‘˜ä¸é…ä¹', () => {
+  const start = source.indexOf('const runLocate =');
+  const end = source.indexOf('const locateGroup =');
+  assert.ok(start > 0 && end > start, 'åº”èƒ½æ‰¾åˆ°å®šä½å®ç°');
+  const locate = source.slice(start, end);
+  assert.doesNotMatch(locate, /commitChapterStructure|updateChapter|moveParagraphs|setMusicRange|setGroupCollapsed/);
+  assert.doesNotMatch(locate, /startPlayback|playerRef\.current\.play/);
+  /* å®šä½ç”¨ä»¤ç‰Œï¼Œæ—§çš„å®šä½å›è°ƒå¿…é¡»å¤±æ•ˆ */
+  assert.match(source, /if \(pending\.token !== locateTokenRef\.current\) return;/);
+  /* è·¨ç« å®šä½è¦ç­‰ç¼–è¾‘å™¨è§†å›¾å°±ç»ªï¼Œä¸ç”¨å»¶æ—¶å»çŒœæŒ‚è½½ */
+  assert.match(source, /pendingLocateRef\.current = null;\s*runLocate\(pendingLocate\);/);
+});
+
+test('å·¥ç¨‹åº“æŒ‰å·¥ç¨‹éš”ç¦»å†…å®¹ä¸å¤–éƒ¨ä¿å­˜ä½ç½®ï¼Œç•Œé¢ä¸å†æœ‰å…¨å±€ä¿å­˜ç›®æ ‡', () => {
+  assert.match(preload, /library:save/);
+  assert.match(preload, /library:save-as/);
+  assert.match(preload, /library:create/);
+  assert.match(electronMain, /library:save-as/);
+  assert.match(electronMain, /library:import-commit/);
+  assert.doesNotMatch(electronMain, /let manualSaveTarget/);
+  assert.doesNotMatch(electronMain, /saveTargetSettingsPath/);
+  /* é¡¶éƒ¨è¦æœ‰æ¸…æ¥šçš„ã€Œåˆ‡æ¢å·¥ç¨‹ã€å…¥å£ */
+  assert.match(source, /<summary>åˆ‡æ¢å·¥ç¨‹<\/summary>/);
+  assert.match(source, /åˆ‡æ¢åˆ°/);
+});
+
+test('AI å®¡é˜…å¯¼å‡ºä¸å»ºè®®å¯¼å…¥ä½¿ç”¨ç‹¬ç«‹æœ¬åœ° IPCï¼Œç•Œé¢æ˜ç¡®åˆ†å¼€å·¥ç¨‹åŒ…å’Œå®¡é˜…åŒ…', () => {
+  assert.match(source, /å¯¼å‡ºå®Œæ•´å®¡é˜…åŒ…/);
+  assert.match(source, /å¯¼å‡ºä½œå“è¯´æ˜/);
+  assert.match(source, /å¯¼å…¥æ”¹è¿›å»ºè®®/);
+  assert.match(source, /å¯¼å‡ºå·¥ç¨‹åŒ…/);
+  assert.match(source, /æ£€æŸ¥ AI æ”¹è¿›å»ºè®®/);
+  assert.match(source, /Ctrl\+Z ä¸€æ¬¡æ’¤é”€æ•´æ‰¹ä¿®æ”¹/);
+  assert.match(preload, /workspace:review-export/);
+  assert.match(preload, /workspace:export-document/);
+  assert.match(preload, /workspace:ai-changes-import/);
+  assert.match(electronMain, /maxAiChangesBytes = 2 \* 1024 \* 1024/);
+  assert.match(electronMain, /\.storyreview\.zip/);
+  assert.doesNotMatch(source, /fetch\s*\(/);
+});
+
+test('åˆ‡ç« å’Œæ–°å»ºç« é”€æ¯æ—§ç¼–è¾‘å™¨åï¼Œæ¸…ç†ç»‘å®šä¸å†è¯»å–å·²å¸è½½çš„ Tiptap view', () => {
+  assert.match(source, /return bindEditorViewListeners\(editor, \[/);
+  const names=['story-paragraph-select','story-group-select','story-group-music'];
+  for(let chapter=0;chapter<3;chapter++){
+    const dom=new EventTarget();
+    const editor=Object.create(Editor.prototype);
+    editor.callbacks={};
+    editor.editorView={dom,isDestroyed:false};
+    let calls=0;
+    const handler=()=>{calls++;};
+    const cleanup=bindEditorViewListeners(editor,names.map((name)=>[name,handler]));
+    for(const name of names)dom.dispatchEvent(new Event(name));
+    assert.equal(calls,3);
+    editor.editorView=null; // Tiptap unmount å view.dom ç¡®å®æŠ›é”™ã€‚
+    assert.throws(()=>editor.view.dom,/editor view is not available/);
+    assert.doesNotThrow(cleanup);
+    for(const name of names)dom.dispatchEvent(new Event(name));
+    assert.equal(calls,3,'æ—§ç« äº‹ä»¶å‡å·²ç§»é™¤ï¼Œä¸æ®‹ç•™åˆ°æ–°ç« ');
+  }
+});

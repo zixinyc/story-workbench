@@ -1,3 +1,117 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐ)Mi¥À™É½´€©Íé¥Àœì)¥µÁ½ÉÐì‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì°•Ù…±Õ…Ñ•Q•áÑ™™•Ð°É…Á¡•µ•Ì°µ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸°Ù•ÉÑ¥…±A¡…Í•A±…¸°¡½ÍÑA¡…Í•A±…¸ô™É½´€œ¸¸½ÍÉŒ½µ½Ñ¥½¸½•™™•ÑÌ¹µ©Ìœì)¥µÁ½ÉÐì‘•™…Õ±ÑM•ÑÑ¥¹Ì°Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì°½µÁ¥±•½Õµ•¹Ðô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ð¹µ©Ìœì)¥µÁ½ÉÐìÉ•…Ñ•	±…¹­AÉ½©•Ð°Ù…±¥‘…Ñ•AÉ½©•Ðô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ð¹µ©Ìœì)¥µÁ½ÉÐì™É½µ‘¥Ñ½É½¹Ñ•¹Ð°Ñ½‘¥Ñ½É½¹Ñ•¹Ðô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½ÍÑ½Éäµ•‘¥Ñ½È¹ÑÌœì)¥µÁ½ÉÐìÉ•…Ñ•AÉ½©•ÑÉ¡¥Ù”°É•…‘AÉ½©•ÑÉ¡¥Ù”ô™É½´€œ¸¸½ÍÉŒ½Á•ÉÍ¥ÍÑ•¹”½…É¡¥Ù”¹µ©Ìœì)¥µÁ½ÉÐìÉ•…Ñ•I•Ù¥•ÝM¹…ÁÍ¡½Ð°É•Ù¥•Ý!…Í °É•…Ñ•I•Ù¥•ÝÉ¡¥Ù”°Ù…±¥‘…Ñ•I•Ù¥•Ý¡…¹•Ì°…ÁÁ±åI•Ù¥•Ý¡…¹•Ìô™É½´€œ¸¸½ÍÉŒ½…¤µÉ•Ù¥•Ü½É•Ù¥•ÜµÁ…­…”¹µ©Ìœì()±½‰…±Q¡¥Ì¹)Mi¥À€ô)Mi¥Àì)½¹ÍÐÍ•ÑÑ¥¹Í½È€ô€¡µ½Ñ¥½¸°Ñ•áÐ°Á…É…µ•Ñ•ÉÌ€ôíô¤€ôø‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸°µ½Ñ¥½¹M•ÑÑ¥¹Ìèì€¸¸¹‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì¡µ½Ñ¥½¸°Ñ•áÐ¤°€¸¸¹Á…É…µ•Ñ•ÉÌôô¤ì()Ñ•ÍÐ I@µÈƒ–në–ºk–¶_šž÷Žš2'–"_¦C–¶_Žš6‹¢†3–J3–¶_žÒƒžÒ‹–òW’â7’â‹–’Ç¾ò3–º3šVÓ¦b¢¾ï–B;¦Rg–ÎÃ¦–èœ°€ ¤€ôøì(€½¹ÍÐÑ•áÐ€ô€Ÿ’î7žÛžnã’þ…¾ò3Â~f	q»¢¾ß¢ºÃ–ú_¢þg’â–"ïŽœì(€½¹ÍÐÍ•ÑÑ¥¹Ì€ôÍ•ÑÑ¥¹Í½È Ù•ÉÑ¥…±I•Ù•…°œ°Ñ•áÐ°ì½±Õµ¹1•¹Ñ è€Ðô¤ì(€½¹ÍÐÁ±…¸€ôÙ•ÉÑ¥…±A¡…Í•A±…¸¡Í•ÑÑ¥¹Ì¹µ½Ñ¥½¹M•ÑÑ¥¹Ì°Ñ•áÐ¤ì(€½¹ÍÐ…Ð€ô€¡Ñ¥µ”¤€ôø•Ù…±Õ…Ñ•Q•áÑ™™•Ð¡Í•ÑÑ¥¹Ì°Ñ•áÐ°Ñ¥µ”¤ì(€½¹ÍÐÙ¥Í¥‰±”€ô€¡™É…µ”¤€ôø™É…µ”¹½±Õµ¹Ì¹™±…Ñ5…À ¡½±Õµ¸¤€ôø½±Õµ¸¹¡…É…Ñ•ÉÌ¤¹™¥±Ñ•È ¡¡…È¤€ôø¡…È¹Ù¥Í¥‰±”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Ù¥Í¥‰±”¡…Ð Ðää¤¤¹±•¹Ñ °€À¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Ù¥Í¥‰±”¡…Ð ÔÀÀ¤¤¹±•¹Ñ °€Ä¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Ù¥Í¥‰±”¡…Ð ÄÄÀÀ¤¤¹±•¹Ñ °€Ð¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð Ðää¤¹½±Õµ¹Ì¹±•¹Ñ °…Ð¡Á±…¸¹½µÁ±•Ñ•Ð¤¹½±Õµ¹Ì¹±•¹Ñ ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Ù¥Í¥‰±”¡…Ð¡Á±…¸¹½µÁ±•Ñ•Ð¤¤¹µ…À ¡¡…È¤€ôø¡…È¹Ñ•áÐ¤¹©½¥¸ œœ¤°Ñ•áÐ¹É•Á±…” ½q¸½œ°€œœ¤¤ì(€™½È€¡½¹ÍÐ¥Ñ•´½˜Ù¥Í¥‰±”¡…Ð¡Á±…¸¹½µÁ±•Ñ•Ð¤¤¤…ÍÍ•ÉÐ¹•ÅÕ…°¡¥Ñ•´¹Ñ•áÐ°É…Á¡•µ•Ì¡Ñ•áÐ¥m¥Ñ•´¹¥¹‘•át¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Á±…¸¹•á¥ÑÐ€´Á±…¸¹½µÁ±•Ñ•Ð°€ÄÈÀÀ¤ì(€…ÍÍ•ÉÐ¹½¬¡…Ð¡Á±…¸¹•á¥ÑÐ¤¹½±Õµ¹Ì¹•Ù•Éä ¡½±Õµ¸¤€ôø½±Õµ¸¹½Á…¥Ñä€ôôô€Ä¤¤ì(€…ÍÍ•ÉÐ¹½¬¡…Ð¡Á±…¸¹•á¥ÑÐ€¬€ÔÀ¤¹½±Õµ¹ÍlÁt¹½Á…¥Ñä€ð€Ä¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹•á¥ÑÐ€¬€ÔÀ¤¹½±Õµ¹ÍlÅt¹½Á…¥Ñä°€Ä¤ì(€…ÍÍ•ÉÐ¹½¬¡…Ð¡Á±…¸¹Ñ½Ñ…°¤¹½±Õµ¹Ì¹•Ù•Éä ¡½±Õµ¸¤€ôø½±Õµ¸¹½Á…¥Ñä€ôôô€À¤¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡µ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸ Ù•ÉÑ¥…±I•Ù•…°œ°Ñ•áÐ°Í•ÑÑ¥¹Ì¹µ½Ñ¥½¹M•ÑÑ¥¹Ì¤°Á±…¸¹Ñ½Ñ…°¤ì(€½¹ÍÐ™É…µ”€ô…Ð ÄÄÀÀ¤ì(€…Ð¡Á±…¸¹Ñ½Ñ…°¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ð ÄÄÀÀ¤°™É…µ”¤ì)ô¤ì()Ñ•ÍÐ I@µÈƒ¦Vÿ’â·šZ–J3’â·¢.ÇšZšÞßš:K–º3šVÓšbû–¶_¾ò3ž¦ë¢†3žVg–"_¾ò3’â7šRç–gš¶šZ–J3–>šVÀœ°€ ¤€ôøì(€™½È€¡½¹ÍÐÑ•áÐ½˜lŸ¢ºÃ–þ’â;š^Û¦^Ó¾ò1½ƒÂ~f•qÔÀÌÀÇŽœ¹É•Á•…Ð ÄÈ¤°€ŸžRÉq¹q»’ædœ°€ŸžRÉqÉq»’ædœ°€œt¤ì(€€€½¹ÍÐÍ•ÑÑ¥¹Ì€ôÍ•ÑÑ¥¹Í½È Ù•ÉÑ¥…±I•Ù•…°œ°Ñ•áÐ¤ì(€€€½¹ÍÐ‰•™½É”€ô)M=8¹ÍÑÉ¥¹¥™ä¡Í•ÑÑ¥¹Ì¤ì(€€€½¹ÍÐÁ±…¸€ôÙ•ÉÑ¥…±A¡…Í•A±…¸¡Í•ÑÑ¥¹Ì¹µ½Ñ¥½¹M•ÑÑ¥¹Ì°Ñ•áÐ¤ì(€€€½¹ÍÐ™É…µ”€ô•Ù…±Õ…Ñ•Q•áÑ™™•Ð¡Í•ÑÑ¥¹Ì°Ñ•áÐ°Á±…¸¹½µÁ±•Ñ•Ð€¬€ÄÀÀÀ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡™É…µ”¹½±Õµ¹Ì¹™±…Ñ5…À ¡½±Õµ¸¤€ôø½±Õµ¸¹¡…É…Ñ•ÉÌ¤¹µ…À ¡¡…È¤€ôø¡…È¹Ñ•áÐ¤¹©½¥¸ œœ¤°Ñ•áÐ¹É•Á±…” ½mqÉq¹t½œ°€œœ¤¤ì(€€€…ÍÍ•ÉÐ¹½¬¡™É…µ”¹½±Õµ¹Ì¹•Ù•Éä ¡½±Õµ¸¤€ôø½±Õµ¸¹½Á…¥Ñä€ôôô€Ä€˜˜½±Õµ¸¹¡…É…Ñ•ÉÌ¹•Ù•Éä ¡¡…È¤€ôø¡…È¹Ù¥Í¥‰±”¤¤¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡)M=8¹ÍÑÉ¥¹¥™ä¡Í•ÑÑ¥¹Ì¤°‰•™½É”¤ì(€ô)ô¤ì()Ñ•ÍÐ I@µÄƒ–#¦b¢¾ï¾ò3šº/–öÇ–"žšïŽ¢þ{žî·–n{šRÛŽ–º3–£šÚ#–’Ç–B;¦b¢¾ï–7¦–ë¾ò3–Kš.[ž†»–ºhœ°€ ¤€ôøì(€½¹ÍÐÑ•áÐ€ô€Ÿ¢¾ß¢ºÃ–ú_¢þg’â–"ï¾ò1ƒÂ~fŽœì(€½¹ÍÐÍ•ÑÑ¥¹Ì€ôÍ•ÑÑ¥¹Í½È ¡½ÍÑ½¹Ù•É”œ°Ñ•áÐ¤ì(€½¹ÍÐÀ€ôÍ•ÑÑ¥¹Ì¹µ½Ñ¥½¹M•ÑÑ¥¹Ìì(€½¹ÍÐÁ±…¸€ô¡½ÍÑA¡…Í•A±…¸¡À¤ì(€½¹ÍÐ…Ð€ô€¡Ñ¥µ”¤€ôø•Ù…±Õ…Ñ•Q•áÑ™™•Ð¡Í•ÑÑ¥¹Ì°Ñ•áÐ°Ñ¥µ”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð À¤¹½Á…¥Ñä°€À¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡À¹ÍÑ…ÉÑ5Ì€¬À¹™…‘•5Ì¤¹½Á…¥Ñä°€Ä¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹¡…¹•Ð€´€Ä¤¹¡½ÍÑµ½Õ¹Ð°€À¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹¡…¹•Ð€¬€ÈÈÀ¤¹¡½ÍÑµ½Õ¹Ð°€Ä¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹¡…¹•Ð€¬À¹ÍÁ±¥Ñ5Ì¤¹¡½ÍÑµ½Õ¹Ð°€Ä¤ì(€½¹ÍÐµ¥‘‘±”€ô…Ð¡Á±…¸¹¡…¹•Ð€¬À¹ÍÁ±¥Ñ5Ì€¬À¹É•ÑÕÉ¹5Ì€¼€È¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡µ¥‘‘±”¹¡½ÍÑµ½Õ¹Ð°€À¸Ô¤ì(€…ÍÍ•ÉÐ¹½¬¡µ¥‘‘±”¹¡½ÍÑ=™™Í•Ñ´€ð…Ð¡Á±…¸¹¡…¹•Ð€¬€ÈÈÀ¤¹¡½ÍÑ=™™Í•Ñ´¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹½µÁ±•Ñ•Ð¤¹¡½ÍÑµ½Õ¹Ð°€À¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹½µÁ±•Ñ•Ð€¬À¹¡½±‘5Ì¤¹½Á…¥Ñä°€Ä¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹Ñ½Ñ…°¤¹½Á…¥Ñä°€À¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡µ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸ ¡½ÍÑ½¹Ù•É”œ°Ñ•áÐ°À¤°Á±…¸¹Ñ½Ñ…°¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ð¡Á±…¸¹¡…¹•Ð€¬À¹ÍÁ±¥Ñ5Ì€¬À¹É•ÑÕÉ¹5Ì€¼€È¤°µ¥‘‘±”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ð¡Á±…¸¹½µÁ±•Ñ•Ð¤¹Ñ•áÐ°Ñ•áÐ¤ì(€…ÍÍ•ÉÐ¹½¬¡…Ð¡Á±…¸¹¡…¹•Ð€¬€ÈÈÀ¤¹¡…É…Ñ•ÉÌ¹•Ù•Éä ¡¡…È¤€ôø¡…È¹Ù¥Í¥‰±”¤¤ì)ô¤ì()Ñ•ÍÐ I@µÄƒ¢Öß–ž/š^Û¦^Ó’â7’òkš*‹¢þšÞ‡–—¾ò3–òë–ê›¦nÛ–>¿–sžR£šº/–öÇ¾òo¦v{šÎW–>šVÃ¢Š¯š.Kžîtœ°€ ¤€ôøì(€½¹ÍÐÍ•ÑÑ¥¹Ì€ôÍ•ÑÑ¥¹Í½È ¡½ÍÑ½¹Ù•É”œ°€Ÿš¶šZœ°ìÍÑ…ÉÑ5Ìè€ÈÀÀÀ°™…‘•5Ìè€ÄÀÀÀ°¡…¹•Ñ5Ìè€ÄÀÀ°ÍÑÉ•¹Ñ è€Àô¤ì(€½¹ÍÐÁ±…¸€ô¡½ÍÑA¡…Í•A±…¸¡Í•ÑÑ¥¹Ì¹µ½Ñ¥½¹M•ÑÑ¥¹Ì¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Á±…¸¹¡…¹•Ð°€ÌÀÀÀ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡•Ù…±Õ…Ñ•Q•áÑ™™•Ð¡Í•ÑÑ¥¹Ì°€Ÿš¶šZœ°€ÌÈÀÀ¤¹¡½ÍÑµ½Õ¹Ð°€À¤ì(€™½È€¡½¹ÍÐmµ½Ñ¥½¸°Á…É…µ•Ñ•ÉÍt½˜mlÙ•ÉÑ¥…±I•Ù•…°œ°ì½±Õµ¹1•¹Ñ è€È¸Ôõt°lÙ•ÉÑ¥…±I•Ù•…°œ°ì½±Õµ¹1•¹Ñ è€Àõt°l¡½ÍÑ½¹Ù•É”œ°ìÍÑÉ•¹Ñ è€Èõt°l¡½ÍÑ½¹Ù•É”œ°ìÉ•ÑÕÉ¹5Ìè€Àõt°l¡½ÍÑ½¹Ù•ÈV¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅævRrÂ²öfg6WDVÓ¢æâÕÒÂ²vv†÷7D6öçfW&vRrÂ²6V7&WC¢ÕÕÒ’°¢76W'BçF‡&÷w2‚‚’ÓâfÆ–FFT7VU6WGF–æw2†FVfVÇE6WGF–æw2‡²Ö÷F–öâÂÖ÷F–öå6WGF–æw3¢&ÖWFW'2Ò’’“°¢Ð§Ò“° §FW7B‚~KŠNšžiXŽiéÎ{Én‹éYšŽ8[z^zˆ¾XÈ^Y(ÎZê™ˆR¤•[è‹ùNûÈÄ’XúþiKžXø.ZûÎY¹îK‰NjÚ>ih~Kˆâ”BKùÞhÈKˆˆ{BrÂ7–æ2‚’Óâ°¢6öç7B&ö¦V7BÒ7&VFT&Ææµ&ö¦V7B‚“°¢6öç7B6†FW"Ò&ö¦V7Bæ6†FW'5³Ó°¢6†FW"æFö7VÖVçBæ&Æö6·2Ò²wfW'F–6Å&WfVÂrÂvv†÷7D6öçfW&vRuÒæÖ‚†Ö÷F–öâÂ–æFW‚’Óâ‡°¢G—S¢w&w&‚rÂ–C¢'×ÒG¶–æFW‡ÖÂ6†–ÆG&Vã¢·²G—S¢v7VRrÂ–C¢'Ö2ÒG¶–æFW‡ÖÂ6WGF–æw3¢6WGF–æw4f÷"†Ö÷F–öâÂ~Šû~Šë[é~‹ùžKˆX‹¾8"r’Â6†–ÆG&Vã¢·²G—S¢wFW‡BrÂFW‡C¢~Šû~Šë[érrÂ6öÆ÷#¢r6fcƒƒCBrÒÂ²G—S¢wFW‡BrÂFW‡C¢~‹ùžKˆX‹¾8"rÕÒÕÒÀ¢Ò’“°¢76W'BæWVÂ‡fÆ–FFU&ö¦V7B‡&ö¦V7B’ÂG'VR“°¢76W'BæFVWWVÂ†g&öÔVF—F÷$6öçFVçB‡FôVF—F÷$6öçFVçB†6†FW"æFö7VÖVçB’’Â6†FW"æFö7VÖVçB“°¢6öç7B&Æö"Òv—B7&VFU&ö¦V7D&6†—fR‡&ö¦V7BÂµÒ“°¢6öç7B&W7F÷&VBÒv—B&VE&ö¦V7D&6†—fR†v—B&Æö"æ'&”'VffW"‚’“°¢76W'BæFVWWVÂ‡&W7F÷&VBç&ö¦V7BÂ&ö¦V7B“°¢6öç7B66÷RÒ²G—S¢v6†FW"rÂ6†FW$–C¢6†FW"æ–BÓ°¢6öç7B6æ6†÷BÒ7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ66÷R“°¢6öç7B&6T†6‚Òv—B&Wf–Wt†6‚‡6æ6†÷B“°¢6öç7B&6†—fRÒv—B7&VFU&Wf–Wt&6†—fR„¥5¦—Â6æ6†÷BÂ&6T†6‚Â~KùÞyYžjÚ>ih~ûÈÎXú®‹>i[NXªŽiX‚rÂµÒÂfÇ6R“°¢6öç7B¦—Òv—B¥5¦—æÆöD7–æ2†&6†—fRæ'—FW2“°¢6öç7BFW67&—F–öâÒv—B¦—æf–ÆR‚~KÙÎY8ŠûNiˆâæÖBr’æ7–æ2‚w7G&–ærr“°¢76W'BæÖF6‚†FW67&—F–öâÂõ%Ô"z¹nhé.˜	.‹ù²ò“°¢76W'BæÖF6‚†FW67&—F–öâÂõ%Ôc™Ižˆ›.jè¾[ÛiKniY²ò“°¢6öç7B66†VÖÒv—B¦—æf–ÆR‚w7W÷'FVBÖ6†ævW2ç66†VÖæ§6öâr’æ7–æ2‚w7G&–ærr“°¢76W'BæÖF6‚‡66†VÖÂ÷fW'F–6Å&WfVÂò“°¢76W'BæÖF6‚‡66†VÖÂöv†÷7D6öçfW&vRò“°¢76W'BæÖF6‚‡66†VÖÂö6öÇVÖäÆVæwF‚ò“°¢76W'BæÖF6‚‡66†VÖÂ÷&WGW&ä×2ò“°¢6öç7B6†ævW2Ò6†FW"æFö7VÖVçBæ&Æö6·2æÖ‚†&Æö6²’Óâ°¢6öç7B7VRÒ&Æö6²æ6†–ÆG&Vå³Ó°¢&WGW&â²÷¢wWFFT7VU6WGF–æw2rÂ6†FW$–C¢6†FW"æ–BÂ7VT–C¢7VRæ–BÂ&Vf÷&S¢7VRç6WGF–æw2ÂgFW#¢²ââæ7VRç6WGF–æw2ÂÖ÷F–öå6WGF–æw3¢²ââæ7VRç6WGF–æw2æÖ÷F–öå6WGF–æw2Â†öÆD×3¢ƒÒÒÂ&V6öã¢~[»n™[þkˆ^i›™ˆ^Šû¾i{n™{BrÓ°¢Ò“°¢6öç7B&rÒ¥4ôâç7G&–æv–g’‡²f÷&ÖC¢w7F÷'’×v÷&¶&Væ6‚Ö’Ö6†ævW2rÂfW'6–öã¢Â&6U&ö¦V7D–C¢&ö¦V7Bæ–BÂ&6T†6‚Â66÷RÂ6†ævW2Ò“°¢6öç7B&W7VÇBÒÇ•&Wf–Wt6†ævW2‡&ö¦V7BÂv—BfÆ–FFU&Wf–Wt6†ævW2‡&ö¦V7BÂ&r’“°¢76W'BæWVÂ‡fÆ–FFU&ö¦V7B‡&W7VÇB’ÂG'VR“°¢6öç7B7VW2Ò6ö×–ÆTFö7VÖVçB‡&W7VÇBæ6†FW'5³ÒæFö7VÖVçB“°¢76W'BæFVWWVÂ†7VW2æÖ‚†7VR’Óâ7VRæ–B’Â²w'Ö2ÓrÂw'Ö2ÓuÒ“°¢76W'Bæö²†7VW2æWfW'’‚†7VR’Óâ7VRçFW‡BÓÓÒ~Šû~Šë[é~‹ùžKˆX‹¾8"rbb7VRç6WGF–æw2æÖ÷F–öå6WGF–æw2æ†öÆD×2ÓÓÒƒbb7VRæ6†–ÆG&Vå³Òæ6öÆ÷"ÓÓÒr6fcƒƒCBr’“°¢76W'Bæö²†6ö×–ÆTFö7VÖVçB†6†FW"æFö7VÖVçB’æWfW'’‚†7VR’Óâ7VRç6WGF–æw2æÖ÷F–öå6WGF–æw2æ†öÆD×2ÓÓÒ#’“°§Ò“°
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import JSZip from 'jszip';
+import { defaultMotionSettings, evaluateTextEffect, graphemes, minimumMotionDuration, verticalPhasePlan, ghostPhasePlan } from '../src/motion/effects.mjs';
+import { defaultSettings, validateCueSettings, compileDocument } from '../src/domain/model/document.mjs';
+import { createBlankProject, validateProject } from '../src/domain/model/project.mjs';
+import { fromEditorContent, toEditorContent } from '../src/editor/story-editor.ts';
+import { createProjectArchive, readProjectArchive } from '../src/persistence/archive.mjs';
+import { createReviewSnapshot, reviewHash, createReviewArchive, validateReviewChanges, applyReviewChanges } from '../src/ai-review/review-package.mjs';
+
+globalThis.JSZip = JSZip;
+const settingsFor = (motion, text, parameters = {}) => defaultSettings({ motion, motionSettings: { ...defaultMotionSettings(motion, text), ...parameters } });
+
+test('RP-A2 å›ºå®šå­—æ§½ã€æŒ‰åˆ—é€å­—ã€æ¢è¡Œå’Œå­—ç´ ç´¢å¼•ä¸ä¸¢å¤±ï¼Œå®Œæ•´é˜…è¯»åŽé”™å³°é€€å‡º', () => {
+  const text = 'ä»ç„¶ç›¸ä¿¡Aï¼ŒðŸ™‚\nè¯·è®°å¾—è¿™ä¸€åˆ»ã€‚';
+  const settings = settingsFor('verticalReveal', text, { columnLength: 4 });
+  const plan = verticalPhasePlan(settings.motionSettings, text);
+  const at = (time) => evaluateTextEffect(settings, text, time);
+  const visible = (frame) => frame.columns.flatMap((column) => column.characters).filter((char) => char.visible);
+  assert.equal(visible(at(499)).length, 0);
+  assert.equal(visible(at(500)).length, 1);
+  assert.equal(visible(at(1100)).length, 4);
+  assert.equal(at(499).columns.length, at(plan.completeAt).columns.length);
+  assert.equal(visible(at(plan.completeAt)).map((char) => char.text).join(''), text.replace(/\n/g, ''));
+  for (const item of visible(at(plan.completeAt))) assert.equal(item.text, graphemes(text)[item.index]);
+  assert.equal(plan.exitAt - plan.completeAt, 1200);
+  assert.ok(at(plan.exitAt).columns.every((column) => column.opacity === 1));
+  assert.ok(at(plan.exitAt + 50).columns[0].opacity < 1);
+  assert.equal(at(plan.exitAt + 50).columns[1].opacity, 1);
+  assert.ok(at(plan.total).columns.every((column) => column.opacity === 0));
+  assert.equal(minimumMotionDuration('verticalReveal', text, settings.motionSettings), plan.total);
+  const frame = at(1100);
+  at(plan.total);
+  assert.deepEqual(at(1100), frame);
+});
+
+test('RP-A2 é•¿ä¸­æ–‡å’Œä¸­è‹±æ–‡æ··æŽ’å®Œæ•´æ˜¾å­—ï¼Œç©ºè¡Œç•™åˆ—ï¼Œä¸æ”¹å†™æ­£æ–‡å’Œå‚æ•°', () => {
+  for (const text of ['è®°å¿†ä¸Žæ—¶é—´ï¼ŒA/B ðŸ™‚ e\u0301ã€‚'.repeat(12), 'ç”²\n\nä¹™', 'ç”²\r\nä¹™', '']) {
+    const settings = settingsFor('verticalReveal', text);
+    const before = JSON.stringify(settings);
+    const plan = verticalPhasePlan(settings.motionSettings, text);
+    const frame = evaluateTextEffect(settings, text, plan.completeAt + 1000);
+    assert.equal(frame.columns.flatMap((column) => column.characters).map((char) => char.text).join(''), text.replace(/[\r\n]/g, ''));
+    assert.ok(frame.columns.every((column) => column.opacity === 1 && column.characters.every((char) => char.visible)));
+    assert.equal(JSON.stringify(settings), before);
+  }
+});
+
+test('RP-F1 å…ˆé˜…è¯»ï¼Œæ®‹å½±åˆ†ç¦»ã€è¿žç»­å›žæ”¶ã€å®Œå…¨æ¶ˆå¤±åŽé˜…è¯»å†é€€å‡ºï¼Œå€’æ‹–ç¡®å®š', () => {
+  const text = 'è¯·è®°å¾—è¿™ä¸€åˆ»ï¼ŒA ðŸ™‚ã€‚';
+  const settings = settingsFor('ghostConverge', text);
+  const p = settings.motionSettings;
+  const plan = ghostPhasePlan(p);
+  const at = (time) => evaluateTextEffect(settings, text, time);
+  assert.equal(at(0).opacity, 0);
+  assert.equal(at(p.startMs + p.fadeMs).opacity, 1);
+  assert.equal(at(plan.changeAt - 1).ghostAmount, 0);
+  assert.equal(at(plan.changeAt + 220).ghostAmount, 1);
+  assert.equal(at(plan.changeAt + p.splitMs).ghostAmount, 1);
+  const middle = at(plan.changeAt + p.splitMs + p.returnMs / 2);
+  assert.equal(middle.ghostAmount, 0.5);
+  assert.ok(middle.ghostOffsetEm < at(plan.changeAt + 220).ghostOffsetEm);
+  assert.equal(at(plan.completeAt).ghostAmount, 0);
+  assert.equal(at(plan.completeAt + p.holdMs).opacity, 1);
+  assert.equal(at(plan.total).opacity, 0);
+  assert.equal(minimumMotionDuration('ghostConverge', text, p), plan.total);
+  assert.deepEqual(at(plan.changeAt + p.splitMs + p.returnMs / 2), middle);
+  assert.equal(at(plan.completeAt).text, text);
+  assert.ok(at(plan.changeAt + 220).characters.every((char) => char.visible));
+});
+
+test('RP-F1 èµ·å§‹æ—¶é—´ä¸ä¼šæŠ¢è¿‡æ·¡å…¥ï¼Œå¼ºåº¦é›¶å¯åœç”¨æ®‹å½±ï¼›éžæ³•å‚æ•°è¢«æ‹’ç»', () => {
+  const settings = settingsFor('ghostConverge', 'æ­£æ–‡', { startMs: 2000, fadeMs: 1000, changeAtMs: 100, strength: 0 });
+  const plan = ghostPhasePlan(settings.motionSettings);
+  assert.equal(plan.changeAt, 3000);
+  assert.equal(evaluateTextEffect(settings, 'æ­£æ–‡', 3200).ghostAmount, 0);
+  for (const [motion, parameters] of [['verticalReveal', { columnLength: 2.5 }], ['verticalReveal', { columnLength: 0 }], ['ghostConverge', { strength: 2 }], ['ghostConverge', { returnMs: 0 }], ['ghostConverge', { offsetEm: NaN }], ['ghostConverge', { secret: 1 }]]) {
+    assert.throws(() => validateCueSettings(defaultSettings({ motion, motionSettings: parameters })));
+  }
+});
+
+test('ä¸¤é¡¹æ•ˆæžœç¼–è¾‘å™¨ã€å·¥ç¨‹åŒ…å’Œå®¡é˜… ZIP å¾€è¿”ï¼ŒAI å¯æ”¹å‚å¯¼å›žä¸”æ­£æ–‡ä¸Ž ID ä¿æŒä¸€è‡´', async () => {
+  const project = createBlankProject();
+  const chapter = project.chapters[0];
+  chapter.document.blocks = ['verticalReveal', 'ghostConverge'].map((motion, index) => ({
+    type: 'paragraph', id: `rp-p-${index}`, children: [{ type: 'cue', id: `rp-c-${index}`, settings: settingsFor(motion, 'è¯·è®°å¾—è¿™ä¸€åˆ»ã€‚'), children: [{ type: 'text', text: 'è¯·è®°å¾—', color: '#ff8844' }, { type: 'text', text: 'è¿™ä¸€åˆ»ã€‚' }] }],
+  }));
+  assert.equal(validateProject(project), true);
+  assert.deepEqual(fromEditorContent(toEditorContent(chapter.document)), chapter.document);
+  const blob = await createProjectArchive(project, []);
+  const restored = await readProjectArchive(await blob.arrayBuffer());
+  assert.deepEqual(restored.project, project);
+  const scope = { type: 'chapter', chapterId: chapter.id };
+  const snapshot = createReviewSnapshot(project, scope);
+  const baseHash = await reviewHash(snapshot);
+  const archive = await createReviewArchive(JSZip, snapshot, baseHash, 'ä¿ç•™æ­£æ–‡ï¼Œåªè°ƒæ•´åŠ¨æ•ˆ', [], false);
+  const zip = await JSZip.loadAsync(archive.bytes);
+  const description = await zip.file('ä½œå“è¯´æ˜Ž.md').async('string');
+  assert.match(description, /RP-A2 ç«–æŽ’é€’è¿›/);
+  assert.match(description, /RP-F1 é”™è‰²æ®‹å½±æ”¶æ•›/);
+  const schema = await zip.file('supported-changes.schema.json').async('string');
+  assert.match(schema, /verticalReveal/);
+  assert.match(schema, /ghostConverge/);
+  assert.match(schema, /columnLength/);
+  assert.match(schema, /returnMs/);
+  const changes = chapter.document.blocks.map((block) => {
+    const cue = block.children[0];
+    return { op: 'updateCueSettings', chapterId: chapter.id, cueId: cue.id, before: cue.settings, after: { ...cue.settings, motionSettings: { ...cue.settings.motionSettings, holdMs: 1800 } }, reason: 'å»¶é•¿æ¸…æ™°é˜…è¯»æ—¶é—´' };
+  });
+  const raw = JSON.stringify({ format: 'story-workbench-ai-changes', version: 1, baseProjectId: project.id, baseHash, scope, changes });
+  const result = applyReviewChanges(project, await validateReviewChanges(project, raw));
+  assert.equal(validateProject(result), true);
+  const cues = compileDocument(result.chapters[0].document);
+  assert.deepEqual(cues.map((cue) => cue.id), ['rp-c-0', 'rp-c-1']);
+  assert.ok(cues.every((cue) => cue.text === 'è¯·è®°å¾—è¿™ä¸€åˆ»ã€‚' && cue.settings.motionSettings.holdMs === 1800 && cue.children[0].color === '#ff8844'));
+  assert.ok(compileDocument(chapter.document).every((cue) => cue.settings.motionSettings.holdMs === 1200));
+});

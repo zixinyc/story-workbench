@@ -1,122 +1,256 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞì±½¹”°µ…­•%ô™É½´€œ¸½‘½Õµ•¹Ğ¹µ©Ìœì()½¹ÍĞ5a}95}19Q €ô€ÄÈÀì()•áÁ½ÉĞ™Õ¹Ñ¥½¸¹½Éµ…±¥é•¡…ÁÑ•É9…µ”¡¹…µ”¤ì(€É•ÑÕÉ¸¹½Éµ…±¥é•9…µ”¡¹…µ”°€Ÿ®ƒ¢*–B7Àœ¤ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸¹½Éµ…±¥é•A…É…É…Á¡É½ÕÁ9…µ”¡¹…µ”¤ì(€É•ÑÕÉ¸¹½Éµ…±¥é•9…µ”¡¹…µ”°€Ÿšº×¢B÷î–B7Àœ¤ì)ô()™Õ¹Ñ¥½¸¹½Éµ…±¥é•9…µ”¡¹…µ”°±…‰•°¤ì(€½¹ÍĞÙ…±Õ”€ôÑåÁ•½˜¹…µ”€ôôô€ÍÑÉ¥¹œœ€ü¹…µ”¹ÑÉ¥´ ¤€è€œœì(€¥˜€ …Ù…±Õ”¤Ñ¡É½Ü¹•ÜÉÉ½È¡€‘í±…‰•±÷’â7¢÷’âë¦ë¾ò3¢¾ß–†¯–g–B7Ã	€¤ì(€¥˜€¡Ù…±Õ”¹±•¹Ñ €ø5a}95}19Q ¤Ñ¡É½Ü¹•ÜÉÉ½È¡€‘í±…‰•±÷šr–’h€‘í5a}95}19Q!ôƒ’â«–¶_²›¾ò3¢¾ßò§~·–B;¦7¢¾W	€¤ì(€É•ÑÕÉ¸Ù…±Õ”ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸µ¥É…Ñ•AÉ½©•Ğ¡ÁÉ½©•Ğ¤ì(€¥˜€ …ÁÉ½©•ĞñğÑåÁ•½˜ÁÉ½©•Ğ€„ôô€½‰©•Ğœ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/šZ’îÛš‚ó–ò?š^ƒšV#œ¤ì(€¥˜€¡ÁÉ½©•Ğ¹Í¡•µ…Y•ÉÍ¥½¸€ôôô€È¤É•ÑÕÉ¸±½¹”¡ÁÉ½©•Ğ¤ì(€¥˜€¡ÁÉ½©•Ğ¹Í¡•µ…Y•ÉÍ¥½¸€„ôô€Ä¤Ñ¡É½Ü¹•ÜÉÉ½È¡ƒ’â7šR¿š2–Ş—¢/&#šr³¾òh‘íÁÉ½©•Ğ¹Í¡•µ…Y•ÉÍ¥½¸€üü€Ÿšr«~”÷	€¤ì(€½¹ÍĞ¡…ÁÑ•É%€ô€‘íÁÉ½©•Ğ¹¥‘ôµ¡…ÁÑ•È´ÀÅ€ì(€½¹ÍĞì‘½Õµ•¹Ğ°€¸¸¹±•…äô€ô±½¹”¡ÁÉ½©•Ğ¤ì(€É•ÑÕÉ¸ì(€€€€¸¸¹±•…ä°(€€€Í¡•µ…Y•ÉÍ¥½¸è€È°(€€€…Ñ¥Ù•¡…ÁÑ•É%è¡…ÁÑ•É%°(€€€¡…ÁÑ•ÉÌèmì¥è¡…ÁÑ•É%°¹…µ”è€Ÿ²°ÀÇ®€œ°‘½Õµ•¹Ğ°É½ÕÁÌèmt°µÕÍ¥I…¹•Ìèmtõt°(€€€…ÍÍ•ÑÌè±•…ä¹…ÍÍ•ÑÌ¹µ…À ¡…ÍÍ•Ğ¤€ôø€¡ì€¸¸¹…ÍÍ•Ğ°­¥¹è…ÍÍ•Ğ¹­¥¹€ôôô€µÕÍ¥Œœ€ü€…Õ‘¥¼œ€è…ÍÍ•Ğ¹­¥¹ô¤¤°(€ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì(€É•ÑÕÉ¸ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹™¥¹ ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€ôôôÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%¤€üüÁÉ½©•Ğ¹¡…ÁÑ•ÉÍlÁt€üü¹Õ±°ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸…‘‘¡…ÁÑ•È¡ÁÉ½©•Ğ°¹…µ”¤ì(€½¹ÍĞ¡…ÁÑ•È€ôì¥èµ…­•% ¡…ÁÑ•Èœ¤°¹…µ”è¹½Éµ…±¥é•¡…ÁÑ•É9…µ”¡¹…µ”¤°‘½Õµ•¹ĞèìÑåÁ”è€‘½Œœ°‰±½­Ìèmtô°É½ÕÁÌèmt°µÕÍ¥I…¹•Ìèmtôì(€É•ÑÕÉ¸ì€¸¸¹ÁÉ½©•Ğ°…Ñ¥Ù•¡…ÁÑ•É%è¡…ÁÑ•È¹¥°¡…ÁÑ•ÉÌèl¸¸¹ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ°¡…ÁÑ•Ét°ÕÁ‘…Ñ•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•¹…µ•¡…ÁÑ•È¡ÁÉ½©•Ğ°¡…ÁÑ•É%°¹…µ”¤ì(€½¹ÍĞÙ…±Õ”€ô¹½Éµ…±¥é•¡…ÁÑ•É9…µ”¡¹…µ”¤ì(€É•ÑÕÉ¸ÕÁ‘…Ñ•¡…ÁÑ•È¡ÁÉ½©•Ğ°¡…ÁÑ•É%°€¡¡…ÁÑ•È¤€ôø€¡ì€¸¸¹¡…ÁÑ•È°¹…µ”èÙ…±Õ”ô¤¤ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•½É‘•É¡…ÁÑ•È¡ÁÉ½©•Ğ°¡…ÁÑ•É%°‘¥É•Ñ¥½¸¤ì(€½¹ÍĞ¡…ÁÑ•ÉÌ€ôl¸¸¹ÁÉ½©•Ğ¹¡…ÁÑ•ÉÍtì(€½¹ÍĞ¥¹‘•à€ô¡…ÁÑ•ÉÌ¹™¥¹‘%¹‘•à ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€ôôô¡…ÁÑ•É%¤ì(€½¹ÍĞ¹•áĞ€ô5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸¡¡…ÁÑ•ÉÌ¹±•¹Ñ €´€Ä°¥¹‘•à€¬‘¥É•Ñ¥½¸¤¤ì(€¥˜€¡¥¹‘•à€ğ€Àñğ¥¹‘•à€ôôô¹•áĞ¤É•ÑÕÉ¸ÁÉ½©•Ğì(€m¡…ÁÑ•ÉÍm¥¹‘•át°¡…ÁÑ•ÉÍm¹•áÑut€ôm¡…ÁÑ•ÉÍm¹•áÑt°¡…ÁÑ•ÉÍm¥¹‘•áutì(€É•ÑÕÉ¸ì€¸¸¹ÁÉ½©•Ğ°¡…ÁÑ•ÉÌ°ÕÁ‘…Ñ•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•µ½Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ°¡…ÁÑ•É%¤ì(€¥˜€¡ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹±•¹Ñ €ğô€Ä¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/¢Ï–ÂG’şwVg’â’â«®ƒ¢*œ¤ì(€½¹ÍĞ¥¹‘•à€ôÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹™¥¹‘%¹‘•à ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€ôôô¡…ÁÑ•É%¤ì(€¥˜€¡¥¹‘•à€ğ€À¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢š–"ƒ¦f“j®ƒ¢*–ŞË’â7–¶c–r£œ¤ì(€½¹ÍĞ¡…ÁÑ•ÉÌ€ôÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹™¥±Ñ•È ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€„ôô¡…ÁÑ•É%¤ì(€½¹ÍĞ…Ñ¥Ù•¡…ÁÑ•É%€ôÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%€ôôô¡…ÁÑ•É%(€€€€ü¡…ÁÑ•ÉÍm5…Ñ ¹µ¥¸¡¥¹‘•à°¡…ÁÑ•ÉÌ¹±•¹Ñ €´€Ä¥t¹¥(€€€€èÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ì(€É•ÑÕÉ¸ì€¸¸¹ÁÉ½©•Ğ°¡…ÁÑ•ÉÌ°…Ñ¥Ù•¡…ÁÑ•É%°ÕÁ‘…Ñ•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸ÕÁ‘…Ñ•¡…ÁÑ•È¡ÁÉ½©•Ğ°¡…ÁÑ•É%°ÕÁ‘…Ñ”¤ì(€É•ÑÕÉ¸ì€¸¸¹ÁÉ½©•Ğ°¡…ÁÑ•ÉÌèÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹µ…À ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€ôôô¡…ÁÑ•É%€üÕÁ‘…Ñ”¡¡…ÁÑ•È¤€è¡…ÁÑ•È¤°ÕÁ‘…Ñ•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•…Ñ•A…É…É…Á¡É½ÕÀ¡¡…ÁÑ•È°Á…É…É…Á¡%‘Ì°¹…µ”¤ì(€½¹ÍĞÍ•±•Ñ•€ô½É‘•É•‘½¹Ñ¥Õ½ÕÍ%‘Ì¡¡…ÁÑ•È°Á…É…É…Á¡%‘Ì¤ì(€¥˜€ …Í•±•Ñ•¹±•¹Ñ ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢¾ß–#¦'š.§¢ş{î·jš¶šZšº×¢B÷œ¤ì(€½¹ÍĞ±•…¹•€ôÍÁ±¥ÑÉ½ÕÁÌ¡¡…ÁÑ•È°¹•ÜM•Ğ¡Í•±•Ñ•¤¤ì(€½¹ÍĞÉ½ÕÀ€ôì¥èµ…­•% É½ÕÀœ¤°¹…µ”è¹½Éµ…±¥é•A…É…É…Á¡É½ÕÁ9…µ”¡¹…µ”¤°Á…É…É…Á¡%‘ÌèÍ•±•Ñ•°½±±…ÁÍ•è™…±Í”ôì(€½¹ÍĞÕÁ‘…Ñ•€ôİ¥Ñ¡É½ÕÁ%‘Ì¡ì€¸¸¹±•…¹•°É½ÕÁÌèl¸¸¹±•…¹•¹É½ÕÁÌ°É½ÕÁtô¤ì(€É•ÑÕÉ¸İ¥Ñ¡5ÕÍ¥ÑÑÉ¥‰ÕÑ•Ì¡ÁÉ•Í•ÉÙ•5ÕÍ¥I…¹•5•µ‰•ÉÍ¡¥À¡¡…ÁÑ•È°ÕÁ‘…Ñ•¤¤ì)ô((¼¨¨Á…É…´í…¹åô¡…ÁÑ•ÈÁ…É…´íÍÑÉ¥¹ô¹…µ”Á…É…´íÍÑÉ¥¹ñ¹Õ±±ôm…™Ñ•ÉÉ½ÕÁ%‘t€¨¼)•áÁ½ÉĞ™Õ¹Ñ¥½¸É•…Ñ•µÁÑåA…É…É…Á¡É½ÕÀ¡¡…ÁÑ•È°¹…µ”°…™Ñ•ÉÉ½ÕÁ%€ô¹Õ±°¤ì(€½¹ÍĞÉ½ÕÁ9…µ”€ô¹½Éµ…±¥é•A…É…É…Á¡É½ÕÁ9…µ”¡¹…µ”¤ì(€½¹ÍĞÁ…É…É…Á €ôìÑåÁ”è€Á…É…É…Á œ°¥èµ…­•% Àœ¤°¡¥±‘É•¸èmtôì(€½¹ÍĞÉ½ÕÁÌ€ôl¸¸¹¡…ÁÑ•È¹É½ÕÁÍtì(€½¹ÍĞÑ…É•Ñ%¹‘•à€ô…™Ñ•ÉÉ½ÕÁ%€üÉ½ÕÁÌ¹™¥¹‘%¹‘•à ¡É½ÕÀ¤€ôøÉ½ÕÀ¹¥€ôôô…™Ñ•ÉÉ½ÕÁ%¤€èÉ½ÕÁÌ¹±•¹Ñ €´€Äì(€½¹ÍĞÑ…É•Ğ€ôÉ½ÕÁÍmÑ…É•Ñ%¹‘•átì(€½¹ÍĞ‰±½­%¹‘•à€ôÑ…É•Ğ€ü¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹™¥¹‘%¹‘•à ¡‰±½¬¤€ôø‰±½¬¹¥€ôôôÑ…É•Ğ¹Á…É…É…Á¡%‘Ì¹…Ğ ´Ä¤¤€¬€Ä€è¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹±•¹Ñ ì(€½¹ÍĞ‰±½­Ì€ôl¸¸¹¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ítì(€‰±½­Ì¹ÍÁ±¥”¡5…Ñ ¹µ…à À°‰±½­%¹‘•à¤°€À°Á…É…É…Á ¤ì(€½¹ÍĞÉ½ÕÀ€ôì¥èµ…­•% É½ÕÀœ¤°¹…µ”èÉ½ÕÁ9…µ”°Á…É…É…Á¡%‘ÌèmÁ…É…É…Á ¹¥‘t°½±±…ÁÍ•è™…±Í”ôì(€Á…É…É…Á ¹É½ÕÁ%€ôÉ½ÕÀ¹¥ì(€É½ÕÁÌ¹ÍÁ±¥”¡Ñ…É•Ğ€üÑ…É•Ñ%¹‘•à€¬€Ä€èÉ½ÕÁÌ¹±•¹Ñ °€À°É½ÕÀ¤ì(€É•ÑÕÉ¸ì€¸¸¹¡…ÁÑ•È°‘½Õµ•¹Ğèì€¸¸¹¡…ÁÑ•È¹‘½Õµ•¹Ğ°‰±½­Ìô°É½ÕÁÌôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•µ½Ù•A…É…É…Á¡É½ÕÀ¡¡…ÁÑ•È°É½ÕÁ%¤ì(€½¹ÍĞÕÁ‘…Ñ•€ôİ¥Ñ¡É½ÕÁ%‘Ì¡ì€¸¸¹¡…ÁÑ•È°É½ÕÁÌè¡…ÁÑ•È¹É½ÕÁÌ¹™¤V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅæÇFW"‚†w&÷W’Óâw&÷Wæ–BÓÒw&÷W–B’Ò“°¢&WGW&âv—F„×W6–4GG&–'WFW2‡&W6W'fT×W6–5&ævTÖVÖ&W'6†—†6†FW"ÂWFFVB’“°§Ğ ¦W‡÷'BgVæ7F–öâ6WDw&÷W6öÆÆ6VB†6†FW"Âw&÷W–BÂ6öÆÆ6VB’°¢&WGW&â²ââæ6†FW"Âw&÷W3¢6†FW"æw&÷W2æÖ‚†w&÷W’Óâw&÷Wæ–BÓÓÒw&÷W–Bò²ââæw&÷WÂ6öÆÆ6VBÒ¢w&÷W’Ó°§Ğ ¦W‡÷'BgVæ7F–öâ&VæÖU&w&„w&÷W†6†FW"Âw&÷W–BÂæÖR’°¢6öç7BfÇVRÒæ÷&ÖÆ—¦U&w&„w&÷WæÖR†æÖR“°¢&WGW&â²ââæ6†FW"Âw&÷W3¢6†FW"æw&÷W2æÖ‚†w&÷W’Óâw&÷Wæ–BÓÓÒw&÷W–Bò²ââæw&÷WÂæÖS¢fÇVRÒ¢w&÷W’Ó°§Ğ ¦W‡÷'BgVæ7F–öâÖ÷fU&w&„w&÷W†6†FW"Âw&÷W–BÂF—&V7F–öâ’°¢6öç7B÷&FW&VBÒ²ââæ6†FW"æw&÷W5Òç6÷'B‚†Â"’Óâ6†FW"æFö7VÖVçBæ&Æö6·2æf–æD–æFW‚‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒç&w&„–G5³Ò’Ò6†FW"æFö7VÖVçBæ&Æö6·2æf–æD–æFW‚‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒ"ç&w&„–G5³Ò’“°¢6öç7Bw&÷W–æFW‚Ò÷&FW&VBæf–æD–æFW‚‚†w&÷W’Óâw&÷Wæ–BÓÓÒw&÷W–B“°¢–b†w&÷W–æFW‚Â’&WGW&â6†FW#°¢6öç7Bw&÷WÒ÷&FW&VE¶w&÷W–æFW…Ó°¢6öç7B–G2Ò÷&FW&VD6öçF–wV÷W4–G2†6†FW"Âw&÷Wç&w&„–G2“°¢–b‚–G2æÆVæwF‚’F‡&÷ræWrW'&÷"‚~jë^‰Ş{¸NXh^ZëKˆŞ‹ùî{ºŞûÈÎŠû~XXi[NynXˆn{¸N8"r“°¢6öç7B6VÆV7FVBÒæWr6WB†–G2“°¢6öç7BÖ÷fVD&Æö6·2Ò–G2æÖ‚†–B’Óâ6†FW"æFö7VÖVçBæ&Æö6·2æf–æB‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒ–B’“°¢6öç7B7F'BÒ6†FW"æFö7VÖVçBæ&Æö6·2æf–æD–æFW‚‚†&Æö6²’Óâ6VÆV7FVBæ†2†&Æö6²æ–B’“°¢6öç7BVæBÒ7F'B²–G2æÆVæwF‚Ò°¢6öç7BF¦6VçBÒF—&V7F–öâÂò6†FW"æFö7VÖVçBæ&Æö6·5·7F'BÒÒ¢6†FW"æFö7VÖVçBæ&Æö6·5¶VæB²Ó°¢–b‚F¦6VçB’&WGW&â6†FW#°¢6öç7BF¦6VçDw&÷WÒ6†FW"æw&÷W2æf–æB‚†—FVÒ’Óâ—FVÒç&w&„–G2æ–æ6ÇVFW2†F¦6VçBæ–B’“°¢6öç7Bæ6†÷"ÒF—&V7F–öâÂòF¦6VçDw&÷Wòç&w&„–G5³ÒóòF¦6VçBæ–B¢F¦6VçDw&÷Wòç&w&„–G2æB‚Ó’óòF¦6VçBæ–C°¢6öç7B&Æö6·2Ò6†FW"æFö7VÖVçBæ&Æö6·2æf–ÇFW"‚†&Æö6²’Óâ6VÆV7FVBæ†2†&Æö6²æ–B’“°¢6öç7Bæ6†÷$–æFW‚Ò&Æö6·2æf–æD–æFW‚‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒæ6†÷"“°¢&Æö6·2ç7Æ–6R†F—&V7F–öâÂòæ6†÷$–æFW‚¢æ6†÷$–æFW‚²ÂÂââæÖ÷fVD&Æö6·2“°¢6öç7BVæ6†ævVDw&÷W2Òv—F„w&÷W–G2‡²ââæ6†FW"ÂFö7VÖVçC¢²ââæ6†FW"æFö7VÖVçBÂ&Æö6·2ÒÒ“°¢&WGW&âv—F„×W6–4GG&–'WFW2‡&V6öæ6–ÆT×W6–4gFW$Ö÷fR†6†FW"ÂVæ6†ævVDw&÷W2ÂæWrÖ†6†FW"æw&÷W2æÖ‚†—FVÒ’Óâ¶—FVÒæ–BÂ¶—FVÒæ–EÕÒ’’’“°§Ğ ¦W‡÷'BgVæ7F–öâÖ÷fU&w&‡2†6†FW"Â&w&„–G2ÂF&vWBÂ÷6—F–öâÒF&vWBç÷6—F–öâóòvgFW"r’°¢6öç7B6VÆV7FVBÒ÷&FW&VD6öçF–wV÷W4–G2†6†FW"Â&w&„–G2“°¢–b‚6VÆV7FVBæÆVæwF‚’F‡&÷ræWrW'&÷"‚~Xú®ˆ;Şh¹nXªiÊÎzºKŠŞ‹ùî{ºŞy¨NjÚ>ih~jë^‰Ş8"r“°¢6öç7B6VÆV7FVE6WBÒæWr6WB‡6VÆV7FVB“°¢6öç7B&Æö6·4'”–BÒæWrÖ†6†FW"æFö7VÖVçBæ&Æö6·2æÖ‚†&Æö6²’Óâ¶&Æö6²æ–BÂ&Æö6µÒ’“°¢6öç7BÖ÷f–ærÒ6VÆV7FVBæÖ‚†–B’Óâ&Æö6·4'”–BævWB†–B’“°¢6öç7B&W7BÒ6†FW"æFö7VÖVçBæ&Æö6·2æf–ÇFW"‚†&Æö6²’Óâ6VÆV7FVE6WBæ†2†&Æö6²æ–B’“°¢ÆWB–ç6W'F–öä–æFWƒ°¢–b‡F&vWBçG—RÓÓÒvw&÷Wr’°¢6öç7Bw&÷WÒ6†FW"æw&÷W2æf–æB‚†—FVÒ’Óâ—FVÒæ–BÓÓÒF&vWBæw&÷W–B“°¢–b‚w&÷W’F‡&÷ræWrW'&÷"‚~yºîj~jë^‰Ş{¸N[{.KˆŞZÙYÊûÈÎŠû~˜xŞikh¹nXª8"r“°¢–b†w&÷Wç&w&„–G2æWfW'’‚†–B’Óâ6VÆV7FVE6WBæ†2†–B’’’&WGW&â6†FW#°¢6öç7BÆ7E&VÖ–æ–ærÒw&÷Wç&w&„–G2æf–ÇFW"‚†–B’Óâ6VÆV7FVE6WBæ†2†–B’’æB‚Ó“°¢6öç7BÆ7D–æFW‚Ò&W7Bæf–æD–æFW‚‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒÆ7E&VÖ–æ–ær“°¢–b†Æ7D–æFW‚Â’F‡&÷ræWrW'&÷"‚~yºîj~jë^‰Ş{¸NXh^Zë[{.XùXÉnûÈÎŠû~˜xŞikh¹nXª8"r“°¢–ç6W'F–öä–æFW‚ÒÆ7D–æFW‚²°¢ÒVÇ6R–b‡F&vWBçG—RÓÓÒw&w&‚r’°¢–b‡6VÆV7FVE6WBæ†2‡F&vWBç&w&„–B’’&WGW&â6†FW#°¢6öç7BF&vWD–æFW‚Ò&W7Bæf–æD–æFW‚‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒF&vWBç&w&„–B“°¢–b‡F&vWD–æFW‚Â’F‡&÷ræWrW'&÷"‚~yºîj~jÚ>ih~jë^‰Ş[{.XùXÉnûÈÎŠû~˜xŞikh¹nXª8"r“°¢–ç6W'F–öä–æFW‚ÒF&vWD–æFW‚²‡÷6—F–öâÓÓÒvgFW"rò¢“°¢ÒVÇ6RF‡&÷ræWrW'&÷"‚~h¹niKîyºîj~iziX8"r“° ¢6öç7BöÆD–æFW‚ÒæWrÖ†6†FW"æFö7VÖVçBæ&Æö6·2æÖ‚†&Æö6²Â–æFW‚’Óâ¶&Æö6²æ–BÂ–æFW…Ò’“°¢6öç7BæW‡D&Æö6·2Ò²ââç&W7EÓ°¢æW‡D&Æö6·2ç7Æ–6R†–ç6W'F–öä–æFW‚ÂÂââæÖ÷f–ær“°¢6öç7BFW7F–æF–öä–BÒF&vWBçG—RÓÓÒvw&÷WròF&vWBæw&÷W–B¢6†FW"æw&÷W2æf–æB‚†w&÷W’Óâw&÷Wç&w&„–G2æ–æ6ÇVFW2‡F&vWBç&w&„–B’“òæ–C°¢–b†æW‡D&Æö6·2æWfW'’‚†&Æö6²Â–æFW‚’Óâ&Æö6²æ–BÓÓÒ6†FW"æFö7VÖVçBæ&Æö6·5¶–æFW…Óòæ–B’bb6VÆV7FVBæWfW'’‚†–B’Óâ6†FW"æw&÷W2æf–æB‚†w&÷W’Óâw&÷Wç&w&„–G2æ–æ6ÇVFW2†–B’“òæ–BÓÓÒFW7F–æF–öä–B’’&WGW&â6†FW#° ¢6öç7BæW‡DFö7VÖVçBÒ²ââæ6†FW"æFö7VÖVçBÂ&Æö6·3¢æW‡D&Æö6·2Ó°¢6öç7BF&vWDw&÷WÒF&vWBçG—RÓÓÒvw&÷Wrò6†FW"æw&÷W2æf–æB‚†w&÷W’Óâw&÷Wæ–BÓÓÒF&vWBæw&÷W–B’¢çVÆÃ°¢6öç7BF&vWE&w&‚ÒF&vWBçG—RÓÓÒw&w&‚ròF&vWBç&w&„–B¢F&vWDw&÷Wòç&w&„–G2æB‚Ó“°¢6öç7BFW7F–æF–öäw&÷WÒ6†FW"æw&÷W2æf–æB‚†w&÷W’Óâw&÷Wç&w&„–G2æ–æ6ÇVFW2‡F&vWE&w&‚’’óòçVÆÃ°¢6öç7Bw&÷WÖVÖ&W'6†—ÒæWrÖ‚“°¢f÷"†6öç7Bw&÷Wöb6†FW"æw&÷W2’°¢f÷"†6öç7B–Böbw&÷Wç&w&„–G2’–b‚6VÆV7FVE6WBæ†2†–B’’w&÷WÖVÖ&W'6†—ç6WB†–BÂw&÷Wæ–B“°¢Ğ¢–b†FW7F–æF–öäw&÷W’f÷"†6öç7B–Böb6VÆV7FVB’w&÷WÖVÖ&W'6†—ç6WB†–BÂFW7F–æF–öäw&÷Wæ–B“±ZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{‚‚ˆÛÛœİÜ›İ\ÈH×NÂˆÛÛœİÜ›İ\[X\Ù\ÈH™]ÈX\
+import { clone, makeId } from './document.mjs';
 
-NÂˆ›Üˆ
-ÛÛœİÜ›İ\ÙˆÚ\\‹™Ü›İ\ÊHÂˆÛÛœİYÈH™^›ØÚÜË™š[\Š
-›ØÚÊHOˆÜ›İ\Y[X™\œÚ\™Ù]
-›ØÚËšY
-HOOHÜ›İ\šY
-K›X\
+const MAX_NAME_LENGTH = 120;
 
-›ØÚÊHOˆ›ØÚËšY
-NÂˆÛÛœİ[œÈHÛÛYİ[İ\Ô[œÊÈØİ[Y[ˆ™^Øİ[Y[KYÊNÂˆYˆ
-[œË›[™İ
-HÂˆÛÛœİ[X\Ù\ÈH[œË›X\
+export function normalizeChapterName(name) {
+  return normalizeName(name, 'ç« èŠ‚åç§°');
+}
 
-[‹[™^
-HOˆÂˆÛÛœİ™^YH[™^OOHÈÜ›İ\šYˆXZÙRY
-	ÙÜ›İ\	ÊNÂˆÜ›İ\Ëœ\Ú
-È‹‹™Ü›İ\Yˆ™^Y˜[YNˆ[™^OOHÈÜ›İ\›˜[YHˆ	ÙÜ›İ\›˜[Y_{ï"9îë{ï"X\˜YÜ˜\YÎˆ[ˆJNÂˆ™]\›ˆ™^YÂˆJNÂˆÜ›İ\[X\Ù\ËœÙ]
-Ü›İ\šY[X\Ù\ÊNÂˆH[ÙHÂˆÛÛœİXÙZÛ\ˆHÈ\Nˆ	Ü\˜YÜ˜\	ËYˆXZÙRY
-	Ü	ÊKÚ[™[ˆ×HNÂˆÛÛœİÛİ\˜ÙR[™^HX]›Z[ŠÛ[™^™Ù]
-Ü›İ\œ\˜YÜ˜\YÖÌJHÏÈ™^›ØÚÜË›[™İ™^›ØÚÜË›[™İ
-NÂˆ™^›ØÚÜËœÜXÙJÛİ\˜ÙR[™^XÙZÛ\ŠNÂˆÜ›İ\Y[X™\œÚ\œÙ]
-XÙZÛ\‹šYÜ›İ\šY
-NÂˆÜ›İ\Ëœ\Ú
-È‹‹™Ü›İ\\˜YÜ˜\YÎˆÜXÙZÛ\‹šYHJNÂˆÜ›İ\[X\Ù\ËœÙ]
-Ü›İ\šYÙÜ›İ\šYJNÂˆBˆBˆÛÛœİÜ›İ\YÚ\\ˆHÚ]Ü›İ\YÊÈ‹‹˜Ú\\‹Øİ[Y[ˆÈ‹‹˜Ú\\‹™Øİ[Y[›ØÚÜÎˆ™^›ØÚÜÈKÜ›İ\ÈJNÂˆÛÛœİ™XÛÛ˜Ú[YHÚ]]\ÚXĞ]šX]\Ê™XÛÛ˜Ú[S]\ÚXĞY\“[İ™JÚ\\‹Ü›İ\YÚ\\‹Ü›İ\[X\Ù\ËÈ[İ™YYÎˆÙ[XİY\™Ù]˜[™ÙNˆ\™Ù]\˜YÜ˜\È]\ÚXÔ˜[™ÙP]
-Ú\\‹\™Ù]\˜YÜ˜\
-Hˆ[JJNÂˆ™]\›ˆ™XÛÛ˜Ú[YÂŸB‚™^Ü[˜İ[ÛˆÙ]]\ÚXÔ˜[™ÙJÚ\\‹\ÜÙ]Y\˜YÜ˜\YËÜ[ÛœÈHßJHÂˆÛÛœİÙ[XİYHÜ™\™YÛÛYİ[İ\ÒYÊÚ\\‹\˜YÜ˜\YÊNÂˆYˆ
-\Ù[XİY›[™İ
-H›İÈ™]È\œ›ÜŠ	ú+íùab:`"y¢êy. 9.*º/ç¹îëyæ¡9«­z$/z# ùfí8à ‰ÊNÂˆÛÛœİÙ[XİYÙ^HH™]ÈÙ]
-Ù[XİY
-NÂˆÛÛœİ^\İ[™Ñ^XİHÚ\\‹›]\ÚXÔ˜[™Ù\Ë™š[™
+export function normalizeParagraphGroupName(name) {
+  return normalizeName(name, 'æ®µè½ç»„åç§°');
+}
 
-˜[™ÙJHOˆØ[YSY[X™\œÊ]\ÚXÔ˜[™ÙT\˜YÜ˜\YÊÚ\\‹˜[™ÙJKÙ[XİY
-JNÂˆÛÛœİİ™\›\ÈHÚ\\‹›]\ÚXÔ˜[™Ù\Ë™š[™
+function normalizeName(name, label) {
+  const value = typeof name === 'string' ? name.trim() : '';
+  if (!value) throw new Error(`${label}ä¸èƒ½ä¸ºç©ºï¼Œè¯·å¡«å†™åç§°ã€‚`);
+  if (value.length > MAX_NAME_LENGTH) throw new Error(`${label}æœ€å¤š ${MAX_NAME_LENGTH} ä¸ªå­—ç¬¦ï¼Œè¯·ç¼©çŸ­åé‡è¯•ã€‚`);
+  return value;
+}
 
-˜[™ÙJHOˆ˜[™ÙKšYOOH^\İ[™Ñ^XİËšY	‰ˆ]\ÚXÔ˜[™ÙT\˜YÜ˜\YÊÚ\\‹˜[™ÙJKœÛÛYJ
-Y
-HOˆÙ[XİYÙ^Kš\ÊY
-JJNÂˆYˆ
-İ™\›\ÊH›İÈ™]È\œ›ÜŠ	ú/æy.*º# ùfí9.#¹mì¹§"z ã9¦kúgìù.d:# ùfí:aãycè;ï#:+íùab9éîúfi9¢%º, ù¥m9c§ú# ùfí8à ‰ÊNÂˆÛÛœİX]ÚYÜ›İ\ÈHÚ\\‹™Ü›İ\Ë™š[\Š
-Ü›İ\
-HOˆÜ›İ\œ\˜YÜ˜\YË™]™\J
-Y
-HOˆÙ[XİYÙ^Kš\ÊY
-JJNÂˆÛÛœİÜ›İ\YÈHX]ÚYÜ›İ\Ë›[™İ	‰ˆX]ÚYÜ›İ\Ë™›]X\
+export function migrateProject(project) {
+  if (!project || typeof project !== 'object') throw new Error('å·¥ç¨‹æ–‡ä»¶æ ¼å¼æ— æ•ˆã€‚');
+  if (project.schemaVersion === 2) return clone(project);
+  if (project.schemaVersion !== 1) throw new Error(`ä¸æ”¯æŒå·¥ç¨‹ç‰ˆæœ¬ï¼š${project.schemaVersion ?? 'æœªçŸ¥'}ã€‚`);
+  const chapterId = `${project.id}-chapter-01`;
+  const { document, ...legacy } = clone(project);
+  return {
+    ...legacy,
+    schemaVersion: 2,
+    activeChapterId: chapterId,
+    chapters: [{ id: chapterId, name: 'ç¬¬01ç« ', document, groups: [], musicRanges: [] }],
+    assets: legacy.assets.map((asset) => ({ ...asset, kind: asset.kind === 'music' ? 'audio' : asset.kind })),
+  };
+}
 
-Ü›İ\
-HOˆÜ›İ\œ\˜YÜ˜\YÊK›[™İOOHÙ[XİY›[™İÈX]ÚYÜ›İ\Ë›X\
+export function activeChapter(project) {
+  return project.chapters.find((chapter) => chapter.id === project.activeChapterId) ?? project.chapters[0] ?? null;
+}
 
-Ü›İ\
-HOˆÜ›İ\šY
-Hˆ[ÂˆÛÛœİ˜[™ÙHHÈYˆ^\İ[™Ñ^XİËšYÏÈXZÙRY
-	Û]\ÚXË\˜[™ÙIÊK\ÜÙ]Yİ\\˜YÜ˜\YˆÙ[XİYÌK[™\˜YÜ˜\YˆÙ[XİY˜]
-LJK‹‹ŠÜ›İ\YÈÈÈÜ›İ\YÈHˆßJK›Û[YNˆÜ[ÛœË›Û[YHÏÈ^\İ[™Ñ^XİË›Û[YHÏÈKÛÜˆÜ[ÛœË›ÛÜÏÈ^\İ[™Ñ^XİË›ÛÜÏÈ˜[ÙHNÂˆ™]\›ˆÚ]]\ÚXĞ]šX]\ÊÈ‹‹˜Ú\\‹]\ÚXÔ˜[™Ù\ÎˆË‹‹˜Ú\\‹›]\ÚXÔ˜[™Ù\Ë™š[\Š
-][JHOˆ][KšYOOH^\İ[™Ñ^XİËšY
-K˜[™ÙWHJNÂŸB‚™^Ü[˜İ[Ûˆ™\XÙS]\ÚXÔ˜[™ÙJÚ\\‹\ÜÙ]Y\˜YÜ˜\YËÜ[ÛœÈHßJHÂˆÛÛœİÙ[XİYHÜ™\™YÛÛYİ[İ\ÒYÊÚ\\‹\˜YÜ˜\YÊNÂˆYˆ
-\Ù[XİY›[™İ
-H›İÈ™]È\œ›ÜŠ	ú+íùab:`"y¢êz/ç¹îëy«­z$/y¢%º/ç¹îëy«­z$/yîá8à ‰ÊNÂˆÛÛœİÙ[XİYÙ]H™]ÈÙ]
-Ù[XİY
-NÂˆ]™^HÈ‹‹˜Ú\\‹]\ÚXÔ˜[™Ù\Îˆ×HNÂˆ›Üˆ
-ÛÛœİ˜[™ÙHÙˆÚ\\‹›]\ÚXÔ˜[™Ù\ÊHÂˆÛÛœİ™[XZ[š[™ÈH]\ÚXÔ˜[™ÙT\˜YÜ˜\YÊÚ\\‹˜[™ÙJK™š[\Š
-Y
-HOˆ\Ù[XİYÙ]š\ÊY
-JNÂˆ›Üˆ
-ÛÛœİÚ[™^[—HÙˆÛÛYİ[İ\Ô[œÊÚ\\‹™[XZ[š[™ÊK™[šY\Ê
-JHÂˆ™^HÙ]]\ÚXÔ˜[™ÙJ™^˜[™ÙK˜\ÜÙ]Y[‹È›Û[YNˆ˜[™ÙK›Û[YKÛÜˆ˜[™ÙK›ÛÜJNÂˆÛÛœİYYH™^›]\ÚXÔ˜[™Ù\Ë˜]
-LJNÂˆYYšYH[™^OOHÈ˜[™ÙKšYˆXZÙRY
-	Û]\ÚXË\˜[™ÙIÊNÂˆBˆBˆ™]\›ˆÙ]]\ÚXÔ˜[™ÙJ™^\ÜÙ]YÙ[XİYÜ[ÛœÊNÂŸB‚™^Ü[˜İ[Ûˆ™[[İ™S]\ÚXÔ˜[™ÙJÚ\\‹˜[™ÙRY
-HÂˆ™]\›ˆÚ]]\ÚXĞ]šX]\ÊÈ‹‹˜Ú\\‹]\ÚXÔ˜[™Ù\ÎˆÚ\\‹›]\ÚXÔ˜[™Ù\Ë™š[\Š
-˜[™ÙJHOˆ˜[™ÙKšYOOH˜[™ÙRY
-HJNÂŸB‚™^Ü[˜İ[Ûˆ]\ÚXÔ˜[™ÙP]
-Ú\\‹\˜YÜ˜\Y
-HÂˆÛÛœİ[™^\ÈH\˜YÜ˜\[™^\ÊÚ\\ŠNÂˆÛÛœİ[™^H[™^\Ë™Ù]
-\˜YÜ˜\Y
-NÂˆYˆ
-[™^OOH[™Yš[™Y
-H™]\›ˆ[Âˆ™]\›ˆÚ\\‹›]\ÚXÔ˜[™Ù\Ë™š[™
+export function addChapter(project, name) {
+  const chapter = { id: makeId('chapter'), name: normalizeChapterName(name), document: { type: 'doc', blocks: [] }, groups: [], musicRanges: [] };
+  return { ...project, activeChapterId: chapter.id, chapters: [...project.chapters, chapter], updatedAt: new Date().toISOString() };
+}
 
-˜[™ÙJHOˆ]\ÚXÔ˜[™ÙT\˜YÜ˜\YÊÚ\\‹˜[™ÙJKš[˜ÛY\Ê\˜YÜ˜\Y
-JHÏÈ[ÂŸB‚™^Ü[˜İ[Ûˆ™XÛÛ˜Ú[PÚ\\‘Øİ[Y[
-™]š[İ\ËØİ[Y[
-HÂˆÛÛœİÚ\\ˆHÈ‹‹œ™]š[İ\ËØİ[Y[NÂˆÛÛœİ^\İ[™ÈH™]ÈÙ]
-Øİ[Y[˜›ØÚÜË›X\
+export function renameChapter(project, chapterId, name) {
+  const value = normalizeChapterName(name);
+  return updateChapter(project, chapterId, (chapter) => ({ ...chapter, name: value }));
+}
 
-›ØÚÊHOˆ›ØÚËšY
-JNÂˆÛÛœİÚ\\’[™^\ÈH\˜YÜ˜\[™^\ÊÚ\\ŠNÂˆÛÛœİ™]ÒYÈH™]ÈÙ]
-Øİ[Y[˜›ØÚÜË›X\
+export function reorderChapter(project, chapterId, direction) {
+  const chapters = [...project.chapters];
+  const index = chapters.findIndex((chapter) => chapter.id === chapterId);
+  const next = Math.max(0, Math.min(chapters.length - 1, index + direction));
+  if (index < 0 || index === next) return project;
+  [chapters[index], chapters[next]] = [chapters[next], chapters[index]];
+  return { ...project, chapters, updatedAt: new Date().toISOString() };
+}
 
-›ØÚÊHOˆ›ØÚËšY
-K™š[\Š
-Y
-HOˆ[Û[™^\Ò\Ê™]š[İ\ËY
-JJNÂˆÛÛœİÜ›İ\]šX]\Ô™\Ù[HØİ[Y[˜›ØÚÜËœÛÛYJ
-›ØÚÊHOˆØš™Xİš\ÓİÛŠ›ØÚË	ÙÜ›İ\Y	ÊJNÂˆÛÛœİÜ›İ\ÈH×NÂˆ›Üˆ
-ÛÛœİÜ›İ\Ùˆ™]š[İ\Ë™Ü›İ\ÊHÂˆYˆ
-Ü›İ\]šX]\Ô™\Ù[
-HÂˆÛÛœİYÙÙYHØİ[Y[˜›ØÚÜË™š[\Š
-›ØÚÊHOˆ›ØÚË™Ü›İ\YOOHÜ›İ\šY
-K›X\
+export function removeChapter(project, chapterId) {
+  if (project.chapters.length <= 1) throw new Error('å·¥ç¨‹è‡³å°‘ä¿ç•™ä¸€ä¸ªç« èŠ‚ã€‚');
+  const index = project.chapters.findIndex((chapter) => chapter.id === chapterId);
+  if (index < 0) throw new Error('è¦åˆ é™¤çš„ç« èŠ‚å·²ä¸å­˜åœ¨ã€‚');
+  const chapters = project.chapters.filter((chapter) => chapter.id !== chapterId);
+  const activeChapterId = project.activeChapterId === chapterId
+    ? chapters[Math.min(index, chapters.length - 1)].id
+    : project.activeChapterId;
+  return { ...project, chapters, activeChapterId, updatedAt: new Date().toISOString() };
+}
 
-›ØÚÊHOˆ›ØÚËšY
-NÂˆ]YÈHYÙÙYÂˆYˆ
-YÙÙY›[™İ
-HÂˆÛÛœİİ\HX]›Z[Š‹‹YÙÙY›X\
+export function updateChapter(project, chapterId, update) {
+  return { ...project, chapters: project.chapters.map((chapter) => chapter.id === chapterId ? update(chapter) : chapter), updatedAt: new Date().toISOString() };
+}
 
-Y
-HOˆÚ\\’[™^\Ë™Ù]
-Y
-JJNÂˆÛÛœİ[™HX]›X^
-‹‹YÙÙY›X\
+export function createParagraphGroup(chapter, paragraphIds, name) {
+  const selected = orderedContiguousIds(chapter, paragraphIds);
+  if (!selected.length) throw new Error('è¯·å…ˆé€‰æ‹©è¿ç»­çš„æ­£æ–‡æ®µè½ã€‚');
+  const cleaned = splitGroups(chapter, new Set(selected));
+  const group = { id: makeId('group'), name: normalizeParagraphGroupName(name), paragraphIds: selected, collapsed: false };
+  const updated = withGroupIds({ ...cleaned, groups: [...cleaned.groups, group] });
+  return withMusicAttributes(preserveMusicRangeMembership(chapter, updated));
+}
 
-Y
-HOˆÚ\\’[™^\Ë™Ù]
-Y
-JJNÂˆÛÛœİÜ[ˆHØİ[Y[˜›ØÚÜËœÛXÙJİ\[™
-ÈJEj)^vÚŠwky©e¡Æ­Š‰è|%,z»!ršCjÖ‹¡Æ¥>º ­©¬?+a¢sò¶'ß]éÊØhì^.map((block) => block.id);
+/** @param {any} chapter @param {string} name @param {string|null} [afterGroupId] */
+export function createEmptyParagraphGroup(chapter, name, afterGroupId = null) {
+  const groupName = normalizeParagraphGroupName(name);
+  const paragraph = { type: 'paragraph', id: makeId('p'), children: [] };
+  const groups = [...chapter.groups];
+  const targetIndex = afterGroupId ? groups.findIndex((group) => group.id === afterGroupId) : groups.length - 1;
+  const target = groups[targetIndex];
+  const blockIndex = target ? chapter.document.blocks.findIndex((block) => block.id === target.paragraphIds.at(-1)) + 1 : chapter.document.blocks.length;
+  const blocks = [...chapter.document.blocks];
+  blocks.splice(Math.max(0, blockIndex), 0, paragraph);
+  const group = { id: makeId('group'), name: groupName, paragraphIds: [paragraph.id], collapsed: false };
+  paragraph.groupId = group.id;
+  groups.splice(target ? targetIndex + 1 : groups.length, 0, group);
+  return { ...chapter, document: { ...chapter.document, blocks }, groups };
+}
+
+export function removeParagraphGroup(chapter, groupId) {
+  const updated = withGroupIds({ ...chapter, groups: chapter.groups.filter((group) => group.id !== groupId) });
+  return withMusicAttributes(preserveMusicRangeMembership(chapter, updated));
+}
+
+export function setGroupCollapsed(chapter, groupId, collapsed) {
+  return { ...chapter, groups: chapter.groups.map((group) => group.id === groupId ? { ...group, collapsed } : group) };
+}
+
+export function renameParagraphGroup(chapter, groupId, name) {
+  const value = normalizeParagraphGroupName(name);
+  return { ...chapter, groups: chapter.groups.map((group) => group.id === groupId ? { ...group, name: value } : group) };
+}
+
+export function moveParagraphGroup(chapter, groupId, direction) {
+  const ordered = [...chapter.groups].sort((a, b) => chapter.document.blocks.findIndex((block) => block.id === a.paragraphIds[0]) - chapter.document.blocks.findIndex((block) => block.id === b.paragraphIds[0]));
+  const groupIndex = ordered.findIndex((group) => group.id === groupId);
+  if (groupIndex < 0) return chapter;
+  const group = ordered[groupIndex];
+  const ids = orderedContiguousIds(chapter, group.paragraphIds);
+  if (!ids.length) throw new Error('æ®µè½ç»„å†…å®¹ä¸è¿ç»­ï¼Œè¯·å…ˆæ•´ç†åˆ†ç»„ã€‚');
+  const selected = new Set(ids);
+  const movedBlocks = ids.map((id) => chapter.document.blocks.find((block) => block.id === id));
+  const start = chapter.document.blocks.findIndex((block) => selected.has(block.id));
+  const end = start + ids.length - 1;
+  const adjacent = direction < 0 ? chapter.document.blocks[start - 1] : chapter.document.blocks[end + 1];
+  if (!adjacent) return chapter;
+  const adjacentGroup = chapter.groups.find((item) => item.paragraphIds.includes(adjacent.id));
+  const anchor = direction < 0 ? adjacentGroup?.paragraphIds[0] ?? adjacent.id : adjacentGroup?.paragraphIds.at(-1) ?? adjacent.id;
+  const blocks = chapter.document.blocks.filter((block) => !selected.has(block.id));
+  const anchorIndex = blocks.findIndex((block) => block.id === anchor);
+  blocks.splice(direction < 0 ? anchorIndex : anchorIndex + 1, 0, ...movedBlocks);
+  const unchangedGroups = withGroupIds({ ...chapter, document: { ...chapter.document, blocks } });
+  return withMusicAttributes(reconcileMusicAfterMove(chapter, unchangedGroups, new Map(chapter.groups.map((item) => [item.id, [item.id]]))));
+}
+
+export function moveParagraphs(chapter, paragraphIds, target, position = target.position ?? 'after') {
+  const selected = orderedContiguousIds(chapter, paragraphIds);
+  if (!selected.length) throw new Error('åªèƒ½æ‹–åŠ¨æœ¬ç« ä¸­è¿ç»­çš„æ­£æ–‡æ®µè½ã€‚');
+  const selectedSet = new Set(selected);
+  const blocksById = new Map(chapter.document.blocks.map((block) => [block.id, block]));
+  const moving = selected.map((id) => blocksById.get(id));
+  const rest = chapter.document.blocks.filter((block) => !selectedSet.has(block.id));
+  let insertionIndex;
+  if (target.type === 'group') {
+    const group = chapter.groups.find((item) => item.id === target.groupId);
+    if (!group) throw new Error('ç›®æ ‡æ®µè½ç»„å·²ä¸å­˜åœ¨ï¼Œè¯·é‡æ–°æ‹–åŠ¨ã€‚');
+    if (group.paragraphIds.every((id) => selectedSet.has(id))) return chapter;
+    const lastRemaining = group.paragraphIds.filter((id) => !selectedSet.has(id)).at(-1);
+    const lastIndex = rest.findIndex((block) => block.id === lastRemaining);
+    if (lastIndex < 0) throw new Error('ç›®æ ‡æ®µè½ç»„å†…å®¹å·²å˜åŒ–ï¼Œè¯·é‡æ–°æ‹–åŠ¨ã€‚');
+    insertionIndex = lastIndex + 1;
+  } else if (target.type === 'paragraph') {
+    if (selectedSet.has(target.paragraphId)) return chapter;
+    const targetIndex = rest.findIndex((block) => block.id === target.paragraphId);
+    if (targetIndex < 0) throw new Error('ç›®æ ‡æ­£æ–‡æ®µè½å·²å˜åŒ–ï¼Œè¯·é‡æ–°æ‹–åŠ¨ã€‚');
+    insertionIndex = targetIndex + (position === 'after' ? 1 : 0);
+  } else throw new Error('æ‹–æ”¾ç›®æ ‡æ— æ•ˆã€‚');
+
+  const oldIndex = new Map(chapter.document.blocks.map((block, index) => [block.id, index]));
+  const nextBlocks = [...rest];
+  nextBlocks.splice(insertionIndex, 0, ...moving);
+  const destinationId = target.type === 'group' ? target.groupId : chapter.groups.find((group) => group.paragraphIds.includes(target.paragraphId))?.id;
+  if (nextBlocks.every((block, index) => block.id === chapter.document.blocks[index]?.id) && selected.every((id) => chapter.groups.find((group) => group.paragraphIds.includes(id))?.id === destinationId)) return chapter;
+
+  const nextDocument = { ...chapter.document, blocks: nextBlocks };
+  const targetGroup = target.type === 'group' ? chapter.groups.find((group) => group.id === target.groupId) : null;
+  const targetParagraph = target.type === 'paragraph' ? target.paragraphId : targetGroup?.paragraphIds.at(-1);
+  const destinationGroup = chapter.groups.find((group) => group.paragraphIds.includes(targetParagraph)) ?? null;
+  const groupMembership = new Map();
+  for (const group of chapter.groups) {
+    for (const id of group.paragraphIds) if (!selectedSet.has(id)) groupMembership.set(id, group.id);
+  }
+  if (destinationGroup) for (const id of selected) groupMembership.set(id, destinationGroup.id);
+
+  const groups = [];
+  const groupAliases = new Map();
+  for (const group of chapter.groups) {
+    const ids = nextBlocks.filter((block) => groupMembership.get(block.id) === group.id).map((block) => block.id);
+    const runs = contiguousRuns({ document: nextDocument }, ids);
+    if (runs.length) {
+      const aliases = runs.map((run, index) => {
+        const nextId = index === 0 ? group.id : makeId('group');
+        groups.push({ ...group, id: nextId, name: index === 0 ? group.name : `${group.name}ï¼ˆç»­ï¼‰`, paragraphIds: run });
+        return nextId;
+      });
+      groupAliases.set(group.id, aliases);
+    } else {
+      const placeholder = { type: 'paragraph', id: makeId('p'), children: [] };
+      const sourceIndex = Math.min(oldIndex.get(group.paragraphIds[0]) ?? nextBlocks.length, nextBlocks.length);
+      nextBlocks.splice(sourceIndex, 0, placeholder);
+      groupMembership.set(placeholder.id, group.id);
+      groups.push({ ...group, paragraphIds: [placeholder.id] });
+      groupAliases.set(group.id, [group.id]);
+    }
+  }
+  const groupedChapter = withGroupIds({ ...chapter, document: { ...chapter.document, blocks: nextBlocks }, groups });
+  const reconciled = withMusicAttributes(reconcileMusicAfterMove(chapter, groupedChapter, groupAliases, { movedIds: selected, targetRange: targetParagraph ? musicRangeAt(chapter, targetParagraph) : null }));
+  return reconciled;
+}
+
+export function setMusicRange(chapter, assetId, paragraphIds, options = {}) {
+  const selected = orderedContiguousIds(chapter, paragraphIds);
+  if (!selected.length) throw new Error('è¯·å…ˆé€‰æ‹©ä¸€ä¸ªè¿ç»­çš„æ®µè½èŒƒå›´ã€‚');
+  const selectedKey = new Set(selected);
+  const existingExact = chapter.musicRanges.find((range) => sameMembers(musicRangeParagraphIds(chapter, range), selected));
+  const overlaps = chapter.musicRanges.find((range) => range.id !== existingExact?.id && musicRangeParagraphIds(chapter, range).some((id) => selectedKey.has(id)));
+  if (overlaps) throw new Error('è¿™ä¸ªèŒƒå›´ä¸å·²æœ‰èƒŒæ™¯éŸ³ä¹èŒƒå›´é‡å ï¼Œè¯·å…ˆç§»é™¤æˆ–è°ƒæ•´åŸèŒƒå›´ã€‚');
+  const matchedGroups = chapter.groups.filter((group) => group.paragraphIds.every((id) => selectedKey.has(id)));
+  const groupIds = matchedGroups.length && matchedGroups.flatMap((group) => group.paragraphIds).length === selected.length ? matchedGroups.map((group) => group.id) : null;
+  const range = { id: existingExact?.id ?? makeId('music-range'), assetId, startParagraphId: selected[0], endParagraphId: selected.at(-1), ...(groupIds ? { groupIds } : {}), volume: options.volume ?? existingExact?.volume ?? 1, loop: options.loop ?? existingExact?.loop ?? false };
+  return withMusicAttributes({ ...chapter, musicRanges: [...chapter.musicRanges.filter((item) => item.id !== existingExact?.id), range] });
+}
+
+export function replaceMusicRange(chapter, assetId, paragraphIds, options = {}) {
+  const selected = orderedContiguousIds(chapter, paragraphIds);
+  if (!selected.length) throw new Error('è¯·å…ˆé€‰æ‹©è¿ç»­æ®µè½æˆ–è¿ç»­æ®µè½ç»„ã€‚');
+  const selectedSet = new Set(selected);
+  let next = { ...chapter, musicRanges: [] };
+  for (const range of chapter.musicRanges) {
+    const remaining = musicRangeParagraphIds(chapter, range).filter((id) => !selectedSet.has(id));
+    for (const [index, run] of contiguousRuns(chapter, remaining).entries()) {
+      next = setMusicRange(next, range.assetId, run, { volume: range.volume, loop: range.loop });
+      const added = next.musicRanges.at(-1);
+      added.id = index === 0 ? range.id : makeId('music-range');
+    }
+  }
+  return setMusicRange(next, assetId, selected, options);
+}
+
+export function removeMusicRange(chapter, rangeId) {
+  return withMusicAttributes({ ...chapter, musicRanges: chapter.musicRanges.filter((range) => range.id !== rangeId) });
+}
+
+export function musicRangeAt(chapter, paragraphId) {
+  const indexes = paragraphIndexes(chapter);
+  const index = indexes.get(paragraphId);
+  if (index === undefined) return null;
+  return chapter.musicRanges.find((range) => musicRangeParagraphIds(chapter, range).includes(paragraphId)) ?? null;
+}
+
+export function reconcileChapterDocument(previous, document) {
+  const chapter = { ...previous, document };
+  const existing = new Set(document.blocks.map((block) => block.id));
+  const chapterIndexes = paragraphIndexes(chapter);
+  const newIds = new Set(document.blocks.map((block) => block.id).filter((id) => !oldIndexesHas(previous, id)));
+  const groupAttributesPresent = document.blocks.some((block) => Object.hasOwn(block, 'groupId'));
+  const groups = [];
+  for (const group of previous.groups) {
+    if (groupAttributesPresent) {
+      const tagged = document.blocks.filter((block) => block.groupId === group.id).map((block) => block.id);
+      let ids = tagged;
+      if (tagged.length) {
+        const start = Math.min(...tagged.map((id) => chapterIndexes.get(id)));
+        const end = Math.max(...tagged.map((id) => chapterIndexes.get(id)));
+        const span = document.blocks.slice(start, end + 1).map((block) => block.id);
         if (span.every((id) => tagged.includes(id) || newIds.has(id))) ids = span;
       }
       for (const [index, run] of contiguousRuns(chapter, ids).entries()) {
@@ -217,6 +351,88 @@ function withGroupIds(chapter) {
 
 function withMusicAttributes(chapter) {
   const membership = new Map();
- ¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±x™½È€¡½¹ÍĞÉ…¹”½˜¡…ÁÑ•È¹µÕÍ¥I…¹•Ì¤ì(€€€½¹ÍĞµ•Ñ…‘…Ñ„€ôì¥èÉ…¹”¹¥°…ÍÍ•Ñ%èÉ…¹”¹…ÍÍ•Ñ%°Ù½±Õµ”èÉ…¹”¹Ù½±Õµ”°±½½ÀèÉ…¹”¹±½½À°€¸¸¸¡É…¹”¹É½ÕÁ%‘Ì€üìÉ½ÕÁ%‘ÌèÉ…¹”¹É½ÕÁ%‘Ìô€èíô¤ôì(€€€™½È€¡½¹ÍĞ¥½˜µÕÍ¥I…¹•A…É…É…Á¡%‘Ì¡¡…ÁÑ•È°É…¹”¤¤µ•µ‰•ÉÍ¡¥À¹Í•Ğ¡¥°µ•Ñ…‘…Ñ„¤ì(€ô(€½¹ÍĞ‰±½­Ì€ô¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹µ…À ¡‰±½¬¤€ôøì(€€€½¹ÍĞµÕÍ¥I…¹”€ôµ•µ‰•ÉÍ¡¥À¹•Ğ¡‰±½¬¹¥¤ì(€€€¥˜€ …µÕÍ¥I…¹”¤ì(€€€€€¥˜€ …=‰©•Ğ¹¡…Í=İ¸¡‰±½¬°€µÕÍ¥I…¹”œ¤¤É•ÑÕÉ¸‰±½¬ì(€€€€€½¹ÍĞìµÕÍ¥I…¹”è}µÕÍ¥I…¹”°€¸¸¹Á±…¥¹	±½¬ô€ô‰±½¬ì(€€€€€É•ÑÕÉ¸Á±…¥¹	±½¬ì(€€€ô(€€€É•ÑÕÉ¸)M=8¹ÍÑÉ¥¹¥™ä¡‰±½¬¹µÕÍ¥I…¹”¤€ôôô)M=8¹ÍÑÉ¥¹¥™ä¡µÕÍ¥I…¹”¤€ü‰±½¬€èì€¸¸¹‰±½¬°µÕÍ¥I…¹”ôì(€ô¤ì(€É•ÑÕÉ¸ì€¸¸¹¡…ÁÑ•È°‘½Õµ•¹Ğèì€¸¸¹¡…ÁÑ•È¹‘½Õµ•¹Ğ°‰±½­Ìôôì)ô()™Õ¹Ñ¥½¸µÕÍ¥I…¹•ÍÉ½µ½Õµ•¹Ğ¡¡…ÁÑ•È°É½ÕÁÌ¤ì(€½¹ÍĞ•¹ÑÉ¥•Ì€ô¹•Ü5…À ¤ì(€™½È€¡½¹ÍĞ‰±½¬½˜¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¤ì(€€€½¹ÍĞÙ…±Õ”€ô‰±½¬¹µÕÍ¥I…¹”ì(€€€¥˜€ …Ù…±Õ”ñğÑåÁ•½˜Ù…±Õ”€„ôô€½‰©•Ğœñğ€…Ù…±Õ”¹¥¤½¹Ñ¥¹Õ”ì(€€€½¹ÍĞ•¹ÑÉä€ô•¹ÑÉ¥•Ì¹•Ğ¡Ù…±Õ”¹¥¤€üüìµ•Ñ…‘…Ñ„èÙ…±Õ”°¥‘Ìèmtôì(€€€•¹ÑÉä¹¥‘Ì¹ÁÕÍ ¡‰±½¬¹¥¤ì(€€€•¹ÑÉ¥•Ì¹Í•Ğ¡Ù…±Õ”¹¥°•¹ÑÉä¤ì(€ô(€™½È€¡½¹ÍĞ•¹ÑÉä½˜•¹ÑÉ¥•Ì¹Ù…±Õ•Ì ¤¤ì(€€€¥˜€ …ÉÉ…ä¹¥ÍÉÉ…ä¡•¹ÑÉä¹µ•Ñ…‘…Ñ„¹É½ÕÁ%‘Ì¤¤½¹Ñ¥¹Õ”ì(€€€½¹ÍĞÉ½ÕÁ%‘Ì€ô¹•ÜM•Ğ¡•¹ÑÉä¹µ•Ñ…‘…Ñ„¹É½ÕÁ%‘Ì¤ì(€€€™½È€¡½¹ÍĞÉ½ÕÀ½˜É½ÕÁÌ¤ì(€€€€€¥˜€ …É½ÕÁ%‘Ì¹¡…Ì¡É½ÕÀ¹¥¤¤½¹Ñ¥¹Õ”ì(€€€€€™½È€¡½¹ÍĞÁ…É…É…Á¡%½˜É½ÕÀ¹Á…É…É…Á¡%‘Ì¤¥˜€ …•¹ÑÉä¹¥‘Ì¹¥¹±Õ‘•Ì¡Á…É…É…Á¡%¤¤•¹ÑÉä¹¥‘Ì¹ÁÕÍ ¡Á…É…É…Á¡%¤ì(€€€ô(€ô(€½¹ÍĞÉ…¹•Ì€ômtì(€™½È€¡½¹ÍĞm¥°•¹ÑÉåt½˜•¹ÑÉ¥•Ì¤ì(€€€™½È€¡½¹ÍĞm¥¹‘•à°ÉÕ¹t½˜½¹Ñ¥Õ½ÕÍIÕ¹Ì¡¡…ÁÑ•È°•¹ÑÉä¹¥‘Ì¤¹•¹ÑÉ¥•Ì ¤¤ì(€€€€€½¹ÍĞÉ½ÕÁ%‘Ì€ô•¹ÑÉä¹µ•Ñ…‘…Ñ„¹É½ÕÁ%‘Ì€üÉ½ÕÁÌ¹™¥±Ñ•È ¡É½ÕÀ¤€ôø•¹ÑÉä¹µ•Ñ…‘…Ñ„¹É½ÕÁ%‘Ì¹¥¹±Õ‘•Ì¡É½ÕÀ¹¥¤€˜˜É½ÕÀ¹Á…É…É…Á¡%‘Ì¹•Ù•Éä ¡Á…É…É…Á¡%¤€ôøÉÕ¸¹¥¹±Õ‘•Ì¡Á…É…É…Á¡%¤¤¤¹µ…À ¡É½ÕÀ¤€ôøÉ½ÕÀ¹¥¤€èÕ¹‘•™¥¹•ì(€€€€€É…¹•Ì¹ÁÕÍ ¡ì¥è¥¹‘•à€ôôô€À€ü¥€èµ…­•% µÕÍ¥ŒµÉ…¹”œ¤°…ÍÍ•Ñ%è•¹ÑÉä¹µ•Ñ…‘…Ñ„¹…ÍÍ•Ñ%°ÍÑ…ÉÑA…É…É…Á¡%èÉÕ¹lÁt°•¹‘A…É…É…Á¡%èÉÕ¸¹…Ğ ´Ä¤°Ù½±Õµ”è•¹ÑÉä¹µ•Ñ…‘…Ñ„¹Ù½±Õµ”°±½½Àè•¹ÑÉä¹µ•Ñ…‘…Ñ„¹±½½À°€¸¸¸¡É½ÕÁ%‘Ìü¹±•¹Ñ €üìÉ½ÕÁ%‘Ìô€èíô¤ô¤ì(€€€ô(€ô(€É•ÑÕÉ¸É…¹•Ìì)ô()™Õ¹Ñ¥½¸É•½¹¥±•5ÕÍ¥™Ñ•É5½Ù”¡‰•™½É”°…™Ñ•È°É½ÕÁ±¥…Í•Ì€ô¹•Ü5…À ¤°ìµ½Ù•‘%‘Ì€ômt°Ñ…É•ÑI…¹”€ô¹Õ±°ô€ôíô¤ì(€½¹ÍĞÉ…¹•Ì€ômtì(€½¹ÍĞµ½Ù•‘M•Ğ€ô¹•ÜM•Ğ¡µ½Ù•‘%‘Ì¤ì(€™½È€¡½¹ÍĞÉ…¹”½˜‰•™½É”¹µÕÍ¥I…¹•Ì¤ì(€€€½¹ÍĞµ•µ‰•ÉM•Ğ€ô¹•ÜM•Ğ¡µÕÍ¥I…¹•A…É…É…Á¡%‘Ì¡‰•™½É”°É…¹”¤¹™¥±Ñ•È ¡¥¤€ôø€…µ½Ù•‘M•Ğ¹¡…Ì¡¥¤¤¤ì(€€€¥˜€¡Ñ…É•ÑI…¹”ü¹¥€ôôôÉ…¹”¹¥€˜˜€…É…¹”¹É½ÕÁ%‘Ì¤µ½Ù•‘M•Ğ¹™½É…  ¡¥¤€ôøµ•µ‰•ÉM•Ğ¹…‘¡¥¤¤ì(€€€¥˜€¡ÉÉ…ä¹¥ÍÉÉ…ä¡É…¹”¹É½ÕÁ%‘Ì¤€˜˜É…¹”¹É½ÕÁ%‘Ì¹±•¹Ñ ¤ì(€€€€€½¹ÍĞÉ½ÕÁ%‘Ì€ôl¸¸¹¹•ÜM•Ğ¡É…¹”¹É½ÕÁ%‘Ì¹™±…Ñ5…À ¡¥¤€ôøÉ½ÕÁ±¥…Í•Ì¹•Ğ¡¥¤€üüm¥‘t¤¥t¹™¥±Ñ•È ¡¥¤€ôø…™Ñ•È¹É½ÕÁÌ¹Í½µ” ¡É½ÕÀ¤€ôøÉ½ÕÀ¹¥€ôôô¥¤¤ì(€€€€€½¹ÍĞµ•µ‰•ÉÌ€ô…™Ñ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹µ…À ¡‰±½¬¤€ôø‰±½¬¹¥¤¹™¥±Ñ•È ¡¥¤€ôø…™Ñ•È¹É½ÕÁÌ¹Í½µ” ¡É½ÕÀ¤€ôøÉ½ÕÁ%‘Ì¹¥¹±Õ‘•Ì¡É½ÕÀ¹¥¤€˜˜É½ÕÀ¹Á…É…É…Á¡%‘Ì¹¥¹±Õ‘•Ì¡¥¤¤¤ì(€€€€€½¹ÍĞÉÕ¹Ì€ô½¹Ñ¥Õ½ÕÍIÕ¹Ì¡…™Ñ•È°µ•µ‰•ÉÌ¤ì(€€€€€™½È€¡½¹ÍĞm¥¹‘•à°ÉÕ¹t½˜ÉÕ¹Ì¹•¹ÑÉ¥•Ì ¤¤¥˜€¡ÉÕ¸¹±•¹Ñ ¤É…¹•Ì¹ÁÕÍ ¡ì€¸¸¹É…¹”°¥è¥¹‘•à€ôôô€À€üÉ…¹”¹¥€èµ…­•% µÕÍ¥ŒµÉ…¹”œ¤°É½ÕÁ%‘Ìè…™Ñ•È¹É½ÕÁÌ¹™¥±Ñ•È ¡É½ÕÀ¤€ôøÉ½ÕÀ¹Á…É…É…Á¡%‘Ì¹•Ù•Éä ¡¥¤€ôøÉÕ¸¹¥¹±Õ‘•Ì¡¥¤¤¤¹µ…À ¡É½ÕÀ¤€ôøÉ½ÕÀ¹¥¤°ÍÑ…ÉÑA…É…É…Á¡%èÉÕ¹lÁt°•¹‘A…É…É…Á¡%èÉÕ¸¹…Ğ ´Ä¤ô¤ì(€€€€€½¹Ñ¥¹Õ”ì(€€€ô(€€€½¹ÍĞµ•µ‰•ÉÌ€ô…™Ñ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹µ…À ¡‰±½¬¤€ôø‰±½¬¹¥¤¹™¥±Ñ•È ¡¥¤€ôøµ•µ‰•ÉM•Ğ¹¡…Ì¡¥¤¤ì(€€€½¹ÍĞÉÕ¹Ì€ô½¹Ñ¥Õ½ÕÍIÕ¹Ì¡…™Ñ•È°µ•µ‰•ÉÌ¤ì(€€€™½È€¡½¹ÍĞm¥¹‘•à°ÉÕ¹t½˜ÉÕ¹Ì¹•¹ÑÉ¥•Ì ¤¤¥˜€¡ÉÕ¸¹±•¹Ñ ¤É…¹•Ì¹ÁÕÍ ¡ì€¸¸¹É…¹”°¥è¥¹‘•à€ôôô€À€üÉ…¹”¹¥€èµ…­•% µÕÍ¥ŒµÉ…¹”œ¤°ÍÑ…ÉÑA…É…É…Á¡%èÉÕ¹lÁt°•¹‘A…É…É…Á¡%èÉÕ¸¹…Ğ ´Ä¤ô¤ì(€ô(€É•ÑÕÉ¸ì€¸¸¹…™Ñ•È°µÕÍ¥I…¹•ÌèÉ…¹•Ìôì)ô()™Õ¹Ñ¥½¸ÍÁ±¥ÑÉ½ÕÁÌ¡¡…ÁÑ•È°µ½Ù•‘%‘Ì¤ì(€½¹ÍĞÉ½ÕÁÌ€ômtì(€™½È€¡½¹ÍĞÉ½ÕÀ½˜¡…ÁÑ•È¹É½ÕÁÌ¤ì(€€€½¹ÍĞÉ•Ñ…¥¹•€ôÉ½ÕÀ¹Á…É…É…Á¡%‘Ì¹™¥±Ñ•È ¡¥¤€ôø€…µ½Ù•‘%‘Ì¹¡…Ì¡¥¤¤ì(€€€™½È€¡½¹ÍĞm¥¹‘•à°¥‘Ít½˜½¹Ñ¥Õ½ÕÍIÕ¹Ì¡¡…ÁÑ•È°É•Ñ…¥¹•¤¹•¹ÑÉ¥•Ì ¤¤ì(€€€€€¥˜€¡¥‘Ì¹±•¹Ñ ¤É½ÕÁÌ¹ÁÕÍ ¡ì€¸¸¹É½ÕÀ°¥è¥¹‘•à€ôôô€À€üÉ½ÕÀ¹¥€èµ…­•% É½ÕÀœ¤°¹…µ”è¥¹‘•à€ôôô€À€üÉ½ÕÀ¹¹…µ”€è€‘íÉ½ÕÀ¹¹…µ•÷¾ò#î·¾ò%€°Á…É…É…Á¡%‘Ìè¥‘Ìô¤ì(€€€ô(€ô(€É•ÑÕÉ¸ì€¸¸¹¡…ÁÑ•È°É½ÕÁÌôì)ô()™Õ¹Ñ¥½¸ÁÉ•Í•ÉÙ•5ÕÍ¥I…¹•5•µ‰•ÉÍ¡¥À¡‰•™½É”°…™Ñ•È¤ì(€½¹ÍĞ…™Ñ•É%¹‘•á•Ì€ôÁ…É…É…Á¡%¹‘•á•Ì¡…™Ñ•È¤ì(€½¹ÍĞÉ…¹•Ì€ô‰•™½É”¹µÕÍ¥I…¹•Ì¹µ…À ¡É…¹”¤€ôøì(€€€½¹ÍĞµ•µ‰•ÉÌ€ôµÕÍ¥I…¹•A…É…É…Á¡%‘Ì¡‰•™½É”°É…¹”¤ì(€€€½¹ÍĞÁ½Í¥Ñ¥½¹Ì€ôµ•µ‰•ÉÌ¹µ…À ¡¥¤€ôø…™Ñ•É%¹‘•á•Ì¹•Ğ¡¥¤¤¹Í½ÉĞ ¡„°ˆ¤€ôø„€´ˆ¤ì(€€€¥˜€¡Á½Í¥Ñ¥½¹Ì¹Í½µ” ¡¥¹‘•à¤€ôø¥¹‘•à€ôôôÕ¹‘•™¥¹•¤ñğÁ½Í¥Ñ¥½¹Ì¹…Ğ ´Ä¤€´Á½Í¥Ñ¥½¹Ì¹…Ğ À¤€¬€Ä€„ôôÁ½Í¥Ñ¥½¹Ì¹±•¹Ñ ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿï–*£šº×¢B÷î’òkš.–ò¢3šf¿¦~Ï’æC¢2–nÓ¾ò3¢¾ß–#¢ÂšVÓ¦~Ï’æC¢2–nÓœ¤ì(€€€½¹ÍĞìÉ½ÕÁ%‘Ìè}É½ÕÁ%‘Ì°€¸¸¹Á…É…É…Á¡I…¹”ô€ôÉ…¹”ì(€€€É•ÑÕÉ¸ì€¸¸¹Á…É…É…Á¡I…¹”°ÍÑ…ÉÑA…É…É…Á¡%è…™Ñ•È¹‘½Õµ•¹Ğ¹‰±½­ÍmÁ½Í¥Ñ¥½¹ÍlÁut¹¥°•¹‘A…É…É…Á¡%è…™Ñ•È¹‘½Õµ•¹Ğ¹‰±½­ÍmÁ½Í¥Ñ¥½¹Ì¹…Ğ ´Ä¥t¹¥ôì(€ô¤ì(V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅâ&WGW&â²ââægFW"Â×W6–5&ævW3¢&ævW2Ó°§Ğ 
+  for (const range of chapter.musicRanges) {
+    const metadata = { id: range.id, assetId: range.assetId, volume: range.volume, loop: range.loop, ...(range.groupIds ? { groupIds: range.groupIds } : {}) };
+    for (const id of musicRangeParagraphIds(chapter, range)) membership.set(id, metadata);
+  }
+  const blocks = chapter.document.blocks.map((block) => {
+    const musicRange = membership.get(block.id);
+    if (!musicRange) {
+      if (!Object.hasOwn(block, 'musicRange')) return block;
+      const { musicRange: _musicRange, ...plainBlock } = block;
+      return plainBlock;
+    }
+    return JSON.stringify(block.musicRange) === JSON.stringify(musicRange) ? block : { ...block, musicRange };
+  });
+  return { ...chapter, document: { ...chapter.document, blocks } };
+}
+
+function musicRangesFromDocument(chapter, groups) {
+  const entries = new Map();
+  for (const block of chapter.document.blocks) {
+    const value = block.musicRange;
+    if (!value || typeof value !== 'object' || !value.id) continue;
+    const entry = entries.get(value.id) ?? { metadata: value, ids: [] };
+    entry.ids.push(block.id);
+    entries.set(value.id, entry);
+  }
+  for (const entry of entries.values()) {
+    if (!Array.isArray(entry.metadata.groupIds)) continue;
+    const groupIds = new Set(entry.metadata.groupIds);
+    for (const group of groups) {
+      if (!groupIds.has(group.id)) continue;
+      for (const paragraphId of group.paragraphIds) if (!entry.ids.includes(paragraphId)) entry.ids.push(paragraphId);
+    }
+  }
+  const ranges = [];
+  for (const [id, entry] of entries) {
+    for (const [index, run] of contiguousRuns(chapter, entry.ids).entries()) {
+      const groupIds = entry.metadata.groupIds ? groups.filter((group) => entry.metadata.groupIds.includes(group.id) && group.paragraphIds.every((paragraphId) => run.includes(paragraphId))).map((group) => group.id) : undefined;
+      ranges.push({ id: index === 0 ? id : makeId('music-range'), assetId: entry.metadata.assetId, startParagraphId: run[0], endParagraphId: run.at(-1), volume: entry.metadata.volume, loop: entry.metadata.loop, ...(groupIds?.length ? { groupIds } : {}) });
+    }
+  }
+  return ranges;
+}
+
+function reconcileMusicAfterMove(before, after, groupAliases = new Map(), { movedIds = [], targetRange = null } = {}) {
+  const ranges = [];
+  const movedSet = new Set(movedIds);
+  for (const range of before.musicRanges) {
+    const memberSet = new Set(musicRangeParagraphIds(before, range).filter((id) => !movedSet.has(id)));
+    if (targetRange?.id === range.id && !range.groupIds) movedSet.forEach((id) => memberSet.add(id));
+    if (Array.isArray(range.groupIds) && range.groupIds.length) {
+      const groupIds = [...new Set(range.groupIds.flatMap((id) => groupAliases.get(id) ?? [id]))].filter((id) => after.groups.some((group) => group.id === id));
+      const members = after.document.blocks.map((block) => block.id).filter((id) => after.groups.some((group) => groupIds.includes(group.id) && group.paragraphIds.includes(id)));
+      const runs = contiguousRuns(after, members);
+      for (const [index, run] of runs.entries()) if (run.length) ranges.push({ ...range, id: index === 0 ? range.id : makeId('music-range'), groupIds: after.groups.filter((group) => group.paragraphIds.every((id) => run.includes(id))).map((group) => group.id), startParagraphId: run[0], endParagraphId: run.at(-1) });
+      continue;
+    }
+    const members = after.document.blocks.map((block) => block.id).filter((id) => memberSet.has(id));
+    const runs = contiguousRuns(after, members);
+    for (const [index, run] of runs.entries()) if (run.length) ranges.push({ ...range, id: index === 0 ? range.id : makeId('music-range'), startParagraphId: run[0], endParagraphId: run.at(-1) });
+  }
+  return { ...after, musicRanges: ranges };
+}
+
+function splitGroups(chapter, movedIds) {
+  const groups = [];
+  for (const group of chapter.groups) {
+    const retained = group.paragraphIds.filter((id) => !movedIds.has(id));
+    for (const [index, ids] of contiguousRuns(chapter, retained).entries()) {
+      if (ids.length) groups.push({ ...group, id: index === 0 ? group.id : makeId('group'), name: index === 0 ? group.name : `${group.name}ï¼ˆç»­ï¼‰`, paragraphIds: ids });
+    }
+  }
+  return { ...chapter, groups };
+}
+
+function preserveMusicRangeMembership(before, after) {
+  const afterIndexes = paragraphIndexes(after);
+  const ranges = before.musicRanges.map((range) => {
+    const members = musicRangeParagraphIds(before, range);
+    const positions = members.map((id) => afterIndexes.get(id)).sort((a, b) => a - b);
+    if (positions.some((index) => index === undefined) || positions.at(-1) - positions.at(0) + 1 !== positions.length) throw new Error('ç§»åŠ¨æ®µè½ç»„ä¼šæ‹†å¼€èƒŒæ™¯éŸ³ä¹èŒƒå›´ï¼Œè¯·å…ˆè°ƒæ•´éŸ³ä¹èŒƒå›´ã€‚');
+    const { groupIds: _groupIds, ...paragraphRange } = range;
+    return { ...paragraphRange, startParagraphId: after.document.blocks[positions[0]].id, endParagraphId: after.document.blocks[positions.at(-1)].id };
+  });
+  return { ...after, musicRanges: ranges };
+}

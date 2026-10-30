@@ -1,3 +1,118 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐì•ÑM¡•µ„ô™É½´€Ñ¥ÁÑ…À½½É”œì)¥µÁ½ÉÐMÑ…ÉÑ•É-¥Ð™É½´€Ñ¥ÁÑ…À½ÍÑ…ÉÑ•Èµ­¥Ðœì)¥µÁ½ÉÐU¹¥ÅÕ•%™É½´€Ñ¥ÁÑ…À½•áÑ•¹Í¥½¸µÕ¹¥ÅÕ”µ¥œì)¥µÁ½ÉÐì‘¥Ñ½ÉMÑ…Ñ”°Q•áÑM•±•Ñ¥½¸ô™É½´€Ñ¥ÁÑ…À½Á´½ÍÑ…Ñ”œì)¥µÁ½ÉÐì‘¥Ñ½ÉY¥•Üô™É½´€Ñ¥ÁÑ…À½Á´½Ù¥•Üœì)¥µÁ½ÉÐì¡¥ÍÑ½Éä°Õ¹‘¼°É•‘¼ô™É½´€Ñ¥ÁÑ…À½Á´½¡¥ÍÑ½Éäœì)¥µÁ½ÉÐìMÑ½ÉåÑÑÉ¥‰ÕÑ•Ì°Õ•5…É¬°™É½µ‘¥Ñ½É½¹Ñ•¹Ð°Ñ½‘¥Ñ½É½¹Ñ•¹Ð°µ½Ù•‘¥Ñ½ÉA…É…É…Á¡Ì°ÁÉ½©•ÑA…É…É…Á¡•½É…Ñ¥½¹Ìô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½ÍÑ½Éäµ•‘¥Ñ½Èœì)¥µÁ½ÉÐìÉ•…Ñ•A…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹I•…‘•Èô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½Á…É…É…Á µÁÉ•Í•¹Ñ…Ñ¥½¸¹µ©Ìœì)¥µÁ½ÉÐìÉ•…Ñ•	±…¹­AÉ½©•Ðô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ð¹µ©Ìœì)¥µÁ½ÉÐìÉ•…Ñ•A…É…É…Á¡É½ÕÀ°É•½¹¥±•¡…ÁÑ•É½Õµ•¹Ð°Í•Ñ5ÕÍ¥I…¹”°µ½Ù•A…É…É…Á¡Ìô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì()½¹ÍÐ¡•¬€ô€¡½¹‘¥Ñ¥½¸èÕ¹­¹½Ý¸°µ•ÍÍ…”èÍÑÉ¥¹œ¤€ôøì¥˜€ …½¹‘¥Ñ¥½¸¤Ñ¡É½ÜÉÉ½È¡µ•ÍÍ…”¤ìôì)½¹ÍÐÁ…ÕÍ”€ô€ ¤€ôø¹•ÜAÉ½µ¥Í” ¡É•Í½±Ù”¤€ôøÍ•ÑQ¥µ•½ÕÐ¡É•Í½±Ù”°€ÌÔ¤¤ì(¡…Íå¹Œ€ ¤€ôøì(€±•Ð¡…ÁÑ•È€ôÉ•…Ñ•	±…¹­AÉ½©•Ð ¤¹¡…ÁÑ•ÉÍlÁtì(€¡…ÁÑ•È¹‘½Õµ•¹Ð¹‰±½­Ì€ôÉÉ…ä¹™É½´¡í±•¹Ñ èÄÀÁô°€¡|°¥¹‘•à¤€ôø€¡íÑåÁ”èÁ…É…É…Á œ±¥èÀ´œ­¥¹‘•à±¡¥±‘É•¸émíÑåÁ”èÑ•áÐœ±Ñ•áÐèŸš¶šZž²°€œ­¥¹‘•à¬œƒšºÔõuô¤¤ì(€™½È¡±•Ð¥¹‘•àôÀí¥¹‘•àðÌí¥¹‘•à¬¬¥¡…ÁÑ•ÈõÉ•…Ñ•A…É…É…Á¡É½ÕÀ¡¡…ÁÑ•È±¡…ÁÑ•È¹‘½Õµ•¹Ð¹‰±½­Ì¹Í±¥”¡¥¹‘•à¨ÈÀ±¥¹‘•à¨ÈÀ¬ÈÀ¤¹µ…À ¡Àé…¹ä¤ôùÀ¹¥¤±lŸš^—–âàœ°Ÿ¢Žžòtœ°Ÿ–>7¢ö°um¥¹‘•át¤ì(€¡…ÁÑ•ÈõÍ•Ñ5ÕÍ¥I…¹”¡¡…ÁÑ•È°µÕÍ¥Œœ±¡…ÁÑ•È¹É½ÕÁÍlÁt¹Á…É…É…Á¡%‘Ì¤ì(€±•Ð…ÍÍ•ÑÌõmí¥èµÕÍ¥Œœ±¹…µ”èŸ¦ª3šRÛ¦7’æ@¹Ý…Øõtì(€±•ÐÍ•±•Ñ•éÍÑÉ¥¹mtõmtì(€½¹ÍÐÉ•…õÉ•…Ñ•A…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹I•…‘•È  ¤ôø¡í¡…ÁÑ•È±…ÍÍ•ÑÌ±Á…É…É…Á¡%‘ÌéÍ•±•Ñ•±É½ÕÁ%‘Ìémt±‘É½Á!¥¹Ðé¹Õ±±ô¤¤ì(€½¹ÍÐ½¹™¥ÕÉ•õMÑ½ÉåÑÑÉ¥‰ÕÑ•Ì¹½¹™¥ÕÉ”¡í•ÑA…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¸éÉ•…‘ô¤ì(€½¹ÍÐÍ¡•µ„õ•ÑM¡•µ„¡mMÑ…ÉÑ•É-¥Ð±U¹¥ÅÕ•%¹½¹™¥ÕÉ”¡íÑåÁ•ÌélÁ…É…É…Á t±…ÑÑÉ¥‰ÕÑ•9…µ”èÁ…É…É…Á¡%ô¤±Õ•5…É¬±½¹™¥ÕÉ•‘t¤ì(€½¹ÍÐÉ•…Ñ•A±Õ¥¹Ìô ¤ôùl¸¸¸¡½¹™¥ÕÉ•¹½¹™¥œ¹…‘‘AÉ½Í•5¥ÉÉ½ÉA±Õ¥¹Ì…Ì…¹ä¤¹…±°¡í½ÁÑ¥½¹Ìé½¹™¥ÕÉ•¹½ÁÑ¥½¹Íô¤±¡¥ÍÑ½Éä ¥tì(€½¹ÍÐ¡½ÍÐõ‘½Õµ•¹Ð¹•Ñ±•µ•¹Ñ	å% •‘¥Ñ½Èœ¤„ì(€±•ÐÙ¥•Üé‘¥Ñ½ÉY¥•Üì(€±•ÐÁµÉ½Á…±±ÌôÀì(€½¹ÍÐÑÉ…”éÍÑÉ¥¹mtõmtì(€½¹ÍÐµ½Õ¹Ðô¡ÍÑ…Ñ”é‘¥Ñ½ÉMÑ…Ñ”¤ôùì(€€€Ù¥•Üõ¹•Ü‘¥Ñ½ÉY¥•Ü¡¡½ÍÐ±ì(€€€€€ÍÑ…Ñ”°(€€€€€¡…¹‘±•=5Ù•¹ÑÌéí‘É½À¡}Ù¥•Ü±•Ù•¹Ð¥íÁµÉ½Á…±±Ì¬¬íÑÉ…”¹ÁÕÍ  ‰ÁÉ½Í•µ¥ÉÉ½Èµ‘É½Àˆ¤í•Ù•¹Ð¹‘…Ñ…QÉ…¹Í™•Èü¹±•…É…Ñ„ ¤íÉ•ÑÕÉ¸ÑÉÕ”íõô°(€€€€€‘¥ÍÁ…Ñ¡QÉ…¹Í…Ñ¥½¸¡ÑÉ…¹Í…Ñ¥½¸¥ì(€€€€€€€½¹ÍÐ¹•áÐõÙ¥•Ü¹ÍÑ…Ñ”¹…ÁÁ±åQÉ…¹Í…Ñ¥½¸¡ÑÉ…¹Í…Ñ¥½¸¤¹ÍÑ…Ñ”ì(€€€€€€€Ù¥•Ü¹ÕÁ‘…Ñ•MÑ…Ñ”¡¹•áÐ¤ì(€€€€€€€¥˜¡ÑÉ…¹Í…Ñ¥½¸¹‘½¡…¹•¥ì(€€€€€€€€€¡…ÁÑ•ÈõÉ•½¹¥±•¡…ÁÑ•É½Õµ•¹Ð¡¡…ÁÑ•È±™É½µ‘¥Ñ½É½¹Ñ•¹Ð¡¹•áÐ¹‘½Œ¹Ñ½)M=8 ¤¤¤ì(€€€€€€€€€ÁÉ½©•ÑA…É…É…Á¡•½É…Ñ¥½¹Ì¡Ù¥•Ü¹‘½´±É•…¤ì(€€€€€€€ô(€€€€€ô°(€€€ô¤ì(€ôì(€µ½Õ¹Ð¡‘¥Ñ½ÉMÑ…Ñ”¹É•…Ñ”¡íÍ¡•µ„±‘½ŒéÍ¡•µ„¹¹½‘•É½µ)M=8¡Ñ½‘¥Ñ½É½¹Ñ•¹Ð¡¡…ÁÑ•È¹‘½Õµ•¹Ð±¡…ÁÑ•È¹É½ÕÁÌ±¡…ÁÑ•È¹µÕÍ¥I…¹•Ì¤¤±Á±Õ¥¹ÌéÉ•…Ñ•A±Õ¥¹Ì ¥ô¤¤ì(€±•Ð¡•­ÌôÀì(€½¹ÍÐÙ•É¥™äô ¤ôùì(€€€½¹ÍÐ•áÁ•Ñ•õÉ•… À´Àœ¤ì(€€€½¹ÍÐ¡•…‘•ÈõÙ¥•Ü¹‘½´¹ÅÕ•ÉåM•±•Ñ½Èñ!Q51±•µ•¹Ðø m‘…Ñ„µÉ½ÕÀµÁ…É…É…Á µ¥ô‰À´À‰tœ¤„ì(€€€¡•¬¡¡•…‘•Èü¹ÅÕ•ÉåM•±•Ñ½È m‘…Ñ„µÉ½ÕÀµÑ¥Ñ±•tœ¤ü¹Ñ•áÑ½¹Ñ•¹Ðôôõ•áÁ•Ñ•¹±…‰•°°Ÿžî–’ÓšÊ‡šr'–öO–&7žr–º{žî–B4œ¤ì(€€€¡•¬¡¡•…‘•Èü¹ÅÕ•ÉåM•±•Ñ½È m‘…Ñ„µÉ½ÕÀµÍÕµµ…Éåtœ¤ü¹Ñ•áÑ½¹Ñ•¹Ðôôõ•áÁ•Ñ•¹ÍÕµµ…Éä°Ÿ¦7’æCšFc¢ššÊ‡šr'–öO–&7žr–º{’þ‡š¼œ¤ì(€€€™½È¡½¹ÍÐ¥½˜lÀ´Àœ°À´Èœ°À´ÈÀœ°À´ÐÀt¥ì(€€€€€¡•¬¡Ù¥•Ü¹‘½´¹ÅÕ•ÉåM•±•Ñ½È m‘…Ñ„µÁ…É…É…Á µÉ½ÕÀµ±…‰•°ôˆœ­¥¬œ‰tœ¤ü¹Ñ•áÑ½¹Ñ•¹ÐôôõÉ•…¡¥¤¹±…‰•°°Ÿšº×š^žî–>ß’â‹–’Ä€œ­¥¤ì(€€€ô(€€€¡•¬ …Ù¥•Ü¹‘½´¹Ñ•áÑ½¹Ñ•¹Ðü¹¥¹±Õ‘•Ì Ÿš¶–r£¢¾ï–>[žî’þ‡š¼œ¤°Ÿ–ëž:Ã–6ƒ’ö7šFc¢šœ¤ì(€€€¡•­Ì¬¬ì(€ôì(€Ù•É¥™ä ¤ì(€¡½ÍÐ¹…‘‘Ù•¹Ñ1¥ÍÑ•¹•È ÍÑ½ÉäµÁ…É…É…Á µÍ•±•Ðœ°¡•Ù•¹Ð¤ôùì(€€€½¹ÍÐ¥ô¡•Ù•¹Ð…ÌÕÍÑ½µÙ•¹Ð¤¹‘•Ñ…¥°¹Á…É…É…Á¡%ì(€€€Í•±•Ñ•õÍ•±•Ñ•¹¥¹±Õ‘•Ì¡¥¤ýÍ•±•Ñ•¹™¥±Ñ•È ¡¥Ñ•´¤ôù¥Ñ•´„ôõ¥¤él¸¸¹Í•±•Ñ•±¥‘tì(€€€ÁÉ½©•ÑA…É…É…Á¡•½É…Ñ¥½¹Ì¡Ù¥•Ü¹‘½´±É•…¤ì(€ô¤ì(€™½È¡±•Ð¥¹‘•àôÀí¥¹‘•àðÄÈí¥¹‘•à¬¬¥ì(€€€¡½ÍÐ¹ÍÉ½±±Q½Àõ¥¹‘•à”Èý¡½ÍÐ¹ÍÉ½±±!•¥¡ÐèÀì(€€€½¹ÍÐÍ•±•ÐõÙ¥•Ü¹‘½´¹ÅÕ•ÉåM•±•Ñ½Èñ!Q51	ÕÑÑ½¹±•µ•¹Ðø m‘…Ñ„µÁ…É…É…Á µÍ•±•Ðô‰À´È‰tœ¤„ì(€€€Í•±•Ð¹‘¥ÍÁ…Ñ¡Ù•¹Ð¡¹•Ü5½ÕÍ•Ù•¹Ð µ½ÕÍ•‘½Ý¸œ±í‰Õ‰‰±•ÌéÑÉÕ”±…¹•±…‰±”éÑÉÕ•ô¤¤ì(€€€Í•±•Ð¹±¥¬ ¤ì(€€€Ù¥•Ü¹™½ÕÌ ¤ì(€€€Ù¥•Ü¹‘¥ÍÁ…Ñ ¡Ù¥•Ü¹ÍÑ…Ñ”¹ÑÈ¹Í•ÑM•±•Ñ¥½¸¡Q•áÑM•±•Ñ¥½¸¹É•…Ñ”¡Ù¥•Ü¹ÍÑ…Ñ”¹‘½Œ±¥¹‘•à”Ì¬Ä¤¤¤ì(€€€…Ý…¥ÐÁ…ÕÍ” ¤ì(€€€Ù•É¥™ä ¤ì(€€€¡•¬¡Ù¥•Ü¹‘½´¹ÅÕ•ÉåM•±•Ñ½È m‘…Ñ„µÁ…É…É…Á µÍ•±•Ðô‰À´È‰tœ¤ü¹•ÑÑÑÉ¥‰ÕÑ” …É¥„µÁÉ•ÍÍ•œ¤ôôõMÑÉ¥¹œ¡Í•±•Ñ•¹¥¹±Õ‘•Ì À´Èœ¤¤°Ÿ–.û¦'ž*Ûš’â‹–’Äœ¤ì(€ô(€½¹ÍÐ½±‘!•…‘•ÈõÙ¥•Ü¹‘½´¹ÅÕ•ÉåM•±•Ñ½È m‘…Ñ„µÉ½ÕÀµÁ…É…É…Á µ¥ô‰À´À‰tœ¤ì(€Ù¥•Ü¹‘•ÍÑÉ½ä ¤ì(€¡…ÁÑ•Èõì¸¸¹¡…ÁÑ•È±É½ÕÁÌé¡…ÁÑ•È¹É½ÕÁÌ¹µ…À ¡É½ÕÀé…¹ä±¥¹‘•àé¹Õµ‰•È¤ôù¥¹‘•àôôôÀýì¸¸¹É½ÕÀ±¹…µ”èŸ–6Ïš^ÛšRç–B4ôéÉ½ÕÀ¥ôì(€…ÍÍ•ÑÌõmí¥èµÕÍ¥Œœ±¹…µ”èŸ–6Ïš^ÛšZÃ¦7’æ@¹Ý…Øõtì(€µ½Õ¹Ð¡‘¥Ñ½ÉMÑ…Ñ”¹É•…Ñ”¡íÍ¡•µ„±‘½ŒéÍ¡•µ„¹¹½‘•É½µ)M=8¡Ñ½‘¥Ñ½É½¹Ñ•¹Ð¡¡…ÁÑ•È¹‘½Õµ•¹Ð±¡…ÁÑ•È¹É½ÕÁÌ±¡…ÁÑ•È¹µÕÍ¥I…¹•Ì¤¤±Á±Õ¥¹ÌéÉ•…Ñ•A±Õ¥¹Ì ¥ô¤¤ì(€¡•¬¡Ù¥•Ü¹‘½´¹ÅÕ•ÉåM•±•Ñ½È m‘…Ñ„µÉ½ÕÀµÁ…É…É…Á µ¥ô‰À´À‰tœ¤„ôõ½±‘!•…‘•È°Ÿšr«žrš¶¦7–îé]¥‘•Ð=4œ¤ì(€Ù•É¥™ä ¤ì€¼¼ƒšZÃ–îëžr–ºy=7–B;–"ïš?’â7¢ÂžR¡I•…Óš*W–öÇšnÓšZÀ(€¡•¬¡Ù¥•Ü¹‘½´¹ÅÕ•ÉåM•±•Ñ½È m‘…Ñ„µÁ…É…É…Á V¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅâ×6VÆV7CÒ'Ó"%Òr“òævWDGG&–'WFR‚v&–×&W76VBr“ÓÓÕ7G&–ær‡6VÆV7FVBæ–æ6ÇVFW2‚wÓ"r’’Â~ik[»¤DôÞiÊ®Šû¾Xùn[Ù>X˜Þ˜žhº’r“°¢f–WræF—7F6‚‡f–Wrç7FFRçG"æ–ç6W'EFW‡B‚~ikZ)ârÃ"’“¶v—BW6R‚“·fW&–g’‚“°¢VæFò‡f–Wrç7FFRÂ‡G&ç67F–öâ“Óçf–WræF—7F6‚‡G&ç67F–öâ’“¶v—BW6R‚“·fW&–g’‚“°¢&VFò‡f–Wrç7FFRÂ‡G&ç67F–öâ“Óçf–WræF—7F6‚‡G&ç67F–öâ’“¶v—BW6R‚“·fW&–g’‚“° ¢6öç7B&w&…÷6—F–öç3ÖæWrÖÇ7G&–ærÆçVÖ&W#â‚“°¢f–Wrç7FFRæFö2æf÷$V6‚‚†æöFRÇ÷2“Óç&w&…÷6—F–öç2ç6WB†æöFRæGG'2ç&w&„–BÇ÷2³’“°¢f–WræF—7F6‚‡f–Wrç7FFRçG"ç6WE6VÆV7F–öâ…FW‡E6VÆV7F–öâæ7&VFR‡f–Wrç7FFRæFö2Ç&w&…÷6—F–öç2ævWB‚wÓ2r’³"’’“°¢6öç7B&Wf–÷W56VÆV7F–öã×f–Wrç7FFRç6VÆV7F–öââFæ6†÷"ç&VçBæGG'2ç&w&„–C°¢6†FW#Ö7&VFU&w&„w&÷W†6†FW"Å²wÓ"rÂwÓ2uÒÂ~ikXˆn{¸Br“°¢Ö÷fTVF—F÷%&w&‡2‡¶vWB7FFR‚—·&WGW&âf–Wrç7FFS·ÒÇ66†VÖÇf–WwÒ2ç’Æ6†FW"æFö7VÖVçBæ&Æö6·2“°¢6†V6²‡f–Wrç7FFRç6VÆV7F–öââFæ6†÷"ç&VçBæGG'2ç&w&„–CÓÓ×&Wf–÷W56VÆV7F–öâÂ~[»®{¸NYî˜žXË®‹{>X‹iÊ¾jëRr“°¢v—BW6R‚“·fW&–g’‚“°¢6†V6²‡f–WræFöÒçVW'•6VÆV7F÷"‚u¶FF×&w&‚Öw&÷WÖÆ&VÃÒ'Ó"%Òr“òçFW‡D6öçFVçCòæ–æ6ÇVFW2‚~ikXˆn{¸Br’Â~{¹>ièNi»Nikj~zÛîiÊ®YÎjÚRr“° ¢ÆWBG&÷Ö÷fW3Ó°¢6öç7BÖ–ÖSÒvÆ–6F–öâ÷‚×7F÷'’×v÷&¶&Væ6‚×&w&‡2s°¢6öç7B6GW&TG&÷Ò†WfVçC¤G&tWfVçB“Óç°¢G&6RçW6‚‚v6GW&RÖG&÷r“°¢6öç7B–ÆöCÔ¥4ôâç'6R†WfVçBæFFG&ç6fW"ævWDFF†Ö–ÖR’“°¢WfVçBç&WfVçDFVfVÇB‚“¶WfVçBç7F÷&÷vF–öâ‚“°¢6öç7BF&vWCÒ†WfVçBçF&vWB2VÆVÖVçB’æ6Æ÷6W7CÄ…DÔÄVÆVÖVçCâ‚u¶FFÖw&÷WÖG&÷Òr’°¢6†FW#ÖÖ÷fU&w&‡2†6†FW"Ç–ÆöBç&w&„–G2Ç·G—S¢vw&÷WrÆw&÷W–C§F&vWBæFF6WBæw&÷WG&÷Ò“°¢Ö÷fTVF—F÷%&w&‡2‡¶vWB7FFR‚—·&WGW&âf–Wrç7FFS·ÒÇ66†VÖÇf–WwÒ2ç’Æ6†FW"æFö7VÖVçBæ&Æö6·2“°¢G&÷Ö÷fW2²³°¢Ó°¢†÷7BæFDWfVçDÆ—7FVæW"‚vG&÷rÆ6GW&TG&÷ÇG'VR“°¢6öç7BG&ç6fW#ÖæWrFFG&ç6fW"‚“°¢G&ç6fW"ç6WDFF†Ö–ÖRÄ¥4ôâç7G&–æv–g’‡·&w&„–G3¥²wÓcu×Ò’“°¢6öç7Bw&÷WF&vWC×f–WræFöÒçVW'•6VÆV7F÷#Ä…DÔÄVÆVÖVçCâ‚u¶FFÖw&÷W×&w&‚Ö–CÒ'Ó%Òr’°¢w&÷WF&vWBæF—7F6„WfVçB†æWrG&tWfVçB‚vG&÷rÇ¶'V&&ÆW3§G'VRÆ6æ6VÆ&ÆS§G'VRÆFFG&ç6fW#§G&ç6fW'Ò’“°¢v—BW6R‚“°¢6†V6²†G&÷Ö÷fW3ÓÓÓbgÔG&÷6ÆÇ3ÓÓÓÂvG&÷iÊ®yKhÙ^ˆë~™‹një^ZHNynKˆjÊr“°¢6†V6²†6†FW"æw&÷W2æf–æB‚†s¦ç’“Óæræ–CÓÓÖw&÷WF&vWBæFF6WBæw&÷WG&÷“òç&w&„–G2æ–æ6ÇVFW2‚wÓcr’Â~hÙ^ˆëvG&÷iÊ®Zéî™˜^z{¾XªŽ‹ù¾{¸Br“°¢6†V6²‡f–Wrç7FFRæFö2æ6öçFVçBæ6öçFVçBæf–æB‚‡¦ç’“ÓçæGG'2ç&w&„–CÓÓÒwÓcr“òæGG'2æw&÷W–CÓÓÖw&÷WF&vWBæFF6WBæw&÷WG&÷Â~yÉþZéäVF—F÷%f–W~iÊ®i»Nik{¸D”Br“°¢fW&–g’‚“°¢f–WræFW7G&÷’‚“°¢‡v–æF÷r2ç’’æFöÕ&Vw&W76–öâæFöæR‡·76VC§G'VRÆ6†V6·2Ç&VÄVF—F÷%f–Ws§G'VRÆFöÕ&V7&VFVC§G'VRÇ6VÆV7F–öäæD6†V6¶&÷…&÷VæG3£"Æ–çWEVæFõ&VFó§G'VRÇ&Vw&÷W§G'VRÇ6VÆV7F–öå&W6W'fVC§G'VRÆG&÷Ö÷fW2ÇÔG&÷6ÆÇ2ÇG&6RÇ7–çF†WF–4FöÔG&÷§G'VWÒ“°§Ò’‚’æ6F6‚‚†W'&÷"“Óâ‡v–æF÷r2ç’’æFöÕ&Vw&W76–öâæFöæR‡·76VC¦fÇ6RÆW'&÷#¦W'&÷"ç7F6³óõ7G&–ær†W'&÷"—Ò’“° 
+import { getSchema } from '@tiptap/core';
+import StarterKit from '@tiptap/starter-kit';
+import UniqueID from '@tiptap/extension-unique-id';
+import { EditorState, TextSelection } from '@tiptap/pm/state';
+import { EditorView } from '@tiptap/pm/view';
+import { history, undo, redo } from '@tiptap/pm/history';
+import { StoryAttributes, CueMark, fromEditorContent, toEditorContent, moveEditorParagraphs, projectParagraphDecorations } from '../src/editor/story-editor';
+import { createParagraphPresentationReader } from '../src/editor/paragraph-presentation.mjs';
+import { createBlankProject } from '../src/domain/model/project.mjs';
+import { createParagraphGroup, reconcileChapterDocument, setMusicRange, moveParagraphs } from '../src/domain/model/chapters.mjs';
+
+const check = (condition: unknown, message: string) => { if (!condition) throw Error(message); };
+const pause = () => new Promise((resolve) => setTimeout(resolve, 35));
+(async () => {
+  let chapter = createBlankProject().chapters[0];
+  chapter.document.blocks = Array.from({length:100}, (_, index) => ({type:'paragraph',id:'p-'+index,children:[{type:'text',text:'æ­£æ–‡ç¬¬ '+index+' æ®µ'}]}));
+  for(let index=0;index<3;index++)chapter=createParagraphGroup(chapter,chapter.document.blocks.slice(index*20,index*20+20).map((p:any)=>p.id),['æ—¥å¸¸','è£‚ç¼','åè½¬'][index]);
+  chapter=setMusicRange(chapter,'music',chapter.groups[0].paragraphIds);
+  let assets=[{id:'music',name:'éªŒæ”¶é…ä¹.wav'}];
+  let selected:string[]=[];
+  const read=createParagraphPresentationReader(()=>({chapter,assets,paragraphIds:selected,groupIds:[],dropHint:null}));
+  const configured=StoryAttributes.configure({getParagraphPresentation:read});
+  const schema=getSchema([StarterKit,UniqueID.configure({types:['paragraph'],attributeName:'paragraphId'}),CueMark,configured]);
+  const createPlugins=()=>[...(configured.config.addProseMirrorPlugins as any).call({options:configured.options}),history()];
+  const host=document.getElementById('editor')!;
+  let view:EditorView;
+  let pmDropCalls=0;
+  const trace:string[]=[];
+  const mount=(state:EditorState)=>{
+    view=new EditorView(host,{
+      state,
+      handleDOMEvents:{drop(_view,event){pmDropCalls++;trace.push("prosemirror-drop");event.dataTransfer?.clearData();return true;}},
+      dispatchTransaction(transaction){
+        const next=view.state.applyTransaction(transaction).state;
+        view.updateState(next);
+        if(transaction.docChanged){
+          chapter=reconcileChapterDocument(chapter,fromEditorContent(next.doc.toJSON()));
+          projectParagraphDecorations(view.dom,read);
+        }
+      },
+    });
+  };
+  mount(EditorState.create({schema,doc:schema.nodeFromJSON(toEditorContent(chapter.document,chapter.groups,chapter.musicRanges)),plugins:createPlugins()}));
+  let checks=0;
+  const verify=()=>{
+    const expected=read('p-0');
+    const header=view.dom.querySelector<HTMLElement>('[data-group-paragraph-id="p-0"]')!;
+    check(header?.querySelector('[data-group-title]')?.textContent===expected.label,'ç»„å¤´æ²¡æœ‰å½“å‰çœŸå®žç»„å');
+    check(header?.querySelector('[data-group-summary]')?.textContent===expected.summary,'é…ä¹æ‘˜è¦æ²¡æœ‰å½“å‰çœŸå®žä¿¡æ¯');
+    for(const id of ['p-0','p-2','p-20','p-40']){
+      check(view.dom.querySelector('[data-paragraph-group-label="'+id+'"]')?.textContent===read(id).label,'æ®µæ—ç»„å·ä¸¢å¤± '+id);
+    }
+    check(!view.dom.textContent?.includes('æ­£åœ¨è¯»å–ç»„ä¿¡æ¯'),'å‡ºçŽ°å ä½æ‘˜è¦');
+    checks++;
+  };
+  verify();
+  host.addEventListener('story-paragraph-select',(event)=>{
+    const id=(event as CustomEvent).detail.paragraphId;
+    selected=selected.includes(id)?selected.filter((item)=>item!==id):[...selected,id];
+    projectParagraphDecorations(view.dom,read);
+  });
+  for(let index=0;index<12;index++){
+    host.scrollTop=index%2?host.scrollHeight:0;
+    const select=view.dom.querySelector<HTMLButtonElement>('[data-paragraph-select="p-2"]')!;
+    select.dispatchEvent(new MouseEvent('mousedown',{bubbles:true,cancelable:true}));
+    select.click();
+    view.focus();
+    view.dispatch(view.state.tr.setSelection(TextSelection.create(view.state.doc,index%3+1)));
+    await pause();
+    verify();
+    check(view.dom.querySelector('[data-paragraph-select="p-2"]')?.getAttribute('aria-pressed')===String(selected.includes('p-2')),'å‹¾é€‰çŠ¶æ€ä¸¢å¤±');
+  }
+  const oldHeader=view.dom.querySelector('[data-group-paragraph-id="p-0"]');
+  view.destroy();
+  chapter={...chapter,groups:chapter.groups.map((group:any,index:number)=>index===0?{...group,name:'å³æ—¶æ”¹å'}:group)};
+  assets=[{id:'music',name:'å³æ—¶æ–°é…ä¹.wav'}];
+  mount(EditorState.create({schema,doc:schema.nodeFromJSON(toEditorContent(chapter.document,chapter.groups,chapter.musicRanges)),plugins:createPlugins()}));
+  check(view.dom.querySelector('[data-group-paragraph-id="p-0"]')!==oldHeader,'æœªçœŸæ­£é‡å»ºWidget DOM');
+  verify(); // æ–°å»ºçœŸå®žDOMåŽåˆ»æ„ä¸è°ƒç”¨ReactæŠ•å½±æ›´æ–°
+  check(view.dom.querySelector('[data-paragraph-select="p-2"]')?.getAttribute('aria-pressed')===String(selected.includes('p-2')),'æ–°å»ºDOMæœªè¯»å–å½“å‰é€‰æ‹©');
+  view.dispatch(view.state.tr.insertText('æ–°å¢ž',2));await pause();verify();
+  undo(view.state,(transaction)=>view.dispatch(transaction));await pause();verify();
+  redo(view.state,(transaction)=>view.dispatch(transaction));await pause();verify();
+
+  const paragraphPositions=new Map<string,number>();
+  view.state.doc.forEach((node,pos)=>paragraphPositions.set(node.attrs.paragraphId,pos+1));
+  view.dispatch(view.state.tr.setSelection(TextSelection.create(view.state.doc,paragraphPositions.get('p-3')!+2)));
+  const previousSelection=view.state.selection.$anchor.parent.attrs.paragraphId;
+  chapter=createParagraphGroup(chapter,['p-2','p-3'],'æ–°åˆ†ç»„');
+  moveEditorParagraphs({get state(){return view.state;},schema,view} as any,chapter.document.blocks);
+  check(view.state.selection.$anchor.parent.attrs.paragraphId===previousSelection,'å»ºç»„åŽé€‰åŒºè·³åˆ°æœ«æ®µ');
+  await pause();verify();
+  check(view.dom.querySelector('[data-paragraph-group-label="p-2"]')?.textContent?.includes('æ–°åˆ†ç»„'),'ç»“æž„æ›´æ–°æ ‡ç­¾æœªåŒæ­¥');
+
+  let dropMoves=0;
+  const mime='application/x-story-workbench-paragraphs';
+  const captureDrop=(event:DragEvent)=>{
+    trace.push('capture-drop');
+    const payload=JSON.parse(event.dataTransfer!.getData(mime));
+    event.preventDefault();event.stopPropagation();
+    const target=(event.target as Element).closest<HTMLElement>('[data-group-drop]')!;
+    chapter=moveParagraphs(chapter,payload.paragraphIds,{type:'group',groupId:target.dataset.groupDrop});
+    moveEditorParagraphs({get state(){return view.state;},schema,view} as any,chapter.document.blocks);
+    dropMoves++;
+  };
+  host.addEventListener('drop',captureDrop,true);
+  const transfer=new DataTransfer();
+  transfer.setData(mime,JSON.stringify({paragraphIds:['p-60']}));
+  const groupTarget=view.dom.querySelector<HTMLElement>('[data-group-paragraph-id="p-0"]')!;
+  groupTarget.dispatchEvent(new DragEvent('drop',{bubbles:true,cancelable:true,dataTransfer:transfer}));
+  await pause();
+  check(dropMoves===1&&pmDropCalls===0,'dropæœªç”±æ•èŽ·é˜¶æ®µå¤„ç†ä¸€æ¬¡');
+  check(chapter.groups.find((g:any)=>g.id===groupTarget.dataset.groupDrop)?.paragraphIds.includes('p-60'),'æ•èŽ·dropæœªå®žé™…ç§»åŠ¨è¿›ç»„');
+  check(view.state.doc.content.content.find((p:any)=>p.attrs.paragraphId==='p-60')?.attrs.groupId===groupTarget.dataset.groupDrop,'çœŸå®žEditorViewæœªæ›´æ–°ç»„ID');
+  verify();
+  view.destroy();
+  (window as any).domRegression.done({passed:true,checks,realEditorView:true,domRecreated:true,selectionAndCheckboxRounds:12,inputUndoRedo:true,regroup:true,selectionPreserved:true,dropMoves,pmDropCalls,trace,syntheticDomDrop:true});
+})().catch((error)=>(window as any).domRegression.done({passed:false,error:error.stack??String(error)}));

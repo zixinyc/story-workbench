@@ -1,2 +1,7 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐìÁ±…¥¹Q•áÐô™É½´€œ¸¸½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ð¹µ©Ìœì)•áÁ½ÉÐ™Õ¹Ñ¥½¸¡…ÁÑ•ÉQ•áÑ½Õ¹ÑÌ¡ÁÉ½©•Ð¤ì(€É•ÑÕÉ¸=‰©•Ð¹™É½µ¹ÑÉ¥•Ì¡ÁÉ½©•Ð¹¡…ÁÑ•ÉÌ¹µ…À ¡¡…ÁÑ•È¤€ôøm¡…ÁÑ•È¹¥°¡…ÁÑ•È¹‘½Õµ•¹Ð¹‰±½­Ì¹É•‘Õ” ¡½Õ¹Ð°‰±½¬¤€ôø½Õ¹Ð€¬Á±…¥¹Q•áÐ¡‰±½¬¹¡¥±‘É•¸¤¹±•¹Ñ °€À¥t¤¤ì)ô)•áÁ½ÉÐ™Õ¹Ñ¥½¸¥Í1…É•Q•áÑ•±•Ñ¥½¸¡ÁÉ•Ù¥½ÕÌ°¹•áÐ¤ì(€É•ÑÕÉ¸=‰©•Ð¹•¹ÑÉ¥•Ì¡ÁÉ•Ù¥½ÕÌ¤¹Í½µ” ¡m¥°½Õ¹Ñt¤€ôø½Õ¹Ð€øô€ÈÀ€˜˜€¡¹•áÑm¥‘t€üü€À¤€ð½Õ¹Ð€¼€È¤ì)ô
+import { plainText } from '../domain/model/document.mjs';
+export function chapterTextCounts(project) {
+  return Object.fromEntries(project.chapters.map((chapter) => [chapter.id, chapter.document.blocks.reduce((count, block) => count + plainText(block.children).length, 0)]));
+}
+export function isLargeTextDeletion(previous, next) {
+  return Object.entries(previous).some(([id, count]) => count >= 20 && (next[id] ?? 0) < count / 2);
+}

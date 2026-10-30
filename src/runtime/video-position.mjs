@@ -1,2 +1,9 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•áÁ½ÉĞ™Õ¹Ñ¥½¸Ù¥‘•½A½Í¥Ñ¥½¹M•½¹‘Ì¡±…å•È°•±…ÁÍ•‘5Ì°‘ÕÉ…Ñ¥½¹M•½¹‘Ì¤ì(€½¹ÍĞÍÑ…ÉĞ€ô5…Ñ ¹µ…à À°€¡±…å•È¹Ù¥‘•½MÑ…ÉÑ5Ì€üü€À¤€¼€ÄÀÀÀ¤ì(€½¹ÍĞ±¥µ¥Ğ€ô9Õµ‰•È¹¥Í¥¹¥Ñ”¡‘ÕÉ…Ñ¥½¹M•½¹‘Ì¤€ü‘ÕÉ…Ñ¥½¹M•½¹‘Ì€è%¹™¥¹¥Ñäì(€½¹ÍĞ•¹€ô5…Ñ ¹µ¥¸¡±¥µ¥Ğ°±…å•È¹Ù¥‘•½¹‘5Ì€ôôôÕ¹‘•™¥¹•€ü±¥µ¥Ğ€è±…å•È¹Ù¥‘•½¹‘5Ì€¼€ÄÀÀÀ¤ì(€½¹ÍĞÍÁ…¸€ô5…Ñ ¹µ…à À°•¹€´ÍÑ…ÉĞ¤ì(€½¹ÍĞ½™™Í•Ğ€ô5…Ñ ¹µ…à À°•±…ÁÍ•‘5Ì€¼€ÄÀÀÀ¤ì(€½¹ÍĞÁ½Í¥Ñ¥½¸€ô±…å•È¹Ù¥‘•½1½½À€˜˜9Õµ‰•È¹¥Í¥¹¥Ñ”¡ÍÁ…¸¤€˜˜ÍÁ…¸€ø€À€üÍÑ…ÉĞ€¬½™™Í•Ğ€”ÍÁ…¸€èÍÑ…ÉĞ€¬½™™Í•Ğì(€É•ÑÕÉ¸5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸¡Á½Í¥Ñ¥½¸°•¹°±¥µ¥Ğ¤¤ì)ô(
+export function videoPositionSeconds(layer, elapsedMs, durationSeconds) {
+  const start = Math.max(0, (layer.videoStartMs ?? 0) / 1000);
+  const limit = Number.isFinite(durationSeconds) ? durationSeconds : Infinity;
+  const end = Math.min(limit, layer.videoEndMs === undefined ? limit : layer.videoEndMs / 1000);
+  const span = Math.max(0, end - start);
+  const offset = Math.max(0, elapsedMs / 1000);
+  const position = layer.videoLoop && Number.isFinite(span) && span > 0 ? start + offset % span : start + offset;
+  return Math.max(0, Math.min(position, end, limit));
+}

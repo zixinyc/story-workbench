@@ -1,7 +1,172 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐìµ­‘Ñ•µÀ°É•…‘¥±”°ÝÉ¥Ñ•¥±”°É´°¡µ½°µ­‘¥Èô™É½´€¹½‘”é™Ì½ÁÉ½µ¥Í•Ìœì)¥µÁ½ÉÐ½Ì™É½´€¹½‘”é½Ìœì)¥µÁ½ÉÐÁ…Ñ ™É½´€¹½‘”éÁ…Ñ œì)¥µÁ½ÉÐì™¥±•UI1Q½A…Ñ ô™É½´€¹½‘”éÕÉ°œì)¥µÁ½ÉÐìÉ•…Ñ•AÉ½©•Ñ1¥‰É…Éäô™É½´€œ¸¸½•±•ÑÉ½¸½ÁÉ½©•Ðµ±¥‰É…Éä¹µ©Ìœì()½¹ÍÐ¡•É”€ôÁ…Ñ ¹‘¥É¹…µ”¡™¥±•UI1Q½A…Ñ ¡¥µÁ½ÉÐ¹µ•Ñ„¹ÕÉ°¤¤ì)…Íå¹Œ™Õ¹Ñ¥½¸Ñ•µÁI½½Ð¡ÁÉ•™¥à¤ì(€É•ÑÕÉ¸µ­‘Ñ•µÀ¡Á…Ñ ¹©½¥¸¡½Ì¹ÑµÁ‘¥È ¤°ÁÉ•™¥à¤¤ì)ô()Ñ•ÍÐ Ÿ–Þ—ž¢/–êO¾òk’â“’î÷–Þ—ž¢/žj––ºçŽš‹–’7–:–>Ë–J3–’[¦£’þw–¶c’ö7žö»’êKžnã¦jSžšìœ°…Íå¹Œ€ ¤€ôøì(€½¹ÍÐÉ½½Ð€ô…Ý…¥ÐÑ•µÁI½½Ð ÍÝˆµ±¥‰É…Éäµ¥Í½±…Ñ”´œ¤ì(€ÑÉäì(€€€½¹ÍÐ±¥‰É…Éä€ôÉ•…Ñ•AÉ½©•Ñ1¥‰É…Éä¡É½½Ð¤ì(€€€½¹ÍÐ„€ô…Ý…¥Ð±¥‰É…Éä¹É•…Ñ”¡	Õ™™•È¹™É½´ ÁÉ½©•Ðµœ¤°ì¹…µ”è€Ÿ–Þ—ž¢/žRÈœ°ÁÉ½©•Ñ%è€ÁÉ½©•Ðµ„œô¤ì(€€€½¹ÍÐˆ€ô…Ý…¥Ð±¥‰É…Éä¹É•…Ñ”¡	Õ™™•È¹™É½´ ÁÉ½©•Ðµœ¤°ì¹…µ”è€Ÿ–Þ—ž¢/’ædœ°ÁÉ½©•Ñ%è€ÁÉ½©•Ðµˆœô¤ì((€€€€¼¨ƒ–>›–¶c–"Ã’â’â«–’[¦£šZ’îÛ¾òmƒ’â7¢ºû–’[¦£žn»š‚€¨¼(€€€½¹ÍÐ•áÑ•É¹…°€ôÁ…Ñ ¹©½¥¸¡É½½Ð°€•áÑ•É¹…°µ¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ì(€€€…Ý…¥Ð±¥‰É…Éä¹Í…Ù•ÍQ¼¡„¹­•ä°	Õ™™•È¹™É½´ µØÄœ¤°•áÑ•É¹…°¤ì((€€€€¼¨ƒ–>«–kšr³šrë¢«–*£’þw–¶`€¨¼(€€€…Ý…¥Ð±¥‰É…Éä¹Í…Ù”¡ˆ¹­•ä°	Õ™™•È¹™É½´ µØÄœ¤¤ì((€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥Ð±¥‰É…Éä¹±½…¡„¹­•ä¤°¹•ÜU¥¹ÐáÉÉ…ä¡	Õ™™•È¹™É½´ µØÄœ¤¤¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥Ð±¥‰É…Éä¹±½…¡ˆ¹­•ä¤°¹•ÜU¥¹ÐáÉÉ…ä¡	Õ™™•È¹™É½´ µØÄœ¤¤¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ý…¥Ð±¥‰É…Éä¹Í…Ù•Q…É•Ð¡„¹­•ä¤°•áÑ•É¹…°°€ƒžj–’[¦£’þw–¶c’ö7žö»–êSžîG–ºk–r ƒ¢«–ÞÇ¢ê¯’â(œ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ý…¥Ð±¥‰É…Éä¹Í…Ù•Q…É•Ð¡ˆ¹­•ä¤°¹Õ±°°€ƒ’â7–êSžîŸš&üƒžj–’[¦£’þw–¶c’ö7žö¸œ¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÉ•…‘¥±”¡•áÑ•É¹…°¤°	Õ™™•È¹™É½´ µØÄœ¤°€ƒžj¢«–*£’þw–¶c’â7–êSšRç–* ƒžj–’[¦£šZ’îØœ¤ì((€€€€¼¨ƒ–7’þw–¶c’âš²‡¾ò3’î7žÛ–>«–g¢«–ÞÇžj–’[¦£šZ’îØ€¨¼(€€€…Ý…¥Ð±¥‰É…Éä¹Í…Ù”¡„¹­•ä°	Õ™™•È¹™É½´ µØÈœ¤¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÉ•…‘¥±”¡•áÑ•É¹…°¤°	Õ™™•È¹™É½´ µØÈœ¤¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥Ð±¥‰É…Éä¹±½…¡ˆ¹­•ä¤°¹•ÜU¥¹ÐáÉÉ…ä¡	Õ™™•È¹™É½´ µØÄœ¤¤°€ƒžj’þw–¶c’â7–êS–öÇ–N4ƒžjšr³šrë––ºäœ¤ì(€ô™¥¹…±±äì…Ý…¥ÐÉ´¡É½½Ð°ìÉ•ÕÉÍ¥Ù”èÑÉÕ”°™½É”èÑÉÕ”ô¤ìô)ô¤ì()Ñ•ÍÐ Ÿ–Þ—ž¢/–êO¾òk–’[¦£’þw–¶c’ö7žö»š2'–Þ—ž¢/žîG–ºk¾ò3žn»–öW¦R»’â7šb¿–Þ—ž¢/–B4œ°…Íå¹Œ€ ¤€ôøì(€½¹ÍÐÉ½½Ð€ô…Ý…¥ÐÑ•µÁI½½Ð ÍÝˆµ±¥‰É…Éäµ­•ä´œ¤ì(€ÑÉäì(€€€½¹ÍÐ±¥‰É…Éä€ôÉ•…Ñ•AÉ½©•Ñ1¥‰É…Éä¡É½½Ð¤ì(€€€½¹ÍÐ•¹ÑÉä€ô…Ý…¥Ð±¥‰É…Éä¹É•…Ñ”¡	Õ™™•È¹™É½´ àœ¤°ì¹…µ”è€Ÿ’òk¢Š¯šRçš:'žj–B7–¶\œ°ÁÉ½©•Ñ%è€ÁÉ½©•Ðµàœô¤ì(€€€…ÍÍ•ÉÐ¹µ…Ñ ¡•¹ÑÉä¹­•ä°€½yÀµlÀ´å„µ˜µuìÌÙô¼¤ì(€€€…ÍÍ•ÉÐ¹¹½ÑÅÕ…°¡•¹ÑÉä¹­•ä°•¹ÑÉä¹¹…µ”¤ì((€€€€¼¨ƒšRç–B7–>«šRçžn»–öW–šVÃš6»¾ò3žŽžncžn»–öW’â7–* €¨¼(€€€½¹ÍÐÉ•¹…µ•€ô…Ý…¥Ð±¥‰É…Éä¹É•¹…µ”¡•¹ÑÉä¹­•ä°€ŸšZÃ–B7–¶\œ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡É•¹…µ•¹¹…µ”°€ŸšZÃ–B7–¶\œ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡É•¹…µ•¹­•ä°•¹ÑÉä¹­•ä¤ì(€€€½¹ÍÐÍÑ…Ñ”€ô…Ý…¥Ð±¥‰É…Éä¹±¥ÍÐ ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡ÍÑ…Ñ”¹ÁÉ½©•ÑÌ¹±•¹Ñ °€Ä¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡ÍÑ…Ñ”¹ÁÉ½©•ÑÍlÁt¹¹…µ”°€ŸšZÃ–B7–¶\œ¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥Ð±¥‰É…Éä¹±½…¡•¹ÑÉä¹­•ä¤°¹•ÜU¥¹ÐáÉÉ…ä¡	Õ™™•È¹™É½´ àœ¤¤°€ŸšRç–B7’â7–êS–*£––ºäœ¤ì(€ô™¥¹…±±äì…Ý…¥ÐÉ´¡É½½Ð°ìÉ•ÕÉÍ¥Ù”èÑÉÕ”°™½É”èÑÉÕ”ô¤ìô)ô¤ì()Ñ•ÍÐ Ÿ–Þ—ž¢/–êO¾òkš^Ÿ–6W–Þ—ž¢/¦š[š²‡¢þžžï–B;––ºç’â¢Ó¾ò3–:šZ’îÛ’â;š‹–’7¢¾š6»’þwžVg¾ò3¦7–’7–B¿–*£’â7¦7–’7–’7–"Øœ°…Íå¹Œ€ ¤€ôøì(€½¹ÍÐÉ½½Ð€ô…Ý…¥ÐÑ•µÁI½½Ð ÍÝˆµ±¥‰É…Éäµµ¥É…Ñ”´œ¤ì(€ÑÉäì(€€€½¹ÍÐ±•…ä€ôÁ…Ñ ¹©½¥¸¡É½½Ð°€Ý½É­ÍÁ…”¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ì(€€€½¹ÍÐ±•…åI•ÍÑ½É”€ôÁ…Ñ ¹©½¥¸¡É½½Ð°€É•ÍÑ½É”¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ì(€€€½¹ÍÐ±•…å!¥ÍÑ½Éä€ôÁ…Ñ ¹©½¥¸¡É½½Ð°€¡¥ÍÑ½Éäœ°€œÄÜÀÀÀÀÀÀÀÀÀÀÀµÉ•Õ±…È´ÄÄÄÄ¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ì(€€€½¹ÍÐ±•…åQ…É•Ð€ôÁ…Ñ ¹©½¥¸¡É½½Ð°€Í…Ù”µÑ…É•Ð¹©Í½¸œ¤ì(€€€…Ý…¥Ðµ­‘¥È¡Á…Ñ ¹‘¥É¹…µ”¡±•…å!¥ÍÑ½Éä¤°ìÉ•ÕÉÍ¥Ù”èÑÉÕ”ô¤ì(€€€…Ý…¥ÐÝÉ¥Ñ•¥±”¡±•…ä°	Õ™™•È¹™É½´ ±•…äÁÉ½©•Ðœ¤¤ì(€€€…Ý…¥ÐÝÉ¥Ñ•¥±”¡±•…åI•ÍÑ½É”°	Õ™™•È¹™É½´ ±•…äÉ•ÍÑ½É”Á½¥¹Ðœ¤¤ì(€€€…Ý…¥ÐÝÉ¥Ñ•¥±”¡±•…å!¥ÍÑ½Éä°	Õ™™•È¹™É½´ ±•…äÍ¹…ÁÍ¡½Ðœ¤¤ì(€€€…Ý…¥ÐÝÉ¥Ñ•¥±”¡±•…åQ…É•Ð°)M=8¹ÍÑÉ¥¹¥™ä¡ìÁ…Ñ èÁ…Ñ ¹©½¥¸¡É½½Ð°€•áÑ•É¹…°¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ô¤¤ì((€€€½¹ÍÐ±¥‰É…Éä€ôÉ•…Ñ•AÉ½©•Ñ1¥‰É…Éä¡É½½Ð¤ì(€€€½¹ÍÐ‰•™½É”€ô…Ý…¥Ð±¥‰É…Éä¹±¥ÍÐ ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡‰•™½É”¹±•…åA•¹‘¥¹œ°ÑÉÕ”°€Ÿš^ŸšZ’îÛ–¶c–r£š^Û–þ¦†ïš>Cž’ë–ú¢þžžìœ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡‰•™½É”¹ÁÉ½©•ÑÌ¹±•¹Ñ °€À¤ì((€€€½¹ÍÐ‰åÑ•Ì€ô…Ý…¥Ð±¥‰É…Éä¹±½…‘1•…ä ¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡‰åÑ•Ì°¹•ÜU¥¹ÐáÉÉ…ä¡	Õ™™•È¹™É½´ ±•…äÁÉ½©•Ðœ¤¤¤ì(€€€½¹ÍÐ•¹ÑÉä€ô…Ý…¥Ð±¥‰É…Éä¹…‘½ÁÑ1•…ä¡‰åÑ•Ì°ì¹…µ”è€Ÿš^Ÿ–Þ—ž¢,œ°ÁÉ½©•Ñ%è€ÁÉ½©•Ðµ±•…äœô¤ì((€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥Ð±¥‰É…Éä¹±½…¡•¹ÑÉä¹­•ä¤°¹•ÜU¥¹ÐáÉÉ…ä¡	Õ™™•È¹™É½´ ±•…äÁÉ½©•Ðœ¤¤°€Ÿ¢þžžï–B;––ºç–þ¦†ï’â¢Ðœ¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÉ•…‘¥±”¡±•…ä¤°	Õ™™•È¹™É½´ ±•…äÁÉ½©•Ðœ¤°€Ÿš^ŸšZ’îÛ–þ¦†ï–:š‚ß’þwžVdœ¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÉ•…‘¥±”¡±•…åI•ÍÑ½É”¤°	Õ™™•È¹™É½´ ±•…äÉ•ÍÑ½É”Á½¥¹Ðœ¤°€Ÿš^Ÿš‹–’7ž
-ç–þ¦†ï–:š‚ß’þwžVdœ¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÉ•…‘¥±”¡±•…å!¥ÍÑ½Éä¤°	Õ™™•È¹™É½´ ±•…äÍ¹…ÁÍ¡½Ðœ¤°€Ÿš^Ÿ–:–>Ëž&#šr³–þ¦†ï–:š‚ß’þwžVdœ¤ì(€€€…ÍÍ•ÉÐ¹•ÅÕ…°¡…Ý…¥ÐÉ•…‘¥±”¡±•…åQ…É•Ð°€ÕÑ˜àœ¤°)M=8¹ÍÑÉ¥¹¥™ä¡ìÁ…Ñ èÁ…Ñ ¹©½¥¸¡É½½Ð°€•áÑ•É¹…°¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ô¤°€Ÿš^Ÿ’þw–¶c’ö7žö»¢ºûžö»–þ¦†ï–:š‚ß’þwžVdœV¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅâ“° ¢ò¢‹øz{¾X{®iÚ^y¨N[z^zˆ¾[ŠnyØˆz®[{y¨Nh.ZHÞŠøhÚîY(ÎZIn˜:ŽKùÞZÙŽKØÞ{Úâ¢ð¢76W'BæFVWWVÂ†v—BÆ–'&'’ç&W7F÷&Uö–çB†VçG'’æ¶W’’ÂæWrV–çC„'&’„'VffW"æg&öÒ‚vÆVv7’&W7F÷&Rö–çBr’’“°¢76W'BæWVÂ†v—BÆ–'&'’ç6fUF&vWB†VçG'’æ¶W’’ÂF‚æ¦ö–â‡&ö÷BÂvW‡FW&æÂç7F÷'—6²ç¦—r’“°¢6öç7BfW'6–öç2Òv—BÆ–'&'’æ†—7F÷'”Æ—7B†VçG'’æ¶W’“°¢76W'Bæö²‡fW'6–öç2ç6öÖR‚†—FVÒ’Óâ—FVÒæ–BÓÓÒvÆVv7’×&W7F÷&Rr’Â~‹øz{¾Yî[©NKùÞyYžKˆ®KˆK»ÞXh^ZëžKÙÎK‹®h.ZHÞx+’r“°¢76W'Bæö²‡fW'6–öç2ç6öÖR‚†—FVÒ’Óâ—FVÒæ–Bæ–æ6ÇVFW2‚ss×&VwVÆ"Òr’’Â~‹øz{¾Yî[©NKùÞyYžiz~y¨NXènXû.[ú¾xZrr“° ¢ò¢˜xÞZHÞY
-þXªŽûÉ®KˆÞXhÞhùzK®[è^‹øz{¾ûÈÎK™þKˆÞKÉ®XhÞZHÞX‹nKˆK»Ò¢ð¢6öç7Bv–âÒ7&VFU&ö¦V7DÆ–'&'’‡&ö÷B“°¢6öç7BgFW"Òv—Bv–âæÆ—7B‚“°¢76W'BæWVÂ†gFW"æÆVv7•VæF–ærÂfÇ6RÂ~‹øz{¾‹ø~[KˆÞ[©NXøÞZHÞhùzK¢r“°¢76W'BæWVÂ†gFW"ç&ö¦V7G2æÆVæwF‚ÂÂ~˜xÞZHÞY
-þXªŽKˆÞ[©NZI®X{®KˆK»Þ[z^zˆ²r“°¢Òf–æÆÇ’²v—B&Ò‡&ö÷BÂ²&V7W'6—fS¢G'VRÂf÷&6S¢G'VRÒ“²Ð§Ò“° §FW7B‚~[z^zˆ¾[©>ûÉ®x«nhih~K»nYØþhèžKˆÞKÉ®h¨®z›®[©>XižY¹îŠhny¹nXéþ[©2rÂ7–æ2‚’Óâ°¢6öç7B&ö÷BÒv—BFV×&ö÷B‚w7v"ÖÆ–'&'’×7FFRÒr“°¢G'’°¢6öç7BÆ–'&'’Ò7&VFU&ö¦V7DÆ–'&'’‡&ö÷B“°¢6öç7BVçG'’Òv—BÆ–'&'’æ7&VFR„'VffW"æg&öÒ‚v¶VWÖRr’Â²æÖS¢~XŠ¾KŠ.h‰rÂ&ö¦V7D–C¢w&ö¦V7BÖ¶VWrÒ“°¢v—BÆ–'&'’ç6WD7F—fR†VçG'’æ¶W’“° ¢ò¢x«nhih~K»nhÙþYØò¢ð¢v—Bw&—FTf–ÆR‡F‚æ¦ö–â‡&ö÷BÂvÆ–'&'’rÂw7FFRæ§6öâr’Âw²F†—2—2æ÷B§6öâr“° ¢6öç7B&V÷VæVBÒ7&VFU&ö¦V7DÆ–'&'’‡&ö÷B“°¢v—B76W'Bç&V¦V7G2‚‚’Óâ&V÷VæVBæÆ—7B‚’Âþx«nhih~K»n[{.hÙþYØòò“° ¢ò¢[z^zˆ¾yºî[Ù^Y(ÎXh^Zëž˜;Þ‹ùŽYÊŽûÈÎk*iÈžŠ*¾kˆ^z›¢¢ð¢6öç7B7FFUF‚ÒF‚æ¦ö–â‡&ö÷BÂvÆ–'&'’rÂw&ö¦V7G2rÂVçG'’æ¶W’Âwv÷&·76Rç7F÷'—6²ç¦—r“°¢76W'BæFVWWVÂ†v—B&VDf–ÆR‡7FFUF‚’Â'VffW"æg&öÒ‚v¶VWÖRr’“°¢Òf–æÆÇ’²v—B&Ò‡&ö÷BÂ²&V7W'6—fS¢G'VRÂf÷&6S¢G'VRÒ“²Ð§Ò“° §FW7B‚~[z^zˆ¾[©>ûÉ®[z^zˆ¾yºî[Ù^˜xÎy¨NXX>i[hÚîYØþK¨nKˆÞKÉ®‹ùî[ŠnKŠ.hèžX[nZè>[z^zˆ²rÂ7–æ2‚’Óâ°¢6öç7B&ö÷BÒv—BFV×&ö÷B‚w7v"ÖÆ–'&'’ÖÖWFÒr“°¢G'’°¢6öç7BÆ–'&'’Ò7&VFU&ö¦V7DÆ–'&'’‡&ö÷B“°¢v—BÆ–'&'’æ7&VFR„'VffW"æg&öÒ‚tr’Â²æÖS¢~yK"rÂ&ö¦V7D–C¢w&ö¦V7BÖrÒ“°¢6öç7B'&ö¶VâÒv—BÆ–'&'’æ7&VFR„'VffW"æg&öÒ‚t"r’Â²æÖS¢~K™’rÂ&ö¦V7D–C¢w&ö¦V7BÖ"rÒ“°¢v—Bw&—FTf–ÆR‡F‚æ¦ö–â‡&ö÷BÂvÆ–'&'’rÂw&ö¦V7G2rÂ'&ö¶Vâæ¶W’ÂvÖWFæ§6öâr’Âvæ÷B§6öâr“° ¢6öç7B7FFRÒv—B7&VFU&ö¦V7DÆ–'&'’‡&ö÷B’æÆ—7B‚“°¢76W'BæWVÂ‡7FFRç&ö¦V7G2æÆVæwF‚ÂÂ~YØþhèžy¨NXX>i[hÚî[©NŠ*¾‹{>‹ø~ûÈÎKØnyºî[Ù^KˆÞˆ;ÞŠ*¾XŠr“°¢76W'BæWVÂ‡7FFRç&ö¦V7G5³ÒææÖRÂ~yK"r“°¢76W'BæFVWWVÂ†v—B&VDf–ÆR‡F‚æ¦ö–â‡&ö÷BÂvÆ–'&'’rÂw&ö¦V7G2rÂ'&ö¶Vâæ¶W’Âwv÷&·76Rç7F÷'—6²ç¦—r’’Â'VffW"æg&öÒ‚t"r’Â~YØþhèžy¨N[z^zˆ¾Xh^ZëžK¸ÞKùÞyYžYÊŽz8y¹ŽKˆ¢r“°¢Òf–æÆÇ’²v—B&Ò‡&ö÷BÂ²&V7W'6—fS¢G'VRÂf÷&6S¢G'VRÒ“²Ð§Ò“° §FW7B‚~[z^zˆ¾[©>ûÉ®iz~ih~K»nŠû¾KˆÞX{®iÚ^i{nKˆÞˆ;Þ[Ù>h‰8Îk*iÈžiz~i[hÚî8ÒrÂ7–æ2‚’Óâ°¢6öç7B&ö÷BÒv—BFV×&ö÷B‚w7v"ÖÆ–'&'’×Vç&VF&ÆRÒr“°¢G'’°¢6öç7BÆVv7’ÒF‚æ¦ö–â‡&ö÷BÂwv÷&·76Rç7F÷'—6²ç¦—r“°¢v—Bw&—FTf–ÆR†ÆVv7’Â'VffW"æg&öÒ‚vÆVv7’&ö¦V7Br’“°¢ò¢yºî[Ù^ZÙŽYÊŽKØnih~K»nŠû¾KˆÞX{®iÚ^ûÉ®yJŽKˆKŠ®yºî[Ù^šni»þYÎYÞ‹zþ[èNûÈÎŠû¾XùnKÉ®ZK‹JR¢ð¢v—B&Ò†ÆVv7’“°¢v—BÖ¶F—"†ÆVv7’“°¢6öç7BÆ–'&'’Ò7&VFU&ö¦V7DÆ–'&'’‡&ö÷B“°¢v—B76W'Bç&V¦V7G2‚‚’ÓâÆ–'&'’æÆöDÆVv7’‚’ÂôT•4D•'Æ–ÆÆVvÂ÷W&F–öçÄUU$×ÄT44U2ö’“°¢Òf–æÆÇ’²v—B&Ò‡&ö÷BÂ²&V7W'6—fS¢G'VRÂf÷&6S¢G'VRÒ“²Ð§Ò“° §FW7B‚~[z^zˆ¾[©>ûÉ®ZûÎXZ^hùKªNKÉ®XXŽyYžKˆK»ÞKùÞhªN[ú¾xZ~ûÈÎi»þhÚ.Yîiz~Xh^ZëžK¸ÞXúþh›îY¹ârÂ7–æ2‚’Óâ°¢6öç7B&ö÷BÒv—BFV×&ö÷B‚w7v"ÖÆ–'&'’×&WÆ6RÒr“°¢G'’°¢6öç7BÆ–'&'’Ò7&VFU&ö¦V7DÆ–'&'’‡&ö÷B“°¢6öç7BVçG'’Òv—BÆ–'&'’æ7&VFR„'VffW"æg&öÒ‚vöÆB6öçFVçBr’Â²æÖS¢~KÉ®Š*¾i»þhÚ.y¨BrÂ&ö¦V7D–C¢w&ö¦V7BÖöÆBrÒ“°¢v—BÆ–'&'’æ–×÷'D6öÖÖ—B†VçG'’æ¶W’Â'VffW"æg&öÒ‚væWr6öçFVçBr’Â²æÖS¢~i»þhÚ.iÚ^y¨BrÂ&ö¦V7D–C¢w&ö¦V7BÖöÆBrÒ“°¢76W'BæFVWWVÂ†v—BÆ–'&'’æÆöB†VçG'’æ¶W’’ÂæWrV–çC„'&’„'VffW"æg&öÒ‚væWr6öçFVçBr’’“°¢6öç7BfW'6–öç2Òv—BÆ–'&'’æ†—7F÷'”Æ—7B†VçG'’æ¶W’“°¢76W'Bæö²‡fW'6–öç2ç6öÖR‚†—FVÒ’Óâ—FVÒæ–Bæ–æ6ÇVFW2‚r×&÷FV7FVBÒr’’Â~i»þhÚ.X˜Þ[©NyYžKˆ¾KùÞhªN[ú¾xZrr“°¢6öç7B7FFRÒv—BÆ–'&'’æÆ—7B‚“°¢76W'BæWVÂ‡7FFRç&ö¦V7G5³ÒææÖRÂ~i»þhÚ.iÚ^y¨Br“°¢Òf–æÆÇ’²v—B&Ò‡&ö÷BÂ²&V7W'6—fS¢G'VRÂf÷&6S¢G'VRÒ“²Ð§Ò“° §FW7B‚~[z^zˆ¾[©>ûÉ®ZÙŽX*Ž™Jî[ø^š¾iŠþXù~j
-š¨Îy¨NXh^˜:Žj~ŠøbrÂ7–æ2‚’Óâ°¢6öç7B&ö÷BÒv—BFV×&ö÷B‚w7v"ÖÆ–'&'’ÖwV&BÒr“°¢G'’°¢6öç7BÆ–'&'’Ò7&VFU&ö¦V7DÆ–'&'’‡&ö÷B“°¢v—B76W'Bç&V¦V7G2‚‚’ÓâÆ–'&'’æÆöB‚rââöW66Rr’Âþ[z^zˆ¾j~ŠøniziX‚ò“°¢v—B76W'Bç&V¦V7G2‚‚’ÓâÆ–'&'’æÆöB‚wÖæ÷BÖ×WV–Br’Âþ[z^zˆ¾j~ŠøniziX‚ò“°¢v—B76W'Bç&V¦V7G2‚‚’ÓâÆ–'&'’æÆöB‚rr’Âþ[z^zˆ¾j~ŠøniziX‚ò“°¢Òf–æÆÇ’²v—B&Ò‡&ö÷BÂ²&V7W'6—fS¢G'VRÂf÷&6S¢G'VRÒ“²Ð§Ò“°
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { mkdtemp, readFile, writeFile, rm, chmod, mkdir } from 'node:fs/promises';
+import os from 'node:os';
+import path from 'node:path';
+import { fileURLToPath } from 'node:url';
+import { createProjectLibrary } from '../electron/project-library.mjs';
+
+const here = path.dirname(fileURLToPath(import.meta.url));
+async function tempRoot(prefix) {
+  return mkdtemp(path.join(os.tmpdir(), prefix));
+}
+
+test('å·¥ç¨‹åº“ï¼šä¸¤ä»½å·¥ç¨‹çš„å†…å®¹ã€æ¢å¤åŽ†å²å’Œå¤–éƒ¨ä¿å­˜ä½ç½®äº’ç›¸éš”ç¦»', async () => {
+  const root = await tempRoot('swb-library-isolate-');
+  try {
+    const library = createProjectLibrary(root);
+    const a = await library.create(Buffer.from('project-A'), { name: 'å·¥ç¨‹ç”²', projectId: 'project-a' });
+    const b = await library.create(Buffer.from('project-B'), { name: 'å·¥ç¨‹ä¹™', projectId: 'project-b' });
+
+    /* A å¦å­˜åˆ°ä¸€ä¸ªå¤–éƒ¨æ–‡ä»¶ï¼›B ä¸è®¾å¤–éƒ¨ç›®æ ‡ */
+    const external = path.join(root, 'external-A.storypack.zip');
+    await library.saveAsTo(a.key, Buffer.from('A-v1'), external);
+
+    /* B åªåšæœ¬æœºè‡ªåŠ¨ä¿å­˜ */
+    await library.save(b.key, Buffer.from('B-v1'));
+
+    assert.deepEqual(await library.load(a.key), new Uint8Array(Buffer.from('A-v1')));
+    assert.deepEqual(await library.load(b.key), new Uint8Array(Buffer.from('B-v1')));
+    assert.equal(await library.saveTarget(a.key), external, 'A çš„å¤–éƒ¨ä¿å­˜ä½ç½®åº”ç»‘å®šåœ¨ A è‡ªå·±èº«ä¸Š');
+    assert.equal(await library.saveTarget(b.key), null, 'B ä¸åº”ç»§æ‰¿ A çš„å¤–éƒ¨ä¿å­˜ä½ç½®');
+    assert.deepEqual(await readFile(external), Buffer.from('A-v1'), 'B çš„è‡ªåŠ¨ä¿å­˜ä¸åº”æ”¹åŠ¨ A çš„å¤–éƒ¨æ–‡ä»¶');
+
+    /* A å†ä¿å­˜ä¸€æ¬¡ï¼Œä»ç„¶åªå†™è‡ªå·±çš„å¤–éƒ¨æ–‡ä»¶ */
+    await library.save(a.key, Buffer.from('A-v2'));
+    assert.deepEqual(await readFile(external), Buffer.from('A-v2'));
+    assert.deepEqual(await library.load(b.key), new Uint8Array(Buffer.from('B-v1')), 'A çš„ä¿å­˜ä¸åº”å½±å“ B çš„æœ¬æœºå†…å®¹');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('å·¥ç¨‹åº“ï¼šå¤–éƒ¨ä¿å­˜ä½ç½®æŒ‰å·¥ç¨‹ç»‘å®šï¼Œç›®å½•é”®ä¸æ˜¯å·¥ç¨‹å', async () => {
+  const root = await tempRoot('swb-library-key-');
+  try {
+    const library = createProjectLibrary(root);
+    const entry = await library.create(Buffer.from('x'), { name: 'ä¼šè¢«æ”¹æŽ‰çš„åå­—', projectId: 'project-x' });
+    assert.match(entry.key, /^p-[0-9a-f-]{36}$/);
+    assert.notEqual(entry.key, entry.name);
+
+    /* æ”¹ååªæ”¹ç›®å½•å…ƒæ•°æ®ï¼Œç£ç›˜ç›®å½•ä¸åŠ¨ */
+    const renamed = await library.rename(entry.key, 'æ–°åå­—');
+    assert.equal(renamed.name, 'æ–°åå­—');
+    assert.equal(renamed.key, entry.key);
+    const state = await library.list();
+    assert.equal(state.projects.length, 1);
+    assert.equal(state.projects[0].name, 'æ–°åå­—');
+    assert.deepEqual(await library.load(entry.key), new Uint8Array(Buffer.from('x')), 'æ”¹åä¸åº”åŠ¨å†…å®¹');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('å·¥ç¨‹åº“ï¼šæ—§å•å·¥ç¨‹é¦–æ¬¡è¿ç§»åŽå†…å®¹ä¸€è‡´ï¼ŒåŽŸæ–‡ä»¶ä¸Žæ¢å¤è¯æ®ä¿ç•™ï¼Œé‡å¤å¯åŠ¨ä¸é‡å¤å¤åˆ¶', async () => {
+  const root = await tempRoot('swb-library-migrate-');
+  try {
+    const legacy = path.join(root, 'workspace.storypack.zip');
+    const legacyRestore = path.join(root, 'restore.storypack.zip');
+    const legacyHistory = path.join(root, 'history', '1700000000000-regular-1111.storypack.zip');
+    const legacyTarget = path.join(root, 'save-target.json');
+    await mkdir(path.dirname(legacyHistory), { recursive: true });
+    await writeFile(legacy, Buffer.from('legacy project'));
+    await writeFile(legacyRestore, Buffer.from('legacy restore point'));
+    await writeFile(legacyHistory, Buffer.from('legacy snapshot'));
+    await writeFile(legacyTarget, JSON.stringify({ path: path.join(root, 'external.storypack.zip') }));
+
+    const library = createProjectLibrary(root);
+    const before = await library.list();
+    assert.equal(before.legacyPending, true, 'æ—§æ–‡ä»¶å­˜åœ¨æ—¶å¿…é¡»æç¤ºå¾…è¿ç§»');
+    assert.equal(before.projects.length, 0);
+
+    const bytes = await library.loadLegacy();
+    assert.deepEqual(bytes, new Uint8Array(Buffer.from('legacy project')));
+    const entry = await library.adoptLegacy(bytes, { name: 'æ—§å·¥ç¨‹', projectId: 'project-legacy' });
+
+    assert.deepEqual(await library.load(entry.key), new Uint8Array(Buffer.from('legacy project')), 'è¿ç§»åŽå†…å®¹å¿…é¡»ä¸€è‡´');
+    assert.deepEqual(await readFile(legacy), Buffer.from('legacy project'), 'æ—§æ–‡ä»¶å¿…é¡»åŽŸæ ·ä¿ç•™');
+    assert.deepEqual(await readFile(legacyRestore), Buffer.from('legacy restore point'), 'æ—§æ¢å¤ç‚¹å¿…é¡»åŽŸæ ·ä¿ç•™');
+    assert.deepEqual(await readFile(legacyHistory), Buffer.from('legacy snapshot'), 'æ—§åŽ†å²ç‰ˆæœ¬å¿…é¡»åŽŸæ ·ä¿ç•™');
+    assert.equal(await readFile(legacyTarget, 'utf8'), JSON.stringify({ path: path.join(root, 'external.storypack.zip') }), 'æ—§ä¿å­˜ä½ç½®è®¾ç½®å¿…é¡»åŽŸæ ·ä¿ç•™');
+
+    /* è¿ç§»å‡ºæ¥çš„å·¥ç¨‹å¸¦ç€è‡ªå·±çš„æ¢å¤è¯æ®å’Œå¤–éƒ¨ä¿å­˜ä½ç½® */
+    assert.deepEqual(await library.restorePoint(entry.key), new Uint8Array(Buffer.from('legacy restore point')));
+    assert.equal(await library.saveTarget(entry.key), path.join(root, 'external.storypack.zip'));
+    const versions = await library.historyList(entry.key);
+    assert.ok(versions.some((item) => item.id === 'legacy-restore'), 'è¿ç§»åŽåº”ä¿ç•™ä¸Šä¸€ä»½å†…å®¹ä½œä¸ºæ¢å¤ç‚¹');
+    assert.ok(versions.some((item) => item.id.includes('1700000000000-regular-')), 'è¿ç§»åŽåº”ä¿ç•™æ—§çš„åŽ†å²å¿«ç…§');
+
+    /* é‡å¤å¯åŠ¨ï¼šä¸å†æç¤ºå¾…è¿ç§»ï¼Œä¹Ÿä¸ä¼šå†å¤åˆ¶ä¸€ä»½ */
+    const again = createProjectLibrary(root);
+    const after = await again.list();
+    assert.equal(after.legacyPending, false, 'è¿ç§»è¿‡å°±ä¸åº”åå¤æç¤º');
+    assert.equal(after.projects.length, 1, 'é‡å¤å¯åŠ¨ä¸åº”å¤šå‡ºä¸€ä»½å·¥ç¨‹');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('å·¥ç¨‹åº“ï¼šçŠ¶æ€æ–‡ä»¶åæŽ‰ä¸ä¼šæŠŠç©ºåº“å†™å›žè¦†ç›–åŽŸåº“', async () => {
+  const root = await tempRoot('swb-library-state-');
+  try {
+    const library = createProjectLibrary(root);
+    const entry = await library.create(Buffer.from('keep me'), { name: 'åˆ«ä¸¢æˆ‘', projectId: 'project-keep' });
+    await library.setActive(entry.key);
+
+    /* çŠ¶æ€æ–‡ä»¶æŸå */
+    await writeFile(path.join(root, 'library', 'state.json'), '{ this is not json');
+
+    const reopened = createProjectLibrary(root);
+    await assert.rejects(() => reopened.list(), /çŠ¶æ€æ–‡ä»¶å·²æŸå/);
+
+    /* å·¥ç¨‹ç›®å½•å’Œå†…å®¹éƒ½è¿˜åœ¨ï¼Œæ²¡æœ‰è¢«æ¸…ç©º */
+    const statePath = path.join(root, 'library', 'projects', entry.key, 'workspace.storypack.zip');
+    assert.deepEqual(await readFile(statePath), Buffer.from('keep me'));
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('å·¥ç¨‹åº“ï¼šå·¥ç¨‹ç›®å½•é‡Œçš„å…ƒæ•°æ®åäº†ä¸ä¼šè¿žå¸¦ä¸¢æŽ‰å…¶å®ƒå·¥ç¨‹', async () => {
+  const root = await tempRoot('swb-library-meta-');
+  try {
+    const library = createProjectLibrary(root);
+    await library.create(Buffer.from('A'), { name: 'ç”²', projectId: 'project-a' });
+    const broken = await library.create(Buffer.from('B'), { name: 'ä¹™', projectId: 'project-b' });
+    await writeFile(path.join(root, 'library', 'projects', broken.key, 'meta.json'), 'not json');
+
+    const state = await createProjectLibrary(root).list();
+    assert.equal(state.projects.length, 1, 'åæŽ‰çš„å…ƒæ•°æ®åº”è¢«è·³è¿‡ï¼Œä½†ç›®å½•ä¸èƒ½è¢«åˆ ');
+    assert.equal(state.projects[0].name, 'ç”²');
+    assert.deepEqual(await readFile(path.join(root, 'library', 'projects', broken.key, 'workspace.storypack.zip')), Buffer.from('B'), 'åæŽ‰çš„å·¥ç¨‹å†…å®¹ä»ä¿ç•™åœ¨ç£ç›˜ä¸Š');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('å·¥ç¨‹åº“ï¼šæ—§æ–‡ä»¶è¯»ä¸å‡ºæ¥æ—¶ä¸èƒ½å½“æˆã€Œæ²¡æœ‰æ—§æ•°æ®ã€', async () => {
+  const root = await tempRoot('swb-library-unreadable-');
+  try {
+    const legacy = path.join(root, 'workspace.storypack.zip');
+    await writeFile(legacy, Buffer.from('legacy project'));
+    /* ç›®å½•å­˜åœ¨ä½†æ–‡ä»¶è¯»ä¸å‡ºæ¥ï¼šç”¨ä¸€ä¸ªç›®å½•é¡¶æ›¿åŒåè·¯å¾„ï¼Œè¯»å–ä¼šå¤±è´¥ */
+    await rm(legacy);
+    await mkdir(legacy);
+    const library = createProjectLibrary(root);
+    await assert.rejects(() => library.loadLegacy(), /EISDIR|illegal operation|EPERM|EACCES/i);
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('å·¥ç¨‹åº“ï¼šå¯¼å…¥æäº¤ä¼šå…ˆç•™ä¸€ä»½ä¿æŠ¤å¿«ç…§ï¼Œæ›¿æ¢åŽæ—§å†…å®¹ä»å¯æ‰¾å›ž', async () => {
+  const root = await tempRoot('swb-library-replace-');
+  try {
+    const library = createProjectLibrary(root);
+    const entry = await library.create(Buffer.from('old content'), { name: 'ä¼šè¢«æ›¿æ¢çš„', projectId: 'project-old' });
+    await library.importCommit(entry.key, Buffer.from('new content'), { name: 'æ›¿æ¢æ¥çš„', projectId: 'project-old' });
+    assert.deepEqual(await library.load(entry.key), new Uint8Array(Buffer.from('new content')));
+    const versions = await library.historyList(entry.key);
+    assert.ok(versions.some((item) => item.id.includes('-protected-')), 'æ›¿æ¢å‰åº”ç•™ä¸‹ä¿æŠ¤å¿«ç…§');
+    const state = await library.list();
+    assert.equal(state.projects[0].name, 'æ›¿æ¢æ¥çš„');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('å·¥ç¨‹åº“ï¼šå­˜å‚¨é”®å¿…é¡»æ˜¯å—æ ¡éªŒçš„å†…éƒ¨æ ‡è¯†', async () => {
+  const root = await tempRoot('swb-library-guard-');
+  try {
+    const library = createProjectLibrary(root);
+    await assert.rejects(() => library.load('../escape'), /å·¥ç¨‹æ ‡è¯†æ— æ•ˆ/);
+    await assert.rejects(() => library.load('p-not-a-uuid'), /å·¥ç¨‹æ ‡è¯†æ— æ•ˆ/);
+    await assert.rejects(() => library.load(''), /å·¥ç¨‹æ ‡è¯†æ— æ•ˆ/);
+  } finally { await rm(root, { recursive: true, force: true }); }
+});

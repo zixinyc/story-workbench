@@ -1,2 +1,34 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐìÉ•…Ñ••µ½AÉ½©•Ðô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ð¹µ©Ìœì)¥µÁ½ÉÐì…Ñ¥Ù•¡…ÁÑ•È°Í•Ñ5ÕÍ¥I…¹”ô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì)¥µÁ½ÉÐì½µÁ¥±•½Õµ•¹Ðô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ð¹µ©Ìœì)¥µÁ½ÉÐìÉ•…Ñ•¡…ÁÑ•É5•‘¥…½¹ÑÉ½±±•Èô™É½´€œ¸¸½ÍÉŒ½ÉÕ¹Ñ¥µ”½¡…ÁÑ•Èµµ•‘¥„µ½¹ÑÉ½±±•È¹µ©Ìœì()Ñ•ÍÐ Ÿž®ƒ–¦~Ï’æC¢2–nÓ¢Þ£–>—¢þ{žî·¾ò3–>—¦~ÏšV#ž.³ž®/–>ƒ–*ƒ¾ò3šj–s–J3–ºk’ö7’â7š.[–*£¢3šf¿¦~Ï’æ@œ°€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ð¤ì(€ÁÉ½©•Ð¹…ÍÍ•ÑÌ¹ÁÕÍ ¡ì¥è€µÕÍ¥Œœ°¹…µ”è€ŸšÂo–nÐ¹Ý…Øœ°­¥¹è€…Õ‘¥¼œ°µ¥µ”è€…Õ‘¥¼½Ý…Øœ°Í¥é”è€Äô°ì¥è€Í™àœ°¹…µ”è€Ÿš>Cž’è¹Ý…Øœ°­¥¹è€…Õ‘¥¼œ°µ¥µ”è€…Õ‘¥¼½Ý…Øœ°Í¥é”è€Äô¤ì(€¡…ÁÑ•È¹µÕÍ¥I…¹•Ì€ômÍ•Ñ5ÕÍ¥I…¹”¡¡…ÁÑ•È°€µÕÍ¥Œœ°¡…ÁÑ•È¹‘½Õµ•¹Ð¹‰±½­Ì¹Í±¥” Ä°€Ð¤¹µ…À ¡‰±½¬¤€ôø‰±½¬¹¥¤°ìÙ½±Õµ”è€À¸ÌÔ°±½½ÀèÑÉÕ”ô¤¹µÕÍ¥I…¹•ÍlÁutì(€½¹ÍÐÁ±…¸€ô½µÁ¥±•½Õµ•¹Ð¡¡…ÁÑ•È¹‘½Õµ•¹Ð¤ì(€½¹ÍÐ…±±Ì€ôìµÕÍ¥Œèmt°•™™•ÑÌèmtôì(€½¹ÍÐµ…­•M•ÍÍ¥½¸€ô€¡¹…µ”¤€ôø=‰©•Ð¹™É½µ¹ÑÉ¥•Ì¡lÍÑ…ÉÐœ°€ÍÑ½Àœ°€Á…ÕÍ”œ°€É•ÍÕµ”œ°€Í••­5Ìœ°€Í•ÑY½±Õµ”œ°€Í•Ñ1½½Àt¹µ…À ¡µ•Ñ¡½¤€ôømµ•Ñ¡½°€ ¸¸¹…ÉÌ¤€ôø…±±Ím¹…µ•t¹ÁÕÍ ¡mµ•Ñ¡½°€¸¸¹…ÉÍt¥t¤¤ì(€½¹ÍÐ½¹ÑÉ½±±•È€ôÉ•…Ñ•¡…ÁÑ•É5•‘¥…½¹ÑÉ½±±•È¡ì•Ñ¡…ÁÑ•Èè€ ¤€ôø¡…ÁÑ•È°•Ñ5ÕÍ¥M•ÍÍ¥½¸è€ ¤€ôøµ…­•M•ÍÍ¥½¸ µÕÍ¥Œœ¤°•Ñ™™•ÑM•ÍÍ¥½¸è€ ¤€ôøµ…­•M•ÍÍ¥½¸ •™™•ÑÌœ¤ô¤ì(€½¹ÍÐÝ¥Ñ¡M™à€ôì€¸¸¹Á±…¹lÉt°Í•ÑÑ¥¹Ìèì€¸¸¹Á±…¹lÉt¹Í•ÑÑ¥¹Ì°…Õ‘¥½%è€Í™àœôôì(€½¹ÑÉ½±±•È¹•¹Ñ•È¡Á±…¹lÁt¤ì(€½¹ÑÉ½±±•È¹•¹Ñ•È¡Á±…¹lÅt¤ì(€½¹ÑÉ½±±•È¹•¹Ñ•È¡Ý¥Ñ¡M™à¤ì(€½¹ÑÉ½±±•È¹•¹Ñ•È¡Á±…¹lÍt¤ì(€½¹ÑÉ½±±•È¹Á…ÕÍ” ¤ì(€½¹ÑÉ½±±•È¹É•ÍÕµ” ¤ì(€½¹ÑÉ½±±•È¹Í••­™™•ÑÌ äÀÀ¤ì(€½¹ÑÉ½±±•È¹•¹Ñ•È¡Á±…¹lÑt¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…±±Ì¹µÕÍ¥Œ¹™¥±Ñ•È ¡mµ•Ñ¡½‘t¤€ôøµ•Ñ¡½€ôôô€ÍÑ…ÉÐœ¤¹±•¹Ñ °€Ä¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…±±Ì¹µÕÍ¥Œ¹™¥¹ ¡mµ•Ñ¡½‘t¤€ôøµ•Ñ¡½€ôôô€Í•ÑY½±Õµ”œ¤°lÍ•ÑY½±Õµ”œ°€À¸ÌÕt¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…±±Ì¹µÕÍ¥Œ¹™¥¹ ¡mµ•Ñ¡½‘t¤€ôøµ•Ñ¡½€ôôô€Í•Ñ1½½Àœ¤°lÍ•Ñ1½½Àœ°ÑÉÕ•t¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…±±Ì¹µÕÍ¥Œ¹™¥±Ñ•È ¡mµ•Ñ¡½‘t¤€ôøµ•Ñ¡½€ôôô€Á…ÕÍ”œ¤¹±•¹Ñ °€Ä¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…±±Ì¹µÕÍ¥Œ¹Í½µ” ¡mµ•Ñ¡½‘t¤€ôøµ•Ñ¡½€ôôô€Í••­5Ìœ¤°™…±Í”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…±±Ì¹•™™•ÑÌ¹Í½µ” ¡mµ•Ñ¡½°Ù…±Õ•t¤€ôøµ•Ñ¡½€ôôô€ÍÑ…ÉÐœ€˜˜Ù…±Õ”€ôôô€Í™àœ¤°ÑÉÕ”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…±±Ì¹•™™•ÑÌ¹Í½µ” ¡mµ•Ñ¡½°Ù…±Õ•t¤€ôøµ•Ñ¡½€ôôô€Í••­5Ìœ€˜˜Ù…±Õ”€ôôô€äÀÀ¤°ÑÉÕ”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡…±±Ì¹µÕÍ¥Œ¹™¥±Ñ•È ¡mµ•Ñ¡½‘t¤€ôøµ•Ñ¡½€ôôô€ÍÑ½Àœ¤¹±•¹Ñ °€Ä¤ì)ô¤ì(
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { createDemoProject } from '../src/domain/model/project.mjs';
+import { activeChapter, setMusicRange } from '../src/domain/model/chapters.mjs';
+import { compileDocument } from '../src/domain/model/document.mjs';
+import { createChapterMediaController } from '../src/runtime/chapter-media-controller.mjs';
+
+test('ç« å†…éŸ³ä¹èŒƒå›´è·¨å¥è¿žç»­ï¼Œå¥éŸ³æ•ˆç‹¬ç«‹å åŠ ï¼Œæš‚åœå’Œå®šä½ä¸æ‹–åŠ¨èƒŒæ™¯éŸ³ä¹', () => {
+  const project = createDemoProject();
+  const chapter = activeChapter(project);
+  project.assets.push({ id: 'music', name: 'æ°›å›´.wav', kind: 'audio', mime: 'audio/wav', size: 1 }, { id: 'sfx', name: 'æç¤º.wav', kind: 'audio', mime: 'audio/wav', size: 1 });
+  chapter.musicRanges = [setMusicRange(chapter, 'music', chapter.document.blocks.slice(1, 4).map((block) => block.id), { volume: 0.35, loop: true }).musicRanges[0]];
+  const plan = compileDocument(chapter.document);
+  const calls = { music: [], effects: [] };
+  const makeSession = (name) => Object.fromEntries(['start', 'stop', 'pause', 'resume', 'seekMs', 'setVolume', 'setLoop'].map((method) => [method, (...args) => calls[name].push([method, ...args])]));
+  const controller = createChapterMediaController({ getChapter: () => chapter, getMusicSession: () => makeSession('music'), getEffectSession: () => makeSession('effects') });
+  const withSfx = { ...plan[2], settings: { ...plan[2].settings, audioId: 'sfx' } };
+  controller.enter(plan[0]);
+  controller.enter(plan[1]);
+  controller.enter(withSfx);
+  controller.enter(plan[3]);
+  controller.pause();
+  controller.resume();
+  controller.seekEffects(900);
+  controller.enter(plan[4]);
+  assert.equal(calls.music.filter(([method]) => method === 'start').length, 1);
+  assert.deepEqual(calls.music.find(([method]) => method === 'setVolume'), ['setVolume', 0.35]);
+  assert.deepEqual(calls.music.find(([method]) => method === 'setLoop'), ['setLoop', true]);
+  assert.equal(calls.music.filter(([method]) => method === 'pause').length, 1);
+  assert.equal(calls.music.some(([method]) => method === 'seekMs'), false);
+  assert.equal(calls.effects.some(([method, value]) => method === 'start' && value === 'sfx'), true);
+  assert.equal(calls.effects.some(([method, value]) => method === 'seekMs' && value === 900), true);
+  assert.equal(calls.music.filter(([method]) => method === 'stop').length, 1);
+});

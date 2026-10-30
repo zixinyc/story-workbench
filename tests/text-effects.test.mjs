@@ -1,10 +1,138 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞì‘•™…Õ±ÑM•ÑÑ¥¹Ì°Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ìô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ğ¹µ©Ìœì)¥µÁ½ÉĞì‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì°•Ù…±Õ…Ñ•Q•áÑ™™•Ğ°É…Á¡•µ•Ì°µ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸°5=Q%=9}AIMQL°İ½É‘A¡…Í•A±…¸ô™É½´€œ¸¸½ÍÉŒ½µ½Ñ¥½¸½•™™•ÑÌ¹µ©Ìœì)¥µÁ½ÉĞì™É½µ‘¥Ñ½É½¹Ñ•¹Ğ°Ñ½‘¥Ñ½É½¹Ñ•¹Ğô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½ÍÑ½Éäµ•‘¥Ñ½È¹ÑÌœì()Ñ•ÍĞ ŸšZ–¶_šV#šzs–>šVÃ’î—–ó–ºçšZç–ò?’şw–¶c–r£šòS–ë¢ºûö»’â·¾ò3š^Ÿ–*£šV#’î7–>¿¦ª3¢¾œ°€ ¤€ôøì(€½¹ÍĞ½±€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€Í¡…­”œô¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡½±¤°Õ¹‘•™¥¹•¤ì(€½¹ÍĞÍ•ÑÑ¥¹Ì€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€‘•½‘”œ°µ½Ñ¥½¹M•ÑÑ¥¹Ìè‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì ‘•½‘”œ°€Ÿ’öƒ––ôœ¤ô¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡Í•ÑÑ¥¹Ì¤°Õ¹‘•™¥¹•¤ì(€½¹ÍĞ‘½Õµ•¹Ğ€ôìÑåÁ”è€‘½Œœ°‰±½­ÌèmìÑåÁ”è€Á…É…É…Á œ°¥è€ÀÄœ°¡¥±‘É•¸èmìÑåÁ”è€Õ”œ°¥è€Õ”Äœ°Í•ÑÑ¥¹Ì°¡¥±‘É•¸èmìÑåÁ”è€Ñ•áĞœ°Ñ•áĞè€Ÿ’öƒ––ôœõtõtõtôì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡™É½µ‘¥Ñ½É½¹Ñ•¹Ğ¡Ñ½‘¥Ñ½É½¹Ñ•¹Ğ¡‘½Õµ•¹Ğ¤¤°‘½Õµ•¹Ğ¤ì(€…ÍÍ•ÉĞ¹Ñ¡É½İÌ  ¤€ôøÙ…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€‘•½‘”œ°µ½Ñ¥½¹M•ÑÑ¥¹ÌèìÍ••è€Ÿ¦j?šrèœôô¤¤°€½Í••¼¤ì(€…ÍÍ•ÉĞ¹Ñ¡É½İÌ  ¤€ôøÙ…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€ÑåÁ¥¹œœ°µ½Ñ¥½¹M•ÑÑ¥¹ÌèìÍ•É•Ğè€¥¹½É•œôô¤¤°€¿’â7¦R£’ê8¼¤ì(€…ÍÍ•ÉĞ¹Ñ¡É½İÌ  ¤€ôøÙ…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€•Ù…Á½É…Ñ”œ°µ½Ñ¥½¹M•ÑÑ¥¹Ìèì•Ù…Á½É…Ñ¥½¹MÑ…ÉÑ5Ìè€ĞÀÀ°•Ù…Á½É…Ñ¥½¹¹‘5Ìè€ÌÀÀôô¤¤°€¿îOšvš^Û¦^Ó–ş¦†ïšfk’ê;–ò–/š^Û¦^Ğ¼¤ì(€…ÍÍ•ÉĞ¹Ñ¡É½İÌ  ¤€ôøÙ…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€Õ¹­¹½İ¸œô¤¤°€¿–*£šV ¼¤ì(€…ÍÍ•ÉĞ¹½¬¡5=Q%=9}AIMQL¹±•¹Ñ €øô€ÄÈ¤ì)ô¤ì()Ñ•ÍĞ ÀÄƒ–>«~·šjšnÿš6‹šZÃ–¶_¾ò3–në–ºk7–¶C’â/’îïš?š^Û¦^ÓšÆ–ó’â¢Ğœ°€ ¤€ôøì(€½¹ÍĞÍ•ÑÑ¥¹Ì€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€‘•½‘”œ°µ½Ñ¥½¹M•ÑÑ¥¹ÌèìÍ••è€äÄ°ÍÑ…ÉÑ5Ìè€À°¡…ÉMÑ•Á5Ìè€ÄÀÀ°Í•ÑÑ±•5Ìè€àÀ°¡½±‘5Ìè€ÄÀÀÀ°•á¥Ñ5Ìè€ÌÀÀôô¤ì(€½¹ÍĞ™¥ÉÍĞ€ô•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡Í•ÑÑ¥¹Ì°€Ÿ¢‚œ°€ĞÀ¤ì(€½¹ÍĞÉ•Á•…Ñ•€ô•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡Í•ÑÑ¥¹Ì°€Ÿ¢‚œ°€ĞÀ¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡™¥ÉÍĞ°É•Á•…Ñ•¤ì(€…ÍÍ•ÉĞ¹¹½ÑÅÕ…°¡™¥ÉÍĞ¹¡…É…Ñ•ÉÍlÁt¹±¥Ñ °¹Õ±°¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡™¥ÉÍĞ¹¡…É…Ñ•ÉÍlÁt¹Ñ•áĞ°€Ÿ¢Œœ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡Í•ÑÑ¥¹Ì°€Ÿ¢‚œ°€ÔÀÀ¤¹¡…É…Ñ•ÉÍlÁt¹±¥Ñ °¹Õ±°¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡Í•ÑÑ¥¹Ì°€Ÿ¢‚œ°€À¤¹¡…É…Ñ•ÉÍlÅt¹Ù¥Í¥‰±”°™…±Í”¤ì)ô¤ì()Ñ•ÍĞ Ÿšf»¦kš&O–¶_–J3š¢‡Î+–>cšâšfÃ¦÷šb¿š^Û¦^Ó¦¦Ç–*£j–6W¢ÂšV#šzpœ°€ ¤€ôøì(€½¹ÍĞÑåÁ¥¹œ€ô•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€ÑåÁ¥¹œœ°µ½Ñ¥½¹M•ÑÑ¥¹ÌèìÍÑ…ÉÑ5Ìè€À°¡…ÉMÑ•Á5Ìè€ÄÀÀôô¤°€ŸRË’æg’âdœ°€ÄÀÀ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡ÑåÁ¥¹œ¹¡…É…Ñ•ÉÌ¹™¥±Ñ•È ¡¥Ñ•´¤€ôø¥Ñ•´¹Ù¥Í¥‰±”¤¹±•¹Ñ °€È¤ì(€½¹ÍĞ‰±ÕÈ€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€‰±ÕÉM¡…ÉÀœ°µ½Ñ¥½¹M•ÑÑ¥¹ÌèìÍÑÉ•¹Ñ è€Ä°±•…É5Ìè€ÔÀÀôô¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡‰±ÕÈ°€ŸšâšfÀœ°€À¤¹‰±ÕÉAà°€ÄÀ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡‰±ÕÈ°€ŸšâšfÀœ°€ÔÀÀ¤¹‰±ÕÉAà°€À¤ì)ô¤ì()Ñ•ÍĞ ÀÈƒ¢¾7î’úwš²‡šbû’ë–æÛ¢º§š&¯êÿ¢şo–ê›¦j?–öO–&7¢¾7š^Û¦^ÓR¦Vüœ°€ ¤€ôøì(€½¹ÍĞÍ•ÑÑ¥¹Ì€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€İ½É‘U¹‘•É±¥¹”œ°µ½Ñ¥½¹M•ÑÑ¥¹Ìèìİ½É‘ÍQ•áĞè€Ÿšb;–’¤€¼ƒVg’ö<€¼ƒ¢ºÃ–şœ°ÍÑ…ÉÑ5Ìè€À°İ½É‘ÕÉ…Ñ¥½¹5Ìè€ĞÀÀ°¡…ÉMÑ•Á5Ìè€ÜÀ°Õ¹‘•É±¥¹•Q¡¥­¹•ÍÌè€È°¡½±‘5Ìè€ÄÈÀÀ°•á¥Ñ5Ìè€ÌÀÀôô¤ì(€½¹ÍĞÍÑ…ÉĞ€ô•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡Í•ÑÑ¥¹Ì°€Ÿšb;–’§Vg’ö?¢ºÃ–şœ°€À¤ì(€½¹ÍĞµ¥‘‘±”€ô•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡Í•ÑÑ¥¹Ì°€Ÿšb;–’§Vg’ö?¢ºÃ–şœ°€ÈÀÀ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡ÍÑ…ÉĞ¹İ½É‘ÍlÁt¹Õ¹‘•É±¥¹”°€À¤ì(€…ÍÍ•ÉĞ¹½¬¡µ¥‘‘±”¹İ½É‘ÍlÁt¹Õ¹‘•É±¥¹”€ø€À¸Ğ€˜˜µ¥‘‘±”¹İ½É‘ÍlÁt¹Õ¹‘•É±¥¹”€ğ€À¸Ø¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡µ¥‘‘±”¹İ½É‘ÍlÅt¹¡…É…Ñ•ÉÍlÁt¹Ù¥Í¥‰±”°™…±Í”¤ì)ô¤ì()Ñ•ÍĞ ÀÈƒ¦Vÿ’â·šZ–ş¦†ï–¶c–r£–£šZ–º3šVÓ–>¿¢jš^Û–"ï¾ò3’âS¢B÷–r£–îë¢º»š^Û¦Vÿ’æ/–œ°€ ¤€ôøì(€½¹ÍĞÑ•áĞ€ô€Ÿ¢şgšb¿’â’â«šÊ‡šr'–"¢¾7j¦Vÿ’â·šZ–>—–¶CR£šv—¦ª3¢¾¢¾7î–*£šV#’â7’òk¢º§šZ–¶_šbû’ë’â7–£¢3š>C–&7¦–rëjš–Ôœì(€½¹ÍĞÁ…É…µ•Ñ•ÉÌ€ô‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì İ½É‘U¹‘•É±¥¹”œ°Ñ•áĞ¤ì(€½¹ÍĞÍ•ÑÑ¥¹Ì€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½Ñ¥½¸è€İ½É‘U¹‘•É±¥¹”œ°µ½Ñ¥½¹M•ÑÑ¥¹ÌèÁ…É…µ•Ñ•ÉÌô¤ì(€½¹ÍĞÑ½Ñ…°€ôµ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸ İ½É‘U¹‘•É±¥¹”œ°Ñ•áĞ°Á…É…µ•Ñ•ÉÌ¤ì(€½¹ÍĞÁ±…¸€ôİ½É‘A¡…Í•A±…¸¡Á…É…µ•Ñ•ÉÌ°Ñ•áĞ¤ì(€½¹ÍĞÑ½Ñ…±¡…ÉÌ€ôÉ…Á¡•µ•Ì¡Ñ•áĞ¤¹±•¹Ñ ì(€±•Ğ™Õ±±É…µ”€ô€´Äì(€™½È€¡±•ĞÑ¥µ”€ô€ÀìÑ¥µ”€ğôÑ½Ñ…°€¬€ÔÀÀìÑ¥µ”€¬ô€ÄÀ¤ì(€€€½¹ÍĞ™É…µ”€ô•Ù…±Õ…Ñ•Q•áÑ™™•Ğ¡Í•ÑÑ¥¹Ì°Ñ•áĞ°Ñ¥µ”¤ì(€€€½¹ÍĞÙ¥Í¥‰±”€ô™É…µ”¹İ½É‘Ì¹™±…Ñ5…À ¡İ½É¤€ôøİ½É¹¡…É…Ñ•ÉÌ¤¹™¥±Ñ•È ¡¥Ñ•´¤€ôø¥Ñ•´¹Ù¥Í¥‰±”¤¹±•¹Ñ ì(€€€¥˜€¡Ù¥Í¥‰±”€ôôôÑ½Ñ…±¡…ÉÌ€˜˜™É…µ”¹½Á…¥Ñä€ôôô€Ä¤ì™Õ±±É…µ”€ôÑ¥µ”ì‰É•…¬ìô(€ô(€…ÍÍ•ÉĞ¹½¬¡™Õ±±É…µ”€øô€À°€Ÿ–:òë¦fß¾òk¦Vÿ’â·šZšbû–"Ã’â–6+–ÂÇ¦–rë¾ò3’î;šr«–º3šVÓšbû’èœ¤ì(€…ÍÍ•ÉĞ¹½¬¡Á±…¸¹½µÁ±•Ñ•Ğ€øôÁ±…¸¹İ½É‘Ì¹…Ğ ´Ä¤¹ÑåÁ•‘Ğ°€Ÿ¦–rë’â7–ú_š^§’ê;šr–B;’â’â«–¶_šbû:Ã–º0œ¤ì(€…ÍÍ•ÉĞ¹½¬¡™Õ±±É…µ”€ğÑ½Ñ…°°€Ÿ–º3šVÓšbû’ë–ş¦†ï–>GR–r£–îë¢º»š^Û¦Vÿ’æ/–œ¤ì)ô¤ì()Ñ•ÍĞ ÀÈƒ–îë¢º»š^Û¦Vÿ’â;šâËš~O–òWR£–B3’â’î÷¢¾7î¦bÛšº×¢º‡º\œ°€ ¤€ôøì(€½¹ÍĞÁ…É…µ•Ñ•ÉÌ€ôìİ½É‘ÍQ•áĞè€Ÿšb;–’¤€¼ƒVg’ö<€¼ƒ¢ºÃ–şœ°ÍÑ…ÉÑ5Ìè€À°İ½É‘ÕÉ…Ñ¥½¹5Ìè€ĞÀÀ°¡…ÉMÑ•Á5Ìè€ÜÀ°Õ¹‘•É±¥¹•Q¡¥­¹•ÍÌè€È°¡½±‘5Ìè€ÄÈÀÀ°•á¥Ñ5Ìè€ÌÀÀôì(€½¹ÍĞÁ±…¸€ôİ½É‘A¡…Í•A±…¸¡Á…É…µ•Ñ•ÉÌ°€Ÿšb;–’§Vg’ö?¢ºÃ–şœ¤ì(€…ÍÍ•ÉĞ¹•ÅÔV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅæÂ†Ö–æ–×VÔÖ÷F–öäGW&F–öâ‚wv÷&EVæFW&Æ–æRrÂ~iˆîZJyYKØşŠë[øbrÂ&ÖWFW'2’ÂÆâçF÷FÂ“°¢76W'BæWVÂ‡Æâæ6ö×ÆWFTBÂ2¢CÂ~jøşŠøŞ˜;Şi‹î[é~ZèÎi{nhÈjøşŠøÒC×2{JşŠêûÈÎXéşiÈŠÎK‹®KˆŞXù‚r“°¢6öç7B6WGF–æw2ÒFVfVÇE6WGF–æw2‡²Ö÷F–öã¢wv÷&EVæFW&Æ–æRrÂÖ÷F–öå6WGF–æw3¢&ÖWFW'2Ò“°¢6öç7BDW†—BÒWfÇVFUFW‡DVffV7B‡6WGF–æw2Â~iˆîZJyYKØşŠë[øbrÂÆâæW†—DB“°¢76W'BæWVÂ†DW†—Bæ÷6—G’ÂÂ~˜YË®[ÈZx¾˜*>KˆX‹¾K¸Ş[©NZèÎXZKˆŞ˜şiˆâr“°¢76W'Bæö²†DW†—Bçv÷&G2æWfW'’‚‡v÷&B’Óâv÷&Bæ6†&7FW'2æWfW'’‚†—FVÒ’Óâ—FVÒçf—6–&ÆR’’“°§Ò“° §FW7B‚tC"™[şŠøŞ[»n™[şXÚKØŞ[›nh¨®Yî{ºŞŠøŞYîz{¾ûÈÎyúŞŠøŞ‹[~Zx¾i{n™{NKˆŞXù‚rÂ‚’Óâ°¢6öç7B6†÷'BÒv÷&E†6UÆâ‡²v÷&G5FW‡C¢~iˆîZJ’òyYKØòrÂ7F'D×3¢Âv÷&DGW&F–öä×3¢CÂ6†%7FW×3¢sÒÂ~iˆîZJyYKØòr“°¢76W'BæWVÂ‡6†÷'Bçv÷&G5³Òç7F'BÂC“°¢6öç7BÆöærÒv÷&E†6UÆâ‡²v÷&G5FW‡C¢~zÊÎKˆjë^[è™[şy¨NKŠŞihròyúÒrÂ7F'D×3¢Âv÷&DGW&F–öä×3¢CÂ6†%7FW×3¢sÒÂ~zÊÎKˆjë^[è™[şy¨NKŠŞih~yúÒr“°¢76W'BæWVÂ†Æöærçv÷&G5³Òç7âÂr¢sÂ~™[şŠøŞXÚKØŞzØK¨îiÈYîKˆKŠ®ZÙ~i‹îxëh˜™Èy¨NZÙ~™{N™©Nh¾i[r“°¢76W'Bæö²†Æöærçv÷&G5³Òç7F'BâCÂ~Yî{ºŞŠøŞ[ø^š¾i[NKÙ>Yîz{²r“°§Ò“° §FW7B‚tC"ŠøŞ{¸Nih~iÊÎKˆîjÚ>ih~KˆŞKˆˆ{Ni{nY¹î˜i[NXú^ûÈÎK‰Nk.XÎKˆŞiKXiXø.i[rÂ‚’Óâ°¢6öç7BÆâÒv÷&E†6UÆâ‡²v÷&G5FW‡C¢~ZèÎXZKˆŞy»X[>y¨NŠøÒrÂ7F'D×3¢Âv÷&DGW&F–öä×3¢CÂ6†%7FW×3¢sÒÂ~iˆîZJyYKØşŠë[øbr“°¢76W'BæWVÂ‡Æâçv÷&G2æÆVæwF‚Â“°¢76W'BæWVÂ‡Æâçv÷&G5³ÒçFW‡BÂ~iˆîZJyYKØşŠë[øbr“°¢6öç7B&ÖWFW'2Ò²v÷&G5FW‡C¢rrÂ7F'D×3¢Âv÷&DGW&F–öä×3¢CÂ6†%7FW×3¢sÂ†öÆD×3¢#ÂW†—D×3¢3Ó°¢6öç7B6æ6†÷BÒ¥4ôâç7G&–æv–g’‡&ÖWFW'2“°¢76W'BæWVÂ„¥4ôâç7G&–æv–g’‡v÷&E†6UÆâ‡&ÖWFW'2Â~˜xŞZHŞk.[Šrr’’Â¥4ôâç7G&–æv–g’‡v÷&E†6UÆâ‡&ÖWFW'2Â~˜xŞZHŞk.[Šrr’’“°¢76W'BæWVÂ„¥4ôâç7G&–æv–g’‡&ÖWFW'2’Â6æ6†÷B“°§Ò“° §FW7B‚tC2X[>™JîŠøŞXú®YÊiÈYîKˆKŠ®ZÙ~ZèÎh‰YîX{®xëXøŞˆ›.j~ŠërÂ‚’Óâ°¢6öç7B6WGF–æw2ÒFVfVÇE6WGF–æw2‡²Ö÷F–öã¢v¶W—v÷&D6†—rÂÖ÷F–öå6WGF–æw3¢²¶W—v÷&G5FW‡C¢~Šë[øbrÂ7F'D×3¢Â6†%7FW×3¢#Â6†—FF–æs¢rÂ6†—6öÆ÷#¢r3#S&##brÂ6†—FW‡D6öÆ÷#¢r6ffc†V"rÒÒ“°¢76W'BæWVÂ†WfÇVFUFW‡DVffV7B‡6WGF–æw2Â~KùŞyYŠë[øbrÂC’æ¶W—v÷&G5³Òæ6ö×ÆWFRÂfÇ6R“°¢76W'BæWVÂ†WfÇVFUFW‡DVffV7B‡6WGF–æw2Â~KùŞyYŠë[øbrÂc’æ¶W—v÷&G5³Òæ6ö×ÆWFRÂG'VR“°§Ò“° §FW7B‚tCBiJşhÈˆz®xKnŠúŞ[¨şy¨NKˆZûZI®iŠ[NûÈÎ[›nhÈi{n™{Nhê‹ù¾‹ùî{«òrÂ‚’Óâ°¢6öç7B6WGF–æw2ÒFVfVÇE6WGF–æw2‡²Ö÷F–öã¢wG&ç6ÆF–öåv—&W2rÂÖ÷F–öå6WGF–æw3¢²VævÆ—6…FW‡C¢wvR¶VWÖVÖ÷'’rÂ6†–æW6UFW‡C¢~h‰KºÂòyYKØòò‹ùjë^Šë[øbrÂÖ–æuFW‡C¢~h‰KºÃ§vUÆîyYKØó¦¶VWÆî‹ùjë^Šë[øc¦¶VWÆÖVÖ÷'’rÂ7F'D×3¢ÂÆ–æTw&÷t×3¢#Â†öÆD×3¢ÂW†—D×3¢#ÒÒ“°¢6öç7Bg&ÖRÒWfÇVFUFW‡DVffV7B‡6WGF–æw2ÂwvR¶VWÖVÖ÷'’rÂ“°¢76W'BæWVÂ†g&ÖRçG&ç6ÆF–öâçF&vWEv÷&G5³ÒÂ~h‰KºÂr“°¢76W'BæWVÂ†g&ÖRçG&ç6ÆF–öâæÖ–æw5³%Òç6÷W&6T–æFW†W2æÆVæwF‚Â"“°¢76W'BæWVÂ†g&ÖRçG&ç6ÆF–öâæÆ–æU&öw&W72ÂãR“°§Ò“° §FW7B‚tCRYÊXÎšşYîyÉşy¨N{ÊyúŞˆØz‹şûÈÎXhŞK¸îYÎKˆK¨¾K»ni{n™{N˜xŞ[»®iKXiih~iÊÂrÂ‚’Óâ°¢6öç7B6WGF–æw2ÒFVfVÇE6WGF–æw2‡²Ö÷F–öã¢w&Ww&—FRrÂÖ÷F–öå6WGF–æw3¢²G&gEFW‡C¢~h‰h;>ŠûNkˆ^jY¢rÂ&Ww&—FUFW‡C¢~h‰h;>XXY
-ÎKÚŠûN8"rÂ7F'D×3¢ÂW6T×3¢SÂFVÆWFT6÷VçC¢2ÂG—T73¢Â&6·76T73¢Â†öÆD×3¢#ÒÒ“°¢6öç7BG&gBÒWfÇVFUFW‡DVffV7B‡6WGF–æw2Â~jÚ>ih~KˆŞŠ*¾iKXi’rÂs’çf—6–&ÆUFW‡C°¢6öç7BFVÆWFVBÒWfÇVFUFW‡DVffV7B‡6WGF–æw2Â~jÚ>ih~KˆŞŠ*¾iKXi’rÂ’çf—6–&ÆUFW‡C°¢6öç7B&Ww&—GFVâÒWfÇVFUFW‡DVffV7B‡6WGF–æw2Â~jÚ>ih~KˆŞŠ*¾iKXi’rÂ3’çf—6–&ÆUFW‡C°¢76W'BæWVÂ†G&gBÂ~h‰h;>ŠûNkˆ^jY¢r“°¢76W'Bæö²†FVÆWFVBæÆVæwF‚ÂG&gBæÆVæwF‚“°¢76W'BæWVÂ‡&Ww&—GFVâÂ~h‰h;>XXY
-ÎKÚŠûN8"r“°§Ò“° §FW7B‚tCbhÈiz~Xú^8{ª.{«ş8iKnhº.8ikXú^š®[¨şkÉNX{¢rÂ‚’Óâ°¢6öç7B6WGF–æw2ÒFVfVÇE6WGF–æw2‡²Ö÷F–öã¢w7G&–¶U&Ww&—FRrÂÖ÷F–öå6WGF–æw3¢²öÆEFW‡C¢~XXKˆ¾{¹>Šë®8"rÂæWuFW‡C¢~XXjZûŠøhÚî8"rÂ7G&–¶TD×3¢SÂ7G&–¶TG&t×3¢Â7G&–¶T†öÆD×3¢3Â6öÆÆ6T×3¢ÂG—T73¢Â†öÆD×3¢Â7G&–¶T6öÆ÷#¢r6#ƒFC2rÒÒ“°¢76W'BæWVÂ†WfÇVFUFW‡DVffV7B‡6WGF–æw2Â~jÚ>ihrrÂC’ç7G&–¶Uf—6–&ÆRÂfÇ6R“°¢76W'BæWVÂ†WfÇVFUFW‡DVffV7B‡6WGF–æw2Â~jÚ>ihrrÂSS’ç7G&–¶U&öw&W72ÂãR“°¢76W'BæWVÂ†WfÇVFUFW‡DVffV7B‡6WGF–æw2Â~jÚ>ihrrÂ’ææWuf—6–&ÆRÂG'VR“°¢76W'BæWVÂ†WfÇVFUFW‡DVffV7B‡6WGF–æw2Â~jÚ>ihrrÂS’æöÆD÷6—G’Â“°§Ò“° §FW7B‚tCrKùŞyYXéşKØŞY(ÎKùŞhªNyúŞXú^ûÈÎKÛşyJZÙ~{JXø®Y»®Zé®zxŞZÙhš~ŠÎiÊ¾Xú^˜jÂrÂ‚’Óâ°¢76W'BæFVWWVÂ†w&†VÖW2‚	ù(ß	ù(ß	ù~(ß	ùfUÇS3r’Â²	ù(ß	ù(ß	ù~(ß	ùbrÂv\ÈuÒ“°¢6öç7B6WGF–æw2ÒFVfVÇE6WGF–æw2‡²Ö÷F–öã¢vWf÷&FRrÂÖ÷F–öå6WGF–æw3¢²6VVC¢3Â&÷FV7FVEFW‡C¢~K¸ŞxKnŠë[é~8"rÂWf÷&F–öå7F'D×3¢ÂWf÷&F–öäVæD×3¢Âf–æÄ†öÆD×3¢Â&6·76TGW&F–öä×3¢ÒÒ“°¢6öç7BÖ–FFÆRÒWfÇVFUFW‡DVffV7B‡6WGF–æw2Â~˜~ZKy¨Nx˜~jë^8%ÆîK¸ŞxKnŠë[é~8"rÂS“°¢6öç7B&WVBÒWfÇVFUFW‡DVffV7B‡6WGF–æw2Â~˜~ZKy¨Nx˜~jë^8%ÆîK¸ŞxKnŠë[é~8"rÂS“°¢76W'BæFVWWVÂ†Ö–FFÆRÂ&WVB“°¢76W'Bæö²†Ö–FFÆRæ6†&1ZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{\œËœÛXÙJMJK™]™\J
-][JHOˆ][Kš\ÚX›JJNÂˆ\ÜÙ\›ÚÊZYK˜Ú\˜Xİ\œËœÛÛYJ
-][JHOˆZ][Kš\ÚX›JJNÂˆÛÛœİ[™H]˜[X]U^Y™™Xİ
-Ù][™ÜË	ú`eùi,yæ¡9âaù«­xà —¹.ãyá-º+¬9o¥øà ‰ËŒ
-NÂˆ\ÜÙ\›ÚÊ[™˜Ú\˜Xİ\œË™]™\J
-][JHOˆZ][Kš\ÚX›JJNÂŸJNÂ
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { defaultSettings, validateCueSettings } from '../src/domain/model/document.mjs';
+import { defaultMotionSettings, evaluateTextEffect, graphemes, minimumMotionDuration, MOTION_PRESETS, wordPhasePlan } from '../src/motion/effects.mjs';
+import { fromEditorContent, toEditorContent } from '../src/editor/story-editor.ts';
+
+test('æ–‡å­—æ•ˆæœå‚æ•°ä»¥å…¼å®¹æ–¹å¼ä¿å­˜åœ¨æ¼”å‡ºè®¾ç½®ä¸­ï¼Œæ—§åŠ¨æ•ˆä»å¯éªŒè¯', () => {
+  const old = defaultSettings({ motion: 'shake' });
+  assert.equal(validateCueSettings(old), undefined);
+  const settings = defaultSettings({ motion: 'decode', motionSettings: defaultMotionSettings('decode', 'ä½ å¥½') });
+  assert.equal(validateCueSettings(settings), undefined);
+  const document = { type: 'doc', blocks: [{ type: 'paragraph', id: 'p1', children: [{ type: 'cue', id: 'cue1', settings, children: [{ type: 'text', text: 'ä½ å¥½' }] }] }] };
+  assert.deepEqual(fromEditorContent(toEditorContent(document)), document);
+  assert.throws(() => validateCueSettings(defaultSettings({ motion: 'decode', motionSettings: { seed: 'éšæœº' } })), /seed/);
+  assert.throws(() => validateCueSettings(defaultSettings({ motion: 'typing', motionSettings: { secret: 'ignored' } })), /ä¸é€‚ç”¨äº/);
+  assert.throws(() => validateCueSettings(defaultSettings({ motion: 'evaporate', motionSettings: { evaporationStartMs: 400, evaporationEndMs: 300 } })), /ç»“æŸæ—¶é—´å¿…é¡»æ™šäºå¼€å§‹æ—¶é—´/);
+  assert.throws(() => validateCueSettings(defaultSettings({ motion: 'unknown' })), /åŠ¨æ•ˆ/);
+  assert.ok(MOTION_PRESETS.length >= 12);
+});
+
+test('D01 åªçŸ­æš‚æ›¿æ¢æ–°å­—ï¼Œå›ºå®šç§å­ä¸‹ä»»æ„æ—¶é—´æ±‚å€¼ä¸€è‡´', () => {
+  const settings = defaultSettings({ motion: 'decode', motionSettings: { seed: 91, startMs: 0, charStepMs: 100, settleMs: 80, holdMs: 1000, exitMs: 300 } });
+  const first = evaluateTextEffect(settings, 'è§£ç  A', 40);
+  const repeated = evaluateTextEffect(settings, 'è§£ç  A', 40);
+  assert.deepEqual(first, repeated);
+  assert.notEqual(first.characters[0].glitch, null);
+  assert.equal(first.characters[0].text, 'è§£');
+  assert.equal(evaluateTextEffect(settings, 'è§£ç  A', 500).characters[0].glitch, null);
+  assert.equal(evaluateTextEffect(settings, 'è§£ç  A', 0).characters[1].visible, false);
+});
+
+test('æ™®é€šæ‰“å­—å’Œæ¨¡ç³Šå˜æ¸…æ™°éƒ½æ˜¯æ—¶é—´é©±åŠ¨çš„å•è°ƒæ•ˆæœ', () => {
+  const typing = evaluateTextEffect(defaultSettings({ motion: 'typing', motionSettings: { startMs: 0, charStepMs: 100 } }), 'ç”²ä¹™ä¸™', 100);
+  assert.equal(typing.characters.filter((item) => item.visible).length, 2);
+  const blur = defaultSettings({ motion: 'blurSharp', motionSettings: { strength: 1, clearMs: 500 } });
+  assert.equal(evaluateTextEffect(blur, 'æ¸…æ™°', 0).blurPx, 10);
+  assert.equal(evaluateTextEffect(blur, 'æ¸…æ™°', 500).blurPx, 0);
+});
+
+test('D02 è¯ç»„ä¾æ¬¡æ˜¾ç¤ºå¹¶è®©æ‰«çº¿è¿›åº¦éšå½“å‰è¯æ—¶é—´ç”Ÿé•¿', () => {
+  const settings = defaultSettings({ motion: 'wordUnderline', motionSettings: { wordsText: 'æ˜å¤© / ç•™ä½ / è®°å¿†', startMs: 0, wordDurationMs: 400, charStepMs: 70, underlineThickness: 2, holdMs: 1200, exitMs: 300 } });
+  const start = evaluateTextEffect(settings, 'æ˜å¤©ç•™ä½è®°å¿†', 0);
+  const middle = evaluateTextEffect(settings, 'æ˜å¤©ç•™ä½è®°å¿†', 200);
+  assert.equal(start.words[0].underline, 0);
+  assert.ok(middle.words[0].underline > 0.4 && middle.words[0].underline < 0.6);
+  assert.equal(middle.words[1].characters[0].visible, false);
+});
+
+test('D02 é•¿ä¸­æ–‡å¿…é¡»å­˜åœ¨å…¨æ–‡å®Œæ•´å¯è§çš„æ—¶åˆ»ï¼Œä¸”è½åœ¨å»ºè®®æ—¶é•¿ä¹‹å†…', () => {
+  const text = 'è¿™æ˜¯ä¸€ä¸ªæ²¡æœ‰åˆ†è¯çš„é•¿ä¸­æ–‡å¥å­ç”¨æ¥éªŒè¯è¯ç»„åŠ¨æ•ˆä¸ä¼šè®©æ–‡å­—æ˜¾ç¤ºä¸å…¨è€Œæå‰é€€åœºçš„æƒ…å†µ';
+  const parameters = defaultMotionSettings('wordUnderline', text);
+  const settings = defaultSettings({ motion: 'wordUnderline', motionSettings: parameters });
+  const total = minimumMotionDuration('wordUnderline', text, parameters);
+  const plan = wordPhasePlan(parameters, text);
+  const totalChars = graphemes(text).length;
+  let fullFrame = -1;
+  for (let time = 0; time <= total + 500; time += 10) {
+    const frame = evaluateTextEffect(settings, text, time);
+    const visible = frame.words.flatMap((word) => word.characters).filter((item) => item.visible).length;
+    if (visible === totalChars && frame.opacity === 1) { fullFrame = time; break; }
+  }
+  assert.ok(fullFrame >= 0, 'åŸç¼ºé™·ï¼šé•¿ä¸­æ–‡æ˜¾åˆ°ä¸€åŠå°±é€€åœºï¼Œä»æœªå®Œæ•´æ˜¾ç¤º');
+  assert.ok(plan.completeAt >= plan.words.at(-1).typedAt, 'é€€åœºä¸å¾—æ—©äºæœ€åä¸€ä¸ªå­—æ˜¾ç°å®Œ');
+  assert.ok(fullFrame < total, 'å®Œæ•´æ˜¾ç¤ºå¿…é¡»å‘ç”Ÿåœ¨å»ºè®®æ—¶é•¿ä¹‹å†…');
+});
+
+test('D02 å»ºè®®æ—¶é•¿ä¸æ¸²æŸ“å¼•ç”¨åŒä¸€ä»½è¯ç»„é˜¶æ®µè®¡ç®—', () => {
+  const parameters = { wordsText: 'æ˜å¤© / ç•™ä½ / è®°å¿†', startMs: 0, wordDurationMs: 400, charStepMs: 70, underlineThickness: 2, holdMs: 1200, exitMs: 300 };
+  const plan = wordPhasePlan(parameters, 'æ˜å¤©ç•™ä½è®°å¿†');
+  assert.equal(minimumMotionDuration('wordUnderline', 'æ˜å¤©ç•™ä½è®°å¿†', parameters), plan.total);
+  assert.equal(plan.completeAt, 3 * 400, 'æ¯è¯éƒ½æ˜¾å¾—å®Œæ—¶æŒ‰æ¯è¯ 400ms ç´¯è®¡ï¼ŒåŸæœ‰è¡Œä¸ºä¸å˜');
+  const settings = defaultSettings({ motion: 'wordUnderline', motionSettings: parameters });
+  const atExit = evaluateTextEffect(settings, 'æ˜å¤©ç•™ä½è®°å¿†', plan.exitAt);
+  assert.equal(atExit.opacity, 1, 'é€€åœºå¼€å§‹é‚£ä¸€åˆ»ä»åº”å®Œå…¨ä¸é€æ˜');
+  assert.ok(atExit.words.every((word) => word.characters.every((item) => item.visible)));
+});
+
+test('D02 é•¿è¯å»¶é•¿å ä½å¹¶æŠŠåç»­è¯åç§»ï¼ŒçŸ­è¯èµ·å§‹æ—¶é—´ä¸å˜', () => {
+  const short = wordPhasePlan({ wordsText: 'æ˜å¤© / ç•™ä½', startMs: 0, wordDurationMs: 400, charStepMs: 70 }, 'æ˜å¤©ç•™ä½');
+  assert.equal(short.words[1].start, 400);
+  const long = wordPhasePlan({ wordsText: 'ç¬¬ä¸€æ®µå¾ˆé•¿çš„ä¸­æ–‡ / çŸ­', startMs: 0, wordDurationMs: 400, charStepMs: 70 }, 'ç¬¬ä¸€æ®µå¾ˆé•¿çš„ä¸­æ–‡çŸ­');
+  assert.equal(long.words[0].span, 7 * 70, 'é•¿è¯å ä½ç­‰äºæœ€åä¸€ä¸ªå­—æ˜¾ç°æ‰€éœ€çš„å­—é—´éš”æ€»æ•°');
+  assert.ok(long.words[1].start > 400, 'åç»­è¯å¿…é¡»æ•´ä½“åç§»');
+});
+
+test('D02 è¯ç»„æ–‡æœ¬ä¸æ­£æ–‡ä¸ä¸€è‡´æ—¶å›é€€æ•´å¥ï¼Œä¸”æ±‚å€¼ä¸æ”¹å†™å‚æ•°', () => {
+  const plan = wordPhasePlan({ wordsText: 'å®Œå…¨ä¸ç›¸å…³çš„è¯', startMs: 0, wordDurationMs: 400, charStepMs: 70 }, 'æ˜å¤©ç•™ä½è®°å¿†');
+  assert.equal(plan.words.length, 1);
+  assert.equal(plan.words[0].text, 'æ˜å¤©ç•™ä½è®°å¿†');
+  const parameters = { wordsText: '', startMs: 0, wordDurationMs: 400, charStepMs: 70, holdMs: 1200, exitMs: 300 };
+  const snapshot = JSON.stringify(parameters);
+  assert.equal(JSON.stringify(wordPhasePlan(parameters, 'é‡å¤æ±‚å¸§')), JSON.stringify(wordPhasePlan(parameters, 'é‡å¤æ±‚å¸§')));
+  assert.equal(JSON.stringify(parameters), snapshot);
+});
+
+test('D03 å…³é”®è¯åªåœ¨æœ€åä¸€ä¸ªå­—å®Œæˆåå‡ºç°åè‰²æ ‡è®°', () => {
+  const settings = defaultSettings({ motion: 'keywordChip', motionSettings: { keywordsText: 'è®°å¿†', startMs: 0, charStepMs: 200, chipPadding: 7, chipColor: '#252b26', chipTextColor: '#fff8eb' } });
+  assert.equal(evaluateTextEffect(settings, 'ä¿ç•™è®°å¿†', 400).keywords[0].complete, false);
+  assert.equal(evaluateTextEffect(settings, 'ä¿ç•™è®°å¿†', 600).keywords[0].complete, true);
+});
+
+test('D04 æ”¯æŒè‡ªç„¶è¯­åºçš„ä¸€å¯¹å¤šæ˜ å°„ï¼Œå¹¶æŒ‰æ—¶é—´æ¨è¿›è¿çº¿', () => {
+  const settings = defaultSettings({ motion: 'translationWires', motionSettings: { englishText: 'we keep memory', chineseText: 'æˆ‘ä»¬ / ç•™ä½ / è¿™æ®µè®°å¿†', mappingText: 'æˆ‘ä»¬:we\nç•™ä½:keep\nè¿™æ®µè®°å¿†:keep,memory', startMs: 0, lineGrowMs: 200, holdMs: 1000, exitMs: 200 } });
+  const frame = evaluateTextEffect(settings, 'we keep memory', 100);
+  assert.equal(frame.translation.targetWords[0], 'æˆ‘ä»¬');
+  assert.equal(frame.translation.mappings[2].sourceIndexes.length, 2);
+  assert.equal(frame.translation.lineProgress, 0.5);
+});
+
+test('D05 åœ¨åœé¡¿åçœŸçš„ç¼©çŸ­è‰ç¨¿ï¼Œå†ä»åŒä¸€äº‹ä»¶æ—¶é—´é‡å»ºæ”¹å†™æ–‡æœ¬', () => {
+  const settings = defaultSettings({ motion: 'rewrite', motionSettings: { draftText: 'æˆ‘æƒ³è¯´æ¸…æ¥š', rewriteText: 'æˆ‘æƒ³å…ˆå¬ä½ è¯´ã€‚', startMs: 0, pauseMs: 500, deleteCount: 3, typeCps: 10, backspaceCps: 10, holdMs: 1200 } });
+  const draft = evaluateTextEffect(settings, 'æ­£æ–‡ä¸è¢«æ”¹å†™', 700).visibleText;
+  const deleted = evaluateTextEffect(settings, 'æ­£æ–‡ä¸è¢«æ”¹å†™', 1100).visibleText;
+  const rewritten = evaluateTextEffect(settings, 'æ­£æ–‡ä¸è¢«æ”¹å†™', 3000).visibleText;
+  assert.equal(draft, 'æˆ‘æƒ³è¯´æ¸…æ¥š');
+  assert.ok(deleted.length < draft.length);
+  assert.equal(rewritten, 'æˆ‘æƒ³å…ˆå¬ä½ è¯´ã€‚');
+});
+
+test('D06 æŒ‰æ—§å¥ã€çº¢çº¿ã€æ”¶æ‹¢ã€æ–°å¥é¡ºåºæ¼”å‡º', () => {
+  const settings = defaultSettings({ motion: 'strikeRewrite', motionSettings: { oldText: 'å…ˆä¸‹ç»“è®ºã€‚', newText: 'å…ˆæ ¸å¯¹è¯æ®ã€‚', strikeAtMs: 500, strikeDrawMs: 100, strikeHoldMs: 300, collapseMs: 100, typeCps: 10, holdMs: 1000, strikeColor: '#b84a43' } });
+  assert.equal(evaluateTextEffect(settings, 'æ­£æ–‡', 400).strikeVisible, false);
+  assert.equal(evaluateTextEffect(settings, 'æ­£æ–‡', 550).strikeProgress, 0.5);
+  assert.equal(evaluateTextEffect(settings, 'æ­£æ–‡', 1000).newVisible, true);
+  assert.equal(evaluateTextEffect(settings, 'æ­£æ–‡', 1500).oldOpacity, 0);
+});
+
+test('D07 ä¿ç•™åŸä½å’Œä¿æŠ¤çŸ­å¥ï¼Œä½¿ç”¨å­—ç´ åŠå›ºå®šç§å­æ‰§è¡Œæœ«å¥é€€æ ¼', () => {
+  assert.deepEqual(graphemes('ğŸ‘¨â€ğŸ‘©â€ğŸ‘§â€ğŸ‘¦e\u0301'), ['ğŸ‘¨â€ğŸ‘©â€ğŸ‘§â€ğŸ‘¦', 'eÌ']);
+  const settings = defaultSettings({ motion: 'evaporate', motionSettings: { seed: 31, protectedText: 'ä»ç„¶è®°å¾—ã€‚', evaporationStartMs: 0, evaporationEndMs: 1000, finalHoldMs: 0, backspaceDurationMs: 1000 } });
+  const middle = evaluateTextEffect(settings, 'é—å¤±çš„ç‰‡æ®µã€‚\nä»ç„¶è®°å¾—ã€‚', 500);
+  const repeat = evaluateTextEffect(settings, 'é—å¤±çš„ç‰‡æ®µã€‚\nä»ç„¶è®°å¾—ã€‚', 500);
+  assert.deepEqual(middle, repeat);
+  assert.ok(middle.characters.slice(-5).every((item) => item.visible));
+  assert.ok(middle.characters.some((item) => !item.visible));
+  const end = evaluateTextEffect(settings, 'é—å¤±çš„ç‰‡æ®µã€‚\nä»ç„¶è®°å¾—ã€‚', 2000);
+  assert.ok(end.characters.every((item) => !item.visible));
+});

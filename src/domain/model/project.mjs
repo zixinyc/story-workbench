@@ -1,13 +1,167 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞìµ…­•%°‘•™…Õ±ÑM•ÑÑ¥¹Ì°Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì°Ù…±¥‘…Ñ•½Õµ•¹Ğô™É½´€œ¸½‘½Õµ•¹Ğ¹µ©Ìœì)¥µÁ½ÉĞìµÕÍ¥I…¹•A…É…É…Á¡%‘Ìô™É½´€œ¸½¡…ÁÑ•ÉÌ¹µ©Ìœì()•áÁ½ÉĞ½¹ÍĞM!5}YIM%=8€ô€Èì()½¹ÍĞ‘•µ½1¥¹•Ì€ôl(€lŸ–ššzs¢¾ÓÎïîrj–¶c–r£’ê;¢şg’â«’â[V3’â+j¢¾w¾ò3¦
-–º’â–ºk’â7’òkšb¿¢şgš‚ß–¶Ct°(€lŸ’öƒ¢şcšÊ‡š–"Ã–ò–âã–B_¾ò|œ°ìµ½‘”è€‘¥…±½Õ”œ°ÍÁ•…­•Èè€ŸCê‹¢&Ëj¾ò¾òDœ°…‘Ù…¹”è€±¥¬œõt°(€lŸ¢«’î;¢G–¶C¦3ªÛ–ë:Ã¢şg’â«’ş‡š¿–ò–/¾ò0t°(€lŸ–êS–¶CšÆC––÷–?šÒï–r£¢ş–:ï’âš‚ß¾ò0t°(€lŸš¢'’î’æ#¦÷–ŞËî?î?–:¢ş’ê¾ò3–>«šb¿¦7–’7–rÃ–7¢ş’â–’§¢3–ŞËt°(€lŸ–R'¾ò3¢şg–ú«:¿–"Ã–êW’î’æ#š^Û–gšb¿’â«–’Ó¾ò|œ°ìµ½‘”è€™É•”œ°ÍÁ•…­•Èè€ŸCê‹¢&Ëj¾ò¾òDœ°½±½Èè€œ˜ÈÜĞØäœ°™½¹ÑM¥é”è€Ôà°µ½Ñ¥½¸è€É¥Í”œ°…‘Ù…¹”è€Ñ¥µ•œõt°(€lŸ¢¾Ó–º{¢¾w¾ò3¢f÷ÛCê‹G–ŞËî?~—¦On»–&7¢şg’â«’â[V3j¦Ûšz¦Gš&/š2AÁÉ½©•ÓG¾ò3–ŞËî?¢ŞÎïî–Ş»’â7–’k’êt°(€lŸ–>¿¦v‹–¾çš"GŠSŠS–êS–¶CšÆCšv—¢¾Ó¾ò3š"G–>«šb¿’â–B7šf»¦kj–¶›Rö‹’êt°(€lŸ–ššzs¦v‹–¾çšr¯’â[¾ò3šnÓ–’kj–>«šb¿š^ƒ––#–BŸ–×’âS–>¿¢÷¢şcšÊ‡šr¯’â[–F‹t°(€lŸš;’æ#ršr¯’â[’ê¾ò¾ò¾ò¾ò|œ°ìµ½‘”è€™É•”œ°™½¹ÑM¥é”è€ÜĞ°½±½Èè€œ˜ÈÜĞØäœ°µ½Ñ¥½¸è€Í¡…­”œ°…‘Ù…¹”è€Ñ¥µ•œ°‘ÕÉ…Ñ¥½¹5Ìè€ÈØÀÀõt°)tì()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•…Ñ••µ½AÉ½©•Ğ ¤ì(€½¹ÍĞ‰±½­Ì€ô‘•µ½1¥¹•Ì¹µ…À ¡mÑ•áĞ°Í•ÑÑ¥¹Ít¤€ôøì(€€€½¹ÍĞ¥€ôµ…­•% Àœ¤ì(€€€½¹ÍĞÑ•áÑ9½‘”€ôìÑåÁ”è€Ñ•áĞœ°Ñ•áĞôì(€€€É•ÑÕÉ¸ì(€€€€€ÑåÁ”è€Á…É…É…Á œ°(€€€€€¥°(€€€€€¡¥±‘É•¸èÍ•ÑÑ¥¹Ì(€€€€€€€€ümìÑåÁ”è€Õ”œ°¥èµ…­•% Õ”œ¤°Í•ÑÑ¥¹Ìè‘•™…Õ±ÑM•ÑÑ¥¹Ì¡Í•ÑÑ¥¹Ì¤°¡¥±‘É•¸èmÑ•áÑ9½‘•tõt(€€€€€€€€èmÑ•áÑ9½‘•t°(€€€ôì(€ô¤ì(€½¹ÍĞ¡…ÁÑ•È€ôì¥èµ…­•% ¡…ÁÑ•Èœ¤°¹…µ”è€Ÿ²°ÀÇ®€ƒ
-Üƒ–ê?®€œ°‘½Õµ•¹ĞèìÑåÁ”è€‘½Œœ°‰±½­Ìô°É½ÕÁÌèmt°µÕÍ¥I…¹•Ìèmtôì(€É•ÑÕÉ¸ì(€€€Í¡•µ…Y•ÉÍ¥½¸èM!5}YIM%=8°(€€€¥èµ…­•% ÁÉ½©•Ğœ¤°(€€€¹…µ”è€Ÿ–êS–¶CšÆ@ƒ
-Üƒ–ò–rë–ê?®€œ°(€€€…¹Ù…Ìèìİ¥‘Ñ è€ÄäÈÀ°¡•¥¡Ğè€ÄÀàÀô°(€€€…Ñ¥Ù•¡…ÁÑ•É%è¡…ÁÑ•È¹¥°(€€€¡…ÁÑ•ÉÌèm¡…ÁÑ•Ét°(€€€…ÍÍ•ÑÌèmt°(€€€ÕÁ‘…Ñ•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤°(€ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸¹½Éµ…±¥é•AÉ½©•Ñ9…µ”¡¹…µ”¤ì(€½¹ÍĞÙ…±Õ”€ôÑåÁ•½˜¹…µ”€ôôô€ÍÑÉ¥¹œœ€ü¹…µ”¹ÑÉ¥´ ¤€è€œœì(€¥˜€ …Ù…±Õ”¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–B7Ã’â7¢÷’âë¦ëœ¤ì(€¥˜€¡Ù…±Õ”¹±•¹Ñ €ø€ÄÈÀ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–B7Ãšr–’h€ÄÈÀƒ’â«–¶_²›œ¤ì(€É•ÑÕÉ¸Ù…±Õ”ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•¹…µ•AÉ½©•Ğ¡ÁÉ½©•Ğ°¹…µ”¤ì(€É•ÑÕÉ¸ì€¸¸¹ÁÉ½©•Ğ°¹…µ”è¹½Éµ…±¥é•AÉ½©•Ñ9…µ”¡¹…µ”¤°ÕÁ‘…Ñ•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•…Ñ•	±…¹­AÉ½©•Ğ ¤ì(€½¹ÍĞÁÉ½©•Ğ€ôÉ•…Ñ••µ½AÉ½©•Ğ ¤ì(€É•ÑÕÉ¸ì(€€€€¸¸¹ÁÉ½©•Ğ°(€€€¹…µ”è€Ÿšr«–F÷–B7–&Ÿš–Ş—¢,œ°(€€€¡…ÁÑ•ÉÌèÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹µ…À ¡¡…ÁÑ•È¤€ôø€¡ì€¸¸¹¡…ÁÑ•È°¹…µ”è€Ÿ²°ÀÇ®€œ°‘½Õµ•¹ĞèìÑåÁ”è€‘½Œœ°‰±½­Ìèmtôô¤¤°(€ôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸Ù…±¥‘…Ñ•AÉ½©•Ğ¡ÁÉ½©•Ğ¤ì(€¥˜€ …ÁÉ½©•ĞñğÁÉ½©•Ğ¹Í¡•µ…Y•ÉÍ¥½¸€„ôôM!5}YIM%=8¤Ñ¡É½Ü¹•ÜÉÉ½È¡ƒ’â7šR¿š2–Ş—¢/&#šr³¾òh‘íÁÉ½©•Ğü¹Í¡•µ…Y•ÉÍ¥½¸€üü€Ÿšr«~”÷	€¤ì(€¥˜€¡ÑåÁ•½˜ÁÉ½©•Ğ¹¥€„ôô€ÍÑÉ¥¹œœñğ€…ÁÉ½©•Ğ¹¥ñğÑåÁ•½˜ÁÉ½©•Ğ¹¹…µ”€„ôô€ÍÑÉ¥¹œœ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/’ş‡š¿’â7–º3šVÓœ¤ì(€¥˜€ …ÁÉ½©•Ğ¹…¹Ù…ÌñğÁÉ½©•Ğ¹…¹Ù…Ì¹İ¥‘Ñ €„ôô€ÄäÈÀñğÁÉ½©•Ğ¹…¹Ù…Ì¹¡•¥¡Ğ€„ôô€ÄÀàÀ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/Rï–â–Âë–¾ãš^ƒšV#œ¤ì(€¥˜€ …ÉÉ…ä¹¥ÍÉÉ…ä¡ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¤ñğ€…ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹±•¹Ñ ñğÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹±•¹Ñ €ø€ÄÀÀÀ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/®ƒ¢*–"_¢†£š^ƒšV#œ¤ì(€½¹ÍĞ¡…ÁÑ•É%‘Ì€ô¹•ÜM•Ğ ¤ì(€½¹ÍĞ±½‰…±9½‘•%‘Ì€ô¹•ÜM•Ğ ¤ì(€™½È€¡½¹ÍĞ¡…ÁÑ•È½˜ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¤ì(€€€¥˜€¡ÑåÁ•½˜¡…ÁÑ•È¹¥€„ôô€ÍÑÉ¥¹œœñğ€…¡…ÁÑ•È¹¥ñğ¡…ÁÑ•É%‘Ì¹¡…Ì¡¡…ÁÑ•È¹¥¤ñğÑåÁ•½˜¡…ÁÑ•È¹¹…µ”€„ôô€ÍÑÉ¥¹œœñğ€…¡…ÁÑ•È¹¹…µ”¹ÑÉ¥´ ¤ñğ¡…ÁÑ•È¹¹…µ”¹±•¹Ñ €ø€ÄÈÀ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ®ƒ¢*%ƒš"[–B7Ãš^ƒšV#œ¤ì(€€€¡…ÁÑ•É%‘Ì¹…‘¡¡…ÁÑ•È¹¥¤ì(€€€Ù…±¥‘…Ñ•½Õµ•¹Ğ¡¡…ÁÑ•È¹‘½Õµ•¹Ğ¤ì(€€€½±±•Ñ9½‘•%‘Ì¡¡…ÁÑ•È¹‘½Õµ•¹Ğ°±½‰…±9½‘•%‘Ì¤ì(€ô(€¥˜€ …¡…ÁÑ•É%‘Ì¹¡…Ì¡ÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–öO–&7®ƒ¢*–òWR£š^ƒšV#œ¤ì(€¥˜€ …ÉÉ…ä¹¥ÍÉÉ…ä¡ÁÉ½©•Ğ¹…ÍÍ•ÑÌ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/ÒƒšvCšâ–6Wš^ƒšV#œ¤ì(€½¹ÍĞ…ÍÍ•ÑÌ€ô¹•Ü5…À ¤ì(€±•ĞÑ½Ñ…±ÍÍ•Ñ	åÑ•Ì€ô€Àì(€™½È€¡½¹ÍĞ…ÍÍ•Ğ½˜ÁÉ½©•Ğ¹…ÍÍ•ÑÌ¤ì(€€€¥˜€¡ÑåÁ•½˜…ÍÍ•Ğ¹¥€„ôô€ÍÑÉ¥¹œœñğ€……ÍÍ•Ğ¹¥ñğ…ÍÍ•Ğ¹¥¹±•¹Ñ €ø€ÈÀÀñğ…ÍÍ•ÑÌ¹¡…Ì¡…ÍÍ•Ğ¹¥¤ñğÑåÁ•½˜…ÍÍ•Ğ¹¹…µ”€„ôô€ÍÑÉ¥¹œœñğ€……ÍÍ•Ğ¹¹…µ”ñğ…ÍÍ•Ğ¹¹…µ”¹±•¹Ñ €ø€ÈÔÔñğ€…l¥µ…”œ°€…Õ‘¥¼œ°€Ù¥‘•¼œ°€…ÉÑ¥±”œ°€½Ñ¡•Èt¹¥¹±Õ‘•Ì¡…ÍÍ•Ğ¹­¥¹¤ñğÑåÁ•½˜…ÍÍ•Ğ¹µ¥µ”€„ôô€ÍÑÉ¥¹œœñğ€„½ymqÜ¸¬µt­p½mqÜ¸¬µt¬ üèímqÜô¸¬µt¬¤¨¼¹Ñ•ÍĞ¡…ÍÍ•Ğ¹µ¥µ”¤ñğ€…9Õµ‰•È¹¥ÍM…™•%¹Ñ••È¡…ÍÍ•Ğ¹Í¥é”¤ñğ…ÍÍ•Ğ¹Í¥é”€ğ€Àñğ…ÍÍ•Ğ¹Í¥é”€ø€ÄÀÀ€¨€ÄÀÈĞ€¨€ÄÀÈĞ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/ÒƒšvCšâ–6W–2–B¯š^ƒšV#¦†çn»œ¤ì(€€€¥˜€¡…ÍÍ•Ğ¹­¥¹€ôôô€¥µ…”œ€˜˜€……ÍÍ•Ğ¹µ¥µ”¹ÍÑ…ÉÑÍ]¥Ñ  ¥µ…”¼œ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–nû&Òƒšv@5%5ƒÆï–z/š^ƒšV#œ¤ì(€€€¥˜€¡…ÍÍ•Ğ¹­¥¹€ôôô€…Õ‘¥¼œ€˜˜€……ÍÍ•Ğ¹µ¥µ”¹ÍÑ…ÉÑÍ]¥Ñ  …Õ‘¥¼¼œ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¦~Ï¦ŠGÒƒšv@5%5ƒÆï–z/š^ƒšV#œ¤ì(€€€¥˜€¡…ÍÍ•Ğ¹­¥¹€ôôô€Ù¥‘•¼œ€˜˜…ÍÍ•Ğ¹µ¥µ”€„ôô€Ù¥‘•¼½µÀĞœ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢"{–>Ã¢¦ŠGn»–&7–>«šR¿š25@Óœ¤ì(€€€¥˜€¡…ÍÍ•Ğ¹­¥¹€ôôô€…ÉÑ¥±”œ€˜˜€„ ½x¡Ñ•áÑp½ñ…ÁÁ±¥…Ñ¥½¹p½Á‘˜¤¼¹Ñ•ÍĞ¡…ÍÍ•Ğ¹µ¥µ”¤¤¤Ñ¡É½Ü¹•ÜÉÉ½È ŸšZV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅîzº{JiÙÔ”ÔR{¾Yè¾iziX8"r“°¢–b†76WBçv–GF‚ÓÒVæFVf–æVBbb‚çVÖ&W"æ—4f–æ—FR†76WBçv–GF‚’ÇÂ76WBçv–GF‚ÃÒÇÂ76WBçv–GF‚â’’F‡&÷ræWrW'&÷"‚~{JiÙZëŞ[ªniziX8"r“°¢–b†76WBæ†V–v‡BÓÒVæFVf–æVBbb‚çVÖ&W"æ—4f–æ—FR†76WBæ†V–v‡B’ÇÂ76WBæ†V–v‡BÃÒÇÂ76WBæ†V–v‡Bâ’’F‡&÷ræWrW'&÷"‚~{JiÙš¹[ªniziX8"r“°¢F÷FÄ76WD'—FW2³Ò76WBç6—¦S°¢–b‡F÷FÄ76WD'—FW2âS"¢#B¢#B’F‡&÷ræWrW'&÷"‚~[z^zˆ¾{JiÙh¾˜xş‹h^‹ørS"Ô.8"r“°¢76WG2ç6WB†76WBæ–BÂ76WB“°¢Ğ¢f÷"†6öç7B6†FW"öb&ö¦V7Bæ6†FW'2’°¢fÆ–FFT6†FW"†6†FW"Â76WG2“°¢Ğ¢&WGW&âG'VS°§Ğ ¦gVæ7F–öâ6öÆÆV7DæöFT–G2†Fö7VÖVçBÂ–G2’°¢6öç7Bf—6—BÒ†æöFR’Óâ°¢–b†æöFRçG—RÓÓÒw&w&‚rÇÂæöFRçG—RÓÓÒv7VRr’°¢–b†–G2æ†2†æöFRæ–B’’F‡&÷ræWrW'&÷"‚~KˆŞYÎzºˆ¨.K˜¾™{NZÙYÊ˜xŞZHŞy¨Një^‰Şh‰nkÉNX{®XÙ^XX2”N8"r“°¢–G2æFB†æöFRæ–B“°¢Ğ¢æöFRæ6†–ÆG&Vãòæf÷$V6‚‡f—6—B“°¢Ó°¢Fö7VÖVçBæ&Æö6·2æf÷$V6‚‡f—6—B“°§Ğ ¦gVæ7F–öâfÆ–FFT6†FW"†6†FW"Â76WG2’°¢6öç7B&w&„–æFW†W2ÒæWrÖ†6†FW"æFö7VÖVçBæ&Æö6·2æÖ‚†&Æö6²Â–æFW‚’Óâ¶&Æö6²æ–BÂ–æFW…Ò’“°¢6öç7Bw&÷WVBÒæWr6WB‚“°¢6öç7Bw&÷W–G2ÒæWr6WB‚“°¢–b‚'&’æ—4'&’†6†FW"æw&÷W2’ÇÂ6†FW"æw&÷W2æÆVæwF‚â6†FW"æFö7VÖVçBæ&Æö6·2æÆVæwF‚’F‡&÷ræWrW'&÷"‚~jë^‰Ş{¸NX‰~ŠiziX8"r“°¢f÷"†6öç7Bw&÷Wöb6†FW"æw&÷W2’°¢–b‡G—Vöbw&÷Wæ–BÓÒw7G&–ærrÇÂw&÷Wæ–BÇÂw&÷W–G2æ†2†w&÷Wæ–B’ÇÂG—Vöbw&÷WææÖRÓÒw7G&–ærrÇÂw&÷WææÖRçG&–Ò‚’ÇÂw&÷WææÖRæÆVæwF‚â#ÇÂ'&’æ—4'&’†w&÷Wç&w&„–G2’ÇÂw&÷Wç&w&„–G2æÆVæwF‚ÇÂG—Vöbw&÷Wæ6öÆÆ6VBÓÒv&ööÆVâr’F‡&÷ræWrW'&÷"‚~jë^‰Ş{¸N{¹>ièNiziX8"r“°¢w&÷W–G2æFB†w&÷Wæ–B“°¢6öç7B–æFW†W2Òw&÷Wç&w&„–G2æÖ‚†–B’Óâ&w&„–æFW†W2ævWB†–B’“°¢–b†–æFW†W2ç6öÖR‚†–æFW‚’Óâ–æFW‚ÓÓÒVæFVf–æVB’ÇÂ–æFW†W2ç6öÖR‚†–æFW‚’Óâw&÷WVBæ†2†6†FW"æFö7VÖVçBæ&Æö6·5¶–æFW…Òæ–B’’ÇÂ–æFW†W2æB‚Ó’Ò–æFW†W5³Ò²ÓÒ–æFW†W2æÆVæwF‚’F‡&÷ræWrW'&÷"‚~jë^‰Ş{¸N[ø^š¾[É^yJ‹ùî{ºŞK‰NiÊ®˜xŞZHŞ[Ù.{¸Ny¨NjÚ>ih~jë^‰Ş8"r“°¢w&÷Wç&w&„–G2æf÷$V6‚‚†–B’Óâw&÷WVBæFB†–B’“°¢Ğ¢–b‚'&’æ—4'&’†6†FW"æ×W6–5&ævW2’’F‡&÷ræWrW'&÷"‚~ˆ8Îišş™û>K™ˆÈ>Y»NX‰~ŠiziX8"r“°¢6öç7B&ævT–G2ÒæWr6WB‚“°¢6öç7B–çFW'fÇ2ÒµÓ°¢f÷"†6öç7B&ævRöb6†FW"æ×W6–5&ævW2’°¢6öç7B7F'BÒ&w&„–æFW†W2ævWB‡&ævRç7F'E&w&„–B“°¢6öç7BVæBÒ&w&„–æFW†W2ævWB‡&ævRæVæE&w&„–B“°¢6öç7B76WBÒ76WG2ævWB‡&ævRæ76WD–B“°¢6öç7BÖVÖ&W$–G2Ò×W6–5&ævU&w&„–G2†6†FW"Â&ævR“°¢6öç7BÖVÖ&W$–æFW†W2ÒÖVÖ&W$–G2æÖ‚†–B’Óâ&w&„–æFW†W2ævWB†–B’’ç6÷'B‚†Â"’ÓâÒ"“°¢6öç7Bw&÷W–G5fÆ–BÒ&ævRæw&÷W–G2ÓÓÒVæFVf–æVBÇÂ„'&’æ—4'&’‡&ævRæw&÷W–G2’bb&ævRæw&÷W–G2æÆVæwF‚âbbæWr6WB‡&ævRæw&÷W–G2’ç6—¦RÓÓÒ&ævRæw&÷W–G2æÆVæwF‚bb&ævRæw&÷W–G2æWfW'’‚†–B’Óâw&÷W–G2æ†2†–B’’“°¢–b‡G—Vöb&ævRæ–BÓÒw7G&–ærrÇÂ&ævRæ–BÇÂ&ævT–G2æ†2‡&ævRæ–B’ÇÂ76WBÇÂ76WBæ¶–æBÓÒvVF–òrÇÂ7F'BÓÓÒVæFVf–æVBÇÂVæBÓÓÒVæFVf–æVBÇÂ7F'BâVæBÇÂw&÷W–G5fÆ–BÇÂÖVÖ&W$–æFW†W2æÆVæwF‚ÇÂÖVÖ&W$–æFW†W2æBƒ’ÓÒ7F'BÇÂÖVÖ&W$–æFW†W2æB‚Ó’ÓÒVæBÇÂÖVÖ&W$–æFW†W2æB‚Ó’ÒÖVÖ&W$–æFW†W5³Ò²ÓÒÖVÖ&W$–æFW†W2æÆVæwF‚ÇÂçVÖ&W"æ—4f–æ—FR‡&ævRçföÇVÖR’ÇÂ&ævRçföÇVÖRÂÇÂ&ævRçföÇVÖRâÇÂG—Vöb&ævRæÆö÷ÓÒv&ööÆVâr’F‡&÷ræWrW'&÷"‚~ˆ8Îišş™û>K™ˆÈ>Y»Nh‰n{JiÙ[É^yJiziX8"r“°¢&ævT–G2æFB‡&ævRæ–B“°¢–çFW'fÇ2çW6‚…·7F'BÂVæEÒ“°¢Ğ¢–çFW'fÇ2ç6÷'B‚†Â"’Óâ³ÒÒ%³Ò“°¢–b†–çFW'fÇ2ç6öÖR‚†–çFW'fÂÂ–æFW‚’Óâ–æFW‚âbb–çFW'fÅ³ÒÃÒ–çFW'fÇ5¶–æFW‚ÒÕ³Ò’’F‡&÷ræWrW'&÷"‚~ˆ8Îišş™û>K™ˆÈ>Y»NKˆŞˆ;Ş˜xŞXú8"r“°¢–b†6†FW"æFö7VÖVçBæ&Æö6·2ç6öÖR‚†&Æö6²’Óâö&¦V7Bæ†4÷vâ†&Æö6²Âv×W6–5&ævRr’’’°¢f÷"†6öç7B&ævRöb6†FW"æ×W6–5&ævW2’°¢6öç7BW‡V7FVD–G2Ò×W6–5&ævU&w&„–G2†6†FW"Â&ævR“°¢6öç7BW‡V7FVDw&÷W–G2Ò&ævRæw&÷W–G2óòçVÆÃ°¢f÷"†6öç7B–BöbW‡V7FVD–G2’°¢6öç7BÖWFFFÒ6†FW"æFö7VÖVçBæ&Æö6·2æf–æB‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒ–B“òæ×W6–5&ævS°¢–b‚ÖWFFFÇÂÖWFFFæ–BÓÒ&ævRæ–BÇÂÖWFFFæ76WD–BÓÒ&ævRæ76WD–BÇÂÖWFFFçföÇVÖRÓÒ&ævRçföÇVÖRÇÂÖWFFFæÆö÷ÓÒ&ævRæÆö÷ÇÂ¥4ôâç7G&–æv–g’†ÖWFFFæw&÷W–G2óòçVÆÂ’ÓÒ¥4ôâç7G&–æv–g’†W‡V7FVDw&÷W–G2’’F‡&÷ræWrW'&÷"‚~ˆ8Îišş™û>K™jë^‰Şj~ŠëKˆîˆÈ>Y»Nkˆ^XÙ^KˆŞKˆˆ{N8"r“°¢Ğ¢Ğ¢f÷"†6öç7B&Æö6²öb6†FW"æFö7VÖVçBæ&Æö6·2’°¢–b†&Æö6²æ×W6–5&ævRbb6†FW"æ×W6–5&ævW2ç6öÖR‚‡&ævR’Óâ&ævRæ–BÓÓÒ&Æö6²æ×W6–5&ævRæ–Bbb×W6–5&ævU&w&„–G2†6†FW"Â&ævR’æ–æ6ÇVFW2†&Æö6²æ–B’’’F‡&÷ræWrW'&÷"‚~jÚ>ih~[É^yJK¨niziXy¨Nˆ8Îišş™û>K™ˆÈ>Y»N8"r“°¢Ğ¢Ğ ¢6öç7B6†V6´7VRÒ†æöFR’Óâ°¢–b†æöFRçG—RÓÓÒv7VRr’°¢fÆ–FFT7VU6WGF–æw2†æöFRç6WGF–æw2“°¢6öç7BÆ–W'2ÒæöFRç6WGF–æw2ç66VæTÆ–W'2óòµÓ°¢f÷"†6öç7BÆ–W"öbÆ–W'2’°¢6öç7B76WBÒ76WG2ævWB†Æ–W"æ76WD–B“°¢–b‚76WBÇÂ²v–ÖvRrÂwf–FVòuÒæ–æ6ÇVFW2†76WBæ¶–æB’’F‡&÷ræWrW'&÷"‚~YË®išşY»î[.[É^yJK¨n{Ë®ZKh‰nKˆŞiAZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{«ù£ yæ¡:)áº)âyí(9§d8à ‰ÊNÂˆBˆ›Üˆ
-ÛÛœİÚYÚ[™HÙˆÖÛ›ÙKœÙ][™ÜË˜˜XÚÙÜ›İ[™Y	Ú[XYÙI×KÛ›ÙKœÙ][™ÜË˜]Y[ÒY	Ø]Y[É×WJHÂˆYˆ
-Y	‰ˆYOOH	××ØÛX\—×ÉÈ	‰ˆ\ÜÙ]Ë™Ù]
-Y
-OËšÚ[™OOHÚ[™
-H›İÈ™]È\œ›ÜŠÚ[™OOH	Ú[XYÙIÈÈ	ú ã9¦kùí(9§d9oázhnù¦+ùfï¹âaøà ‰Èˆ	ùcézgìù¥b9í(9§d9oázhnù¦+úgìúh¤xà ‰ÊNÂˆBˆBˆ›ÙK˜Ú[™[Ë™›Ü‘XXÚ
-ÚXÚĞİYJNÂˆNÂˆÚ\\‹™Øİ[Y[˜›ØÚÜË™›Ü‘XXÚ
-ÚXÚĞİYJNÂŸB
+import { makeId, defaultSettings, validateCueSettings, validateDocument } from './document.mjs';
+import { musicRangeParagraphIds } from './chapters.mjs';
+
+export const SCHEMA_VERSION = 2;
+
+const demoLines = [
+  ['å¦‚æœè¯´ç³»ç»ŸçœŸçš„å­˜åœ¨äºè¿™ä¸ªä¸–ç•Œä¸Šçš„è¯ï¼Œé‚£å®ƒä¸€å®šä¸ä¼šæ˜¯è¿™æ ·å­ã€‚'],
+  ['ä½ è¿˜æ²¡æ„Ÿåˆ°å¼‚å¸¸å—ï¼Ÿ', { mode: 'dialogue', speaker: 'ã€çº¢è‰²çš„ï¼Ÿï¼Ÿã€‘', advance: 'click' }],
+  ['è‡ªä»è„‘å­é‡Œçªç„¶å‡ºç°è¿™ä¸ªä¿¡æ¯å¼€å§‹ï¼Œ'],
+  ['åº”å­æ±å¥½åƒæ´»åœ¨è¿‡å»ä¸€æ ·ï¼Œ'],
+  ['æ„Ÿè§‰ä»€ä¹ˆéƒ½å·²ç»ç»å†è¿‡äº†ï¼Œåªæ˜¯é‡å¤åœ°å†è¿‡ä¸€å¤©è€Œå·²ã€‚'],
+  ['å”‰ï¼Œè¿™å¾ªç¯åˆ°åº•ä»€ä¹ˆæ—¶å€™æ˜¯ä¸ªå¤´ï¼Ÿ', { mode: 'free', speaker: 'ã€çº¢è‰²çš„ï¼Ÿï¼Ÿã€‘', color: '#f27469', fontSize: 58, motion: 'rise', advance: 'timed' }],
+  ['è¯´å®è¯ï¼Œè™½ç„¶ã€çº¢ã€‘å·²ç»çŸ¥é“ç›®å‰è¿™ä¸ªä¸–ç•Œçš„ç©¶æé‡‘æ‰‹æŒ‡ã€projectã€‘ï¼Œå·²ç»è·Ÿç³»ç»Ÿå·®ä¸å¤šäº†ã€‚'],
+  ['å¯é¢å¯¹æˆ‘â€”â€”åº”å­æ±æ¥è¯´ï¼Œæˆ‘åªæ˜¯ä¸€åæ™®é€šçš„å­¦ç”Ÿç½¢äº†ã€‚'],
+  ['å¦‚æœé¢å¯¹æœ«ä¸–ï¼Œæ›´å¤šçš„åªæ˜¯æ— å¥ˆå§ã€‚å†µä¸”å¯èƒ½è¿˜æ²¡æœ«ä¸–å‘¢ã€‚'],
+  ['æ€ä¹ˆçœŸæœ«ä¸–äº†ï¼Ÿï¼Ÿï¼Ÿï¼Ÿ', { mode: 'free', fontSize: 74, color: '#f27469', motion: 'shake', advance: 'timed', durationMs: 2600 }],
+];
+
+export function createDemoProject() {
+  const blocks = demoLines.map(([text, settings]) => {
+    const id = makeId('p');
+    const textNode = { type: 'text', text };
+    return {
+      type: 'paragraph',
+      id,
+      children: settings
+        ? [{ type: 'cue', id: makeId('cue'), settings: defaultSettings(settings), children: [textNode] }]
+        : [textNode],
+    };
+  });
+  const chapter = { id: makeId('chapter'), name: 'ç¬¬01ç«  Â· åºç« ', document: { type: 'doc', blocks }, groups: [], musicRanges: [] };
+  return {
+    schemaVersion: SCHEMA_VERSION,
+    id: makeId('project'),
+    name: 'åº”å­æ± Â· å¼€åœºåºç« ',
+    canvas: { width: 1920, height: 1080 },
+    activeChapterId: chapter.id,
+    chapters: [chapter],
+    assets: [],
+    updatedAt: new Date().toISOString(),
+  };
+}
+
+export function normalizeProjectName(name) {
+  const value = typeof name === 'string' ? name.trim() : '';
+  if (!value) throw new Error('å·¥ç¨‹åç§°ä¸èƒ½ä¸ºç©ºã€‚');
+  if (value.length > 120) throw new Error('å·¥ç¨‹åç§°æœ€å¤š 120 ä¸ªå­—ç¬¦ã€‚');
+  return value;
+}
+
+export function renameProject(project, name) {
+  return { ...project, name: normalizeProjectName(name), updatedAt: new Date().toISOString() };
+}
+
+export function createBlankProject() {
+  const project = createDemoProject();
+  return {
+    ...project,
+    name: 'æœªå‘½åå‰§æƒ…å·¥ç¨‹',
+    chapters: project.chapters.map((chapter) => ({ ...chapter, name: 'ç¬¬01ç« ', document: { type: 'doc', blocks: [] } })),
+  };
+}
+
+export function validateProject(project) {
+  if (!project || project.schemaVersion !== SCHEMA_VERSION) throw new Error(`ä¸æ”¯æŒå·¥ç¨‹ç‰ˆæœ¬ï¼š${project?.schemaVersion ?? 'æœªçŸ¥'}ã€‚`);
+  if (typeof project.id !== 'string' || !project.id || typeof project.name !== 'string') throw new Error('å·¥ç¨‹ä¿¡æ¯ä¸å®Œæ•´ã€‚');
+  if (!project.canvas || project.canvas.width !== 1920 || project.canvas.height !== 1080) throw new Error('å·¥ç¨‹ç”»å¸ƒå°ºå¯¸æ— æ•ˆã€‚');
+  if (!Array.isArray(project.chapters) || !project.chapters.length || project.chapters.length > 1000) throw new Error('å·¥ç¨‹ç« èŠ‚åˆ—è¡¨æ— æ•ˆã€‚');
+  const chapterIds = new Set();
+  const globalNodeIds = new Set();
+  for (const chapter of project.chapters) {
+    if (typeof chapter.id !== 'string' || !chapter.id || chapterIds.has(chapter.id) || typeof chapter.name !== 'string' || !chapter.name.trim() || chapter.name.length > 120) throw new Error('ç« èŠ‚ ID æˆ–åç§°æ— æ•ˆã€‚');
+    chapterIds.add(chapter.id);
+    validateDocument(chapter.document);
+    collectNodeIds(chapter.document, globalNodeIds);
+  }
+  if (!chapterIds.has(project.activeChapterId)) throw new Error('å½“å‰ç« èŠ‚å¼•ç”¨æ— æ•ˆã€‚');
+  if (!Array.isArray(project.assets)) throw new Error('å·¥ç¨‹ç´ ææ¸…å•æ— æ•ˆã€‚');
+  const assets = new Map();
+  let totalAssetBytes = 0;
+  for (const asset of project.assets) {
+    if (typeof asset.id !== 'string' || !asset.id || asset.id.length > 200 || assets.has(asset.id) || typeof asset.name !== 'string' || !asset.name || asset.name.length > 255 || !['image', 'audio', 'video', 'article', 'other'].includes(asset.kind) || typeof asset.mime !== 'string' || !/^[\w.+-]+\/[\w.+-]+(?:;[\w=.+-]+)*$/.test(asset.mime) || !Number.isSafeInteger(asset.size) || asset.size < 0 || asset.size > 100 * 1024 * 1024) throw new Error('å·¥ç¨‹ç´ ææ¸…å•åŒ…å«æ— æ•ˆé¡¹ç›®ã€‚');
+    if (asset.kind === 'image' && !asset.mime.startsWith('image/')) throw new Error('å›¾ç‰‡ç´ æ MIME ç±»å‹æ— æ•ˆã€‚');
+    if (asset.kind === 'audio' && !asset.mime.startsWith('audio/')) throw new Error('éŸ³é¢‘ç´ æ MIME ç±»å‹æ— æ•ˆã€‚');
+    if (asset.kind === 'video' && asset.mime !== 'video/mp4') throw new Error('èˆå°è§†é¢‘ç›®å‰åªæ”¯æŒ MP4ã€‚');
+    if (asset.kind === 'article' && !(/^(text\/|application\/pdf$)/.test(asset.mime))) throw new Error('æ–‡ç« ç´ æ MIME ç±»å‹æ— æ•ˆã€‚');
+    if (asset.width !== undefined && (!Number.isFinite(asset.width) || asset.width <= 0 || asset.width > 100000)) throw new Error('ç´ æå®½åº¦æ— æ•ˆã€‚');
+    if (asset.height !== undefined && (!Number.isFinite(asset.height) || asset.height <= 0 || asset.height > 100000)) throw new Error('ç´ æé«˜åº¦æ— æ•ˆã€‚');
+    totalAssetBytes += asset.size;
+    if (totalAssetBytes > 512 * 1024 * 1024) throw new Error('å·¥ç¨‹ç´ ææ€»é‡è¶…è¿‡ 512 MBã€‚');
+    assets.set(asset.id, asset);
+  }
+  for (const chapter of project.chapters) {
+    validateChapter(chapter, assets);
+  }
+  return true;
+}
+
+function collectNodeIds(document, ids) {
+  const visit = (node) => {
+    if (node.type === 'paragraph' || node.type === 'cue') {
+      if (ids.has(node.id)) throw new Error('ä¸åŒç« èŠ‚ä¹‹é—´å­˜åœ¨é‡å¤çš„æ®µè½æˆ–æ¼”å‡ºå•å…ƒ IDã€‚');
+      ids.add(node.id);
+    }
+    node.children?.forEach(visit);
+  };
+  document.blocks.forEach(visit);
+}
+
+function validateChapter(chapter, assets) {
+  const paragraphIndexes = new Map(chapter.document.blocks.map((block, index) => [block.id, index]));
+  const grouped = new Set();
+  const groupIds = new Set();
+  if (!Array.isArray(chapter.groups) || chapter.groups.length > chapter.document.blocks.length) throw new Error('æ®µè½ç»„åˆ—è¡¨æ— æ•ˆã€‚');
+  for (const group of chapter.groups) {
+    if (typeof group.id !== 'string' || !group.id || groupIds.has(group.id) || typeof group.name !== 'string' || !group.name.trim() || group.name.length > 120 || !Array.isArray(group.paragraphIds) || !group.paragraphIds.length || typeof group.collapsed !== 'boolean') throw new Error('æ®µè½ç»„ç»“æ„æ— æ•ˆã€‚');
+    groupIds.add(group.id);
+    const indexes = group.paragraphIds.map((id) => paragraphIndexes.get(id));
+    if (indexes.some((index) => index === undefined) || indexes.some((index) => grouped.has(chapter.document.blocks[index].id)) || indexes.at(-1) - indexes[0] + 1 !== indexes.length) throw new Error('æ®µè½ç»„å¿…é¡»å¼•ç”¨è¿ç»­ä¸”æœªé‡å¤å½’ç»„çš„æ­£æ–‡æ®µè½ã€‚');
+    group.paragraphIds.forEach((id) => grouped.add(id));
+  }
+  if (!Array.isArray(chapter.musicRanges)) throw new Error('èƒŒæ™¯éŸ³ä¹èŒƒå›´åˆ—è¡¨æ— æ•ˆã€‚');
+  const rangeIds = new Set();
+  const intervals = [];
+  for (const range of chapter.musicRanges) {
+    const start = paragraphIndexes.get(range.startParagraphId);
+    const end = paragraphIndexes.get(range.endParagraphId);
+    const asset = assets.get(range.assetId);
+    const memberIds = musicRangeParagraphIds(chapter, range);
+    const memberIndexes = memberIds.map((id) => paragraphIndexes.get(id)).sort((a, b) => a - b);
+    const groupIdsValid = range.groupIds === undefined || (Array.isArray(range.groupIds) && range.groupIds.length > 0 && new Set(range.groupIds).size === range.groupIds.length && range.groupIds.every((id) => groupIds.has(id)));
+    if (typeof range.id !== 'string' || !range.id || rangeIds.has(range.id) || !asset || asset.kind !== 'audio' || start === undefined || end === undefined || start > end || !groupIdsValid || !memberIndexes.length || memberIndexes.at(0) !== start || memberIndexes.at(-1) !== end || memberIndexes.at(-1) - memberIndexes[0] + 1 !== memberIndexes.length || !Number.isFinite(range.volume) || range.volume < 0 || range.volume > 1 || typeof range.loop !== 'boolean') throw new Error('èƒŒæ™¯éŸ³ä¹èŒƒå›´æˆ–ç´ æå¼•ç”¨æ— æ•ˆã€‚');
+    rangeIds.add(range.id);
+    intervals.push([start, end]);
+  }
+  intervals.sort((a, b) => a[0] - b[0]);
+  if (intervals.some((interval, index) => index > 0 && interval[0] <= intervals[index - 1][1])) throw new Error('èƒŒæ™¯éŸ³ä¹èŒƒå›´ä¸èƒ½é‡å ã€‚');
+  if (chapter.document.blocks.some((block) => Object.hasOwn(block, 'musicRange'))) {
+    for (const range of chapter.musicRanges) {
+      const expectedIds = musicRangeParagraphIds(chapter, range);
+      const expectedGroupIds = range.groupIds ?? null;
+      for (const id of expectedIds) {
+        const metadata = chapter.document.blocks.find((block) => block.id === id)?.musicRange;
+        if (!metadata || metadata.id !== range.id || metadata.assetId !== range.assetId || metadata.volume !== range.volume || metadata.loop !== range.loop || JSON.stringify(metadata.groupIds ?? null) !== JSON.stringify(expectedGroupIds)) throw new Error('èƒŒæ™¯éŸ³ä¹æ®µè½æ ‡è®°ä¸èŒƒå›´æ¸…å•ä¸ä¸€è‡´ã€‚');
+      }
+    }
+    for (const block of chapter.document.blocks) {
+      if (block.musicRange && !chapter.musicRanges.some((range) => range.id === block.musicRange.id && musicRangeParagraphIds(chapter, range).includes(block.id))) throw new Error('æ­£æ–‡å¼•ç”¨äº†æ— æ•ˆçš„èƒŒæ™¯éŸ³ä¹èŒƒå›´ã€‚');
+    }
+  }
+
+  const checkCue = (node) => {
+    if (node.type === 'cue') {
+      validateCueSettings(node.settings);
+      const layers = node.settings.sceneLayers ?? [];
+      for (const layer of layers) {
+        const asset = assets.get(layer.assetId);
+        if (!asset || !['image', 'video'].includes(asset.kind)) throw new Error('åœºæ™¯å›¾å±‚å¼•ç”¨äº†ç¼ºå¤±æˆ–ä¸æ”¯æŒçš„è§†è§‰ç´ æã€‚');
+      }
+      for (const [id, kind] of [[node.settings.backgroundId, 'image'], [node.settings.audioId, 'audio']]) {
+        if (id && id !== '__clear__' && assets.get(id)?.kind !== kind) throw new Error(kind === 'image' ? 'èƒŒæ™¯ç´ æå¿…é¡»æ˜¯å›¾ç‰‡ã€‚' : 'å¥éŸ³æ•ˆç´ æå¿…é¡»æ˜¯éŸ³é¢‘ã€‚');
+      }
+    }
+    node.children?.forEach(checkCue);
+  };
+  chapter.document.blocks.forEach(checkCue);
+}

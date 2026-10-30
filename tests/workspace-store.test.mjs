@@ -1,3 +1,44 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐìµ­‘Ñ•µÀ°É´ô™É½´€¹½‘”é™Ì½ÁÉ½µ¥Í•Ìœì)¥µÁ½ÉÐÁ…Ñ ™É½´€¹½‘”éÁ…Ñ œì)¥µÁ½ÉÐì™¥±•UI1Q½A…Ñ ô™É½´€¹½‘”éÕÉ°œì)¥µÁ½ÉÐìÉ•…Ñ•]½É­ÍÁ…•MÑ½É”ô™É½´€œ¸¸½•±•ÑÉ½¸½Ý½É­ÍÁ…”µÍÑ½É”¹µ©Ìœì()Ñ•ÍÐ Ÿ–¾ó–—–&7–’’î÷’â;¢«–*£’þw–¶cš‹–’7ž
-ç–"–ò¾ò3–B;žî·¢«–*£’þw–¶c’â7’òk¢šžn[–¾ó–—–&7–’’îôœ°…Íå¹Œ€ ¤€ôøì(€½¹ÍÐÉ½½Ð€ô…Ý…¥Ðµ­‘Ñ•µÀ¡Á…Ñ ¹©½¥¸¡Á…Ñ ¹‘¥É¹…µ”¡™¥±•UI1Q½A…Ñ ¡¥µÁ½ÉÐ¹µ•Ñ„¹ÕÉ°¤¤°€œ¹Ý½É­ÍÁ…”µÍÑ½É”´œ¤¤ì(€ÑÉäì(€€€½¹ÍÐÍÑ½É”€ôÉ•…Ñ•]½É­ÍÁ…•MÑ½É”¡É½½Ð¤ì(€€€½¹ÍÐÁÉ½©•Ñ€ôU¥¹ÐáÉÉ…ä¹™É½´¡lÄ°€È°€Ít¤ì(€€€½¹ÍÐ¥µÁ½ÉÑ•‘€ôU¥¹ÐáÉÉ…ä¹™É½´¡lÐ°€Ô°€Ùt¤ì(€€€½¹ÍÐ•‘¥Ñ•‘€ôU¥¹ÐáÉÉ…ä¹™É½´¡lÜ°€à°€åt¤ì(€€€…Ý…¥ÐÍÑ½É”¹Í…Ù”¡ÁÉ½©•Ñ¤ì(€€€…Ý…¥ÐÍÑ½É”¹½µµ¥Ñ%µÁ½ÉÐ¡¥µÁ½ÉÑ•‘¤ì(€€€…Ý…¥ÐÍÑ½É”¹Í…Ù”¡•‘¥Ñ•‘¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡ÍÑ½É”¹±½…‘%µÁ½ÉÑ	…­ÕÀ€˜˜…Ý…¥ÐÍÑ½É”¹±½…‘%µÁ½ÉÑ	…­ÕÀ ¤°ÁÉ½©•Ñ¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÍÑ½É”¹±½… ¤°•‘¥Ñ•‘¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÍÑ½É”¹±½…‘I•ÍÑ½É” ¤°¥µÁ½ÉÑ•‘¤ì(€ô™¥¹…±±äì(€€€…Ý…¥ÐÉ´¡É½½Ð°ìÉ•ÕÉÍ¥Ù”èÑÉÕ”°™½É”èÑÉÕ”ô¤ì(€ô)ô¤ì()Ñ•ÍÐ Ÿ¢¾¿–"ƒ–B;¢þ{žî·’þw–¶c’â7’òkš2“š:'’þwš*“–þ¯žŸ¾ò3¢÷–"_–ë–æÛ¢¾ï–>[š^§šršr'šV#ž&#šr°œ°…Íå¹Œ€ ¤€ôøì(€½¹ÍÐÉ½½Ð€ô…Ý…¥Ðµ­‘Ñ•µÀ¡Á…Ñ ¹©½¥¸¡Á…Ñ ¹‘¥É¹…µ”¡™¥±•UI1Q½A…Ñ ¡¥µÁ½ÉÐ¹µ•Ñ„¹ÕÉ°¤¤°€œ¹Ý½É­ÍÁ…”µÍÑ½É”´œ¤¤ì(€ÑÉäì(€€€½¹ÍÐÍÑ½É”€ôÉ•…Ñ•]½É­ÍÁ…•MÑ½É”¡É½½Ð¤ì(€€€½¹ÍÐÙ…±¥€ôU¥¹ÐáÉÉ…ä¹™É½´¡lÈÄ°€ÈÈ°€ÈÍt¤ì(€€€…Ý…¥ÐÍÑ½É”¹Í…Ù”¡Ù…±¥¤ì(€€€…Ý…¥ÐÍÑ½É”¹Í…Ù”¡U¥¹ÐáÉÉ…ä¹™É½´¡lÁt¤°ìÁÉ½Ñ•ÑÕÉÉ•¹ÐèÑÉÕ”ô¤ì(€€€™½È€¡±•Ð¤€ô€Àì¤€ð€ÌÀì¤¬¬¤…Ý…¥ÐÍÑ½É”¹Í…Ù”¡U¥¹ÐáÉÉ…ä¹™É½´¡lÀ°¥t¤¤ì(€€€½¹ÍÐÙ•ÉÍ¥½¹Ì€ô…Ý…¥ÐÍÑ½É”¹±¥ÍÑI•ÍÑ½É•Y•ÉÍ¥½¹Ì ¤ì(€€€½¹ÍÐÁÉ½Ñ•Ñ•‘Y•ÉÍ¥½¸€ôÙ•ÉÍ¥½¹Ì¹™¥¹ ¡¥Ñ•´¤€ôø¥Ñ•´¹¥¹¥¹±Õ‘•Ì œµÁÉ½Ñ•Ñ•´œ¤¤ì(€€€…ÍÍ•ÉÐ¹½¬¡ÁÉ½Ñ•Ñ•‘Y•ÉÍ¥½¸¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÍÑ½É”¹±½…‘I•ÍÑ½É•Y•ÉÍ¥½¸¡ÁÉ½Ñ•Ñ•‘Y•ÉÍ¥½¸¹¥¤°Ù…±¥¤ì(€€€…ÍÍ•ÉÐ¹½¬¡Ù•ÉÍ¥½¹Ì¹±•¹Ñ €ðô€ÈÄ¤ì(€€€…ÍÍ•ÉÐ¹Ñ¡É½ÝÌ  ¤€ôøÍÑ½É”¹±½…‘I•ÍÑ½É•Y•ÉÍ¥½¸ œ¸¸½Ý½É­ÍÁ…”¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤°€¿š‚¢¾š^ƒšV ¼¤ì(€€€…Ý…¥ÐÍÑ½É”¹…ÁÁ±åI•ÍÑ½É”¡Ù…±¥¤ì(€€€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡…Ý…¥ÐÍÑ½É”¹±½… ¤°Ù…±¥¤ì(€€€…ÍÍ•ÉÐ¹½¬ ¡…Ý…¥ÐÍÑ½É”¹±¥ÍÑI•ÍÑ½É•Y•ÉÍ¥½¹Ì ¤¤¹™¥±Ñ•È ¡¥Ñ•´¤€ôø¥Ñ•´¹¥¹¥¹±Õ‘•Ì œµÁÉ½Ñ•Ñ•´œ¤¤¹±•¹Ñ €øô€È¤ì(€ô™¥¹…±±äì…Ý…¥ÐÉ´¡É½½Ð°ìÉ•ÕÉÍ¥Ù”èÑÉÕ”°™½É”èÑÉÕ”ô¤ìô)ô¤ì4(
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { mkdtemp, rm } from 'node:fs/promises';
+import path from 'node:path';
+import { fileURLToPath } from 'node:url';
+import { createWorkspaceStore } from '../electron/workspace-store.mjs';
+
+test('å¯¼å…¥å‰å¤‡ä»½ä¸Žè‡ªåŠ¨ä¿å­˜æ¢å¤ç‚¹åˆ†å¼€ï¼ŒåŽç»­è‡ªåŠ¨ä¿å­˜ä¸ä¼šè¦†ç›–å¯¼å…¥å‰å¤‡ä»½', async () => {
+  const root = await mkdtemp(path.join(path.dirname(fileURLToPath(import.meta.url)), '.workspace-store-'));
+  try {
+    const store = createWorkspaceStore(root);
+    const projectA = Uint8Array.from([1, 2, 3]);
+    const importedB = Uint8Array.from([4, 5, 6]);
+    const editedB = Uint8Array.from([7, 8, 9]);
+    await store.save(projectA);
+    await store.commitImport(importedB);
+    await store.save(editedB);
+    assert.deepEqual(store.loadImportBackup && await store.loadImportBackup(), projectA);
+    assert.deepEqual(await store.load(), editedB);
+    assert.deepEqual(await store.loadRestore(), importedB);
+  } finally {
+    await rm(root, { recursive: true, force: true });
+  }
+});
+
+test('è¯¯åˆ åŽè¿žç»­ä¿å­˜ä¸ä¼šæŒ¤æŽ‰ä¿æŠ¤å¿«ç…§ï¼Œèƒ½åˆ—å‡ºå¹¶è¯»å–æ—©æœŸæœ‰æ•ˆç‰ˆæœ¬', async () => {
+  const root = await mkdtemp(path.join(path.dirname(fileURLToPath(import.meta.url)), '.workspace-store-'));
+  try {
+    const store = createWorkspaceStore(root);
+    const valid = Uint8Array.from([21, 22, 23]);
+    await store.save(valid);
+    await store.save(Uint8Array.from([0]), { protectCurrent: true });
+    for (let i = 0; i < 30; i++) await store.save(Uint8Array.from([0, i]));
+    const versions = await store.listRestoreVersions();
+    const protectedVersion = versions.find((item) => item.id.includes('-protected-'));
+    assert.ok(protectedVersion);
+    assert.deepEqual(await store.loadRestoreVersion(protectedVersion.id), valid);
+    assert.ok(versions.length <= 21);
+    assert.throws(() => store.loadRestoreVersion('../workspace.storypack.zip'), /æ ‡è¯†æ— æ•ˆ/);
+    await store.applyRestore(valid);
+    assert.deepEqual(await store.load(), valid);
+    assert.ok((await store.listRestoreVersions()).filter((item) => item.id.includes('-protected-')).length >= 2);
+  } finally { await rm(root, { recursive: true, force: true }); }
+});

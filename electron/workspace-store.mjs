@@ -1,2 +1,101 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞìÉ•…‘¥±”°É•…‘‘¥È°ÍÑ…Ğ°É´ô™É½´€¹½‘”é™Ì½ÁÉ½µ¥Í•Ìœì)¥µÁ½ÉĞÁ…Ñ ™É½´€¹½‘”éÁ…Ñ œì)¥µÁ½ÉĞìÉ•…Ñ•!…Í °É…¹‘½µUU%ô™É½´€¹½‘”éÉåÁÑ¼œì)¥µÁ½ÉĞìÉ•Á±…•M…™•±äô™É½´€œ¸½…Ñ½µ¥ŒµİÉ¥Ñ”¹µ©Ìœì()½¹ÍĞµ…áA…­	åÑ•Ì€ô€ÔÄÈ€¨€ÄÀÈĞ€¨€ÄÀÈĞì()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•…Ñ•]½É­ÍÁ…•MÑ½É”¡ÕÍ•É…Ñ…A…Ñ ¤ì(€½¹ÍĞÕÉÉ•¹ÑA…Ñ €ôÁ…Ñ ¹©½¥¸¡ÕÍ•É…Ñ…A…Ñ °€İ½É­ÍÁ…”¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ì(€½¹ÍĞÉ•ÍÑ½É•A…Ñ €ôÁ…Ñ ¹©½¥¸¡ÕÍ•É…Ñ…A…Ñ °€É•ÍÑ½É”¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ì(€½¹ÍĞ¥µÁ½ÉÑ	…­ÕÁA…Ñ €ôÁ…Ñ ¹©½¥¸¡ÕÍ•É…Ñ…A…Ñ °€‰•™½É”µ¥µÁ½ÉĞ¹ÍÑ½ÉåÁ…¬¹é¥Àœ¤ì(€½¹ÍĞ¡¥ÍÑ½ÉåA…Ñ €ôÁ…Ñ ¹©½¥¸¡ÕÍ•É…Ñ…A…Ñ °€¡¥ÍÑ½Éäœ¤ì(€½¹ÍĞ±¥ÍÑ!¥ÍÑ½Éä€ô…Íå¹Œ€ ¤€ôøì(€€€±•Ğ¹…µ•Ìì(€€€ÑÉäì¹…µ•Ì€ô…İ…¥ĞÉ•…‘‘¥È¡¡¥ÍÑ½ÉåA…Ñ ¤ìô…Ñ €¡•ÉÉ½È¤ì¥˜€¡•ÉÉ½È¹½‘”€ôôô€9=9Pœ¤É•ÑÕÉ¸mtìÑ¡É½Ü•ÉÉ½Èìô(€€€½¹ÍĞÉ½İÌ€ô…İ…¥ĞAÉ½µ¥Í”¹…±°¡¹…µ•Ì¹™¥±Ñ•È ¡¹…µ”¤€ôø€½yq‘ìÄÍô´¡É•Õ±…ÉñÁÉ½Ñ•Ñ•¤µm„µ˜À´äµt­p¹ÍÑ½ÉåÁ…­p¹é¥À¼¹Ñ•ÍĞ¡¹…µ”¤¤¹µ…À¡…Íå¹Œ€¡¥¤€ôøì(€€€€€½¹ÍĞ¥¹™¼€ô…İ…¥ĞÍÑ…Ğ¡Á…Ñ ¹©½¥¸¡¡¥ÍÑ½ÉåA…Ñ °¥¤¤ì(€€€€€É•ÑÕÉ¸ì¥°Í…Ù•‘Ğè¹•Ü…Ñ”¡9Õµ‰•È¡¥¹Í±¥” À°€ÄÌ¤¤¤¹Ñ½%M=MÑÉ¥¹œ ¤°‰åÑ•Ìè¥¹™¼¹Í¥é”°É•…Í½¸è¥¹¥¹±Õ‘•Ì œµÁÉ½Ñ•Ñ•´œ¤€ü€Ÿ–’Ÿ¦?–"ƒ–¶\€¼ƒ–"š6‹–Ş—¢/–&7’şwš*œ€è€Ÿ–ºkš^Û–ş¯œœôì(€€€ô¤¤ì(€€€É•ÑÕÉ¸É½İÌ¹Í½ÉĞ ¡„°ˆ¤€ôøˆ¹¥¹±½…±•½µÁ…É”¡„¹¥¤¤ì(€ôì(€½¹ÍĞ…É¡¥Ù•ÕÉÉ•¹Ğ€ô…Íå¹Œ€¡ÁÉ½Ñ•Ğ€ô™…±Í”¤€ôøì(€€€½¹ÍĞÕÉÉ•¹Ğ€ô…İ…¥ĞÉ•…‘=ÁÑ¥½¹…°¡ÕÉÉ•¹ÑA…Ñ ¤ì(€€€¥˜€ …ÕÉÉ•¹Ğ¤É•ÑÕÉ¸ì(€€€½¹ÍĞÉ½İÌ€ô…İ…¥Ğ±¥ÍÑ!¥ÍÑ½Éä ¤ì(€€€½¹ÍĞ…Ñ•½Éä€ôÁÉ½Ñ•Ğ€ü€ÁÉ½Ñ•Ñ•œ€è€É•Õ±…Èœì(€€€½¹ÍĞÍ…µ•…Ñ•½Éä€ôÉ½İÌ¹™¥±Ñ•È ¡É½Ü¤€ôøÉ½Ü¹¥¹¥¹±Õ‘•Ì¡€´‘í…Ñ•½Éåôµ€¤¤ì(€€€¥˜€ …ÁÉ½Ñ•Ğ€˜˜Í…µ•…Ñ•½ÉålÁt€˜˜…Ñ”¹¹½Ü ¤€´9Õµ‰•È¡Í…µ•…Ñ•½ÉålÁt¹¥¹Í±¥” À°€ÄÌ¤¤€ğ€Ô€¨€ØÀ€¨€ÄÀÀÀ¤É•ÑÕÉ¸ì(€€€½¹ÍĞ¡…Í €ôÉ•…Ñ•!…Í  Í¡„ÈÔØœ¤¹ÕÁ‘…Ñ”¡ÕÉÉ•¹Ğ¤¹‘¥•ÍĞ ¡•àœ¤ì(€€€¥˜€¡Í…µ•…Ñ•½ÉålÁt¤ì(€€€€€½¹ÍĞ±…Ñ•ÍĞ€ô…İ…¥ĞÉ•…‘¥±”¡Á…Ñ ¹©½¥¸¡¡¥ÍÑ½ÉåA…Ñ °Í…µ•…Ñ•½ÉålÁt¹¥¤¤ì(€€€€€¥˜€¡É•…Ñ•!…Í  Í¡„ÈÔØœ¤¹ÕÁ‘…Ñ”¡±…Ñ•ÍĞ¤¹‘¥•ÍĞ ¡•àœ¤€ôôô¡…Í ¤É•ÑÕÉ¸ì(€€€ô(€€€…İ…¥ĞÉ•Á±…•M…™•±ä¡Á…Ñ ¹©½¥¸¡¡¥ÍÑ½ÉåA…Ñ °€‘í…Ñ”¹¹½Ü ¥ô´‘í…Ñ•½Éåô´‘íÉ…¹‘½µUU% ¥ô¹ÍÑ½ÉåÁ…¬¹é¥Á€¤°ÕÉÉ•¹Ğ¤ì(€ôì(€½¹ÍĞÁÉÕ¹•!¥ÍÑ½Éä€ô…Íå¹Œ€ ¤€ôøì(€€€½¹ÍĞÉ½İÌ€ô…İ…¥Ğ±¥ÍÑ!¥ÍÑ½Éä ¤ì(€€€™½È€¡½¹ÍĞm…Ñ•½Éä°±¥µ¥Ñt½˜mlÉ•Õ±…Èœ°€ÄÉt°lÁÉ½Ñ•Ñ•œ°€áut¤ì(€€€€€™½È€¡½¹ÍĞÉ½Ü½˜É½İÌ¹™¥±Ñ•È ¡¥Ñ•´¤€ôø¥Ñ•´¹¥¹¥¹±Õ‘•Ì¡€´‘í…Ñ•½Éåôµ€¤¤¹Í±¥”¡±¥µ¥Ğ¤¤…İ…¥ĞÉ´¡Á…Ñ ¹©½¥¸¡¡¥ÍÑ½ÉåA…Ñ °É½Ü¹¥¤°ì™½É”èÑÉÕ”ô¤ì(€€€ô(€ôì(€½¹ÍĞ…ÁÁ±åM…Ù•‘A…¬€ô…Íå¹Œ€¡Ù…±Õ”¤€ôøì(€€€€€½¹ÍĞ‰åÑ•Ì€ô¡•­•‘	åÑ•Ì¡Ù…±Õ”¤ì(€€€€€…İ…¥Ğ…É¡¥Ù•ÕÉÉ•¹Ğ¡ÑÉÕ”¤ì(€€€€€…İ…¥ĞÉ•Á±…•M…™•±ä¡ÕÉÉ•¹ÑA…Ñ °‰åÑ•Ì¤ì(€€€€€…İ…¥ĞÁÉÕ¹•!¥ÍÑ½Éä ¤ì(€€€€€É•ÑÕÉ¸ìÍ…Ù•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤°‰åÑ•Ìè‰åÑ•Ì¹‰åÑ•1•¹Ñ ôì(€€€ôì(€É•ÑÕÉ¸ì(€€€±¥ÍÑI•ÍÑ½É•Y•ÉÍ¥½¹Ìè…Íå¹Œ€ ¤€ôøì(€€€€€½¹ÍĞÉ½İÌ€ô…İ…¥Ğ±¥ÍÑ!¥ÍÑ½Éä ¤ì(€€€€€ÑÉäì½¹ÍĞ¥¹™¼€ô…İ…¥ĞÍÑ…Ğ¡É•ÍÑ½É•A…Ñ ¤ìÉ½İÌ¹Õ¹Í¡¥™Ğ¡ì¥è€±•…äµÉ•ÍÑ½É”œ°Í…Ù•‘Ğè¥¹™¼¹µÑ¥µ”¹Ñ½%M=MÑÉ¥¹œ ¤°‰åÑ•Ìè¥¹™¼¹Í¥é”°É•…Í½¸è€Ÿ’â+’âš²‡’şw–¶`œô¤ìô…Ñ €¡•ÉÉ½È¤ì¥˜€¡•ÉÉ½È¹½‘”€„ôô€9=9Pœ¤Ñ¡É½Ü•ÉÉ½Èìô(€€€€€É•ÑÕÉ¸É½İÌì(€€€ô°(€€€±½…‘I•ÍÑ½É•Y•ÉÍ¥½¸è€¡¥¤€ôøì(€€€€€¥˜€¡¥€ôôô€±•…äµÉ•ÍÑ½É”œ¤É•ÑÕÉ¸É•…‘=ÁÑ¥½¹…°¡É•ÍÑ½É•A…Ñ ¤ì(€€€€€¥˜€¡ÑåÁ•½˜¥€„ôô€ÍÑÉ¥¹œœñğ€„½yq‘ìÄÍô´¡É•Õ±…ÉñÁÉ½Ñ•Ñ•¤µm„µ˜À´äµt­p¹ÍÑ½ÉåÁ…­p¹é¥À¼¹Ñ•ÍĞ¡¥¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿš‹–’7&#šr³š‚¢¾š^ƒšV#œ¤ì(€€€€€É•ÑÕÉ¸É•…‘=ÁÑ¥½¹…°¡Á…Ñ ¹©½¥¸¡¡¥ÍÑ½ÉåA…Ñ °¥¤¤ì(€€€ô°(€€€±½…è€ ¤€ôøÉ•…‘=ÁÑ¥½¹…°¡ÕÉÉ•¹ÑA…Ñ ¤°(€€€±½…‘I•ÍÑ½É”è€ ¤€ôøÉ•…‘=ÁÑ¥½¹…°¡É•ÍÑ½É•A…Ñ ¤°(€€€±½…‘%µÁ½ÉÑ	…­ÕÀè€ ¤€ôøÉ•…‘=ÁÑ¥½¹…°¡¥µÁ½ÉÑ	…­ÕÁA…Ñ ¤°(€€€Í…Ù”è…Íå¹Œ€¡Ù…±Õ”°½ÁÑ¥½¹Ì€ôíô¤€ôøì(€€€€€½¹ÍĞ‰åÑ•Ì€ô¡•­•‘	åÑ•Ì¡Ù…±Õ”¤ì(€€€€€…İ…¥Ğ…É¡¥Ù•ÕÉÉ•¹Ğ¡	½½±•…¸¡½ÁÑ¥½¹Ì¹ÁÉ½Ñ•ÑÕÉÉ•¹Ğ¤¤ì(€€€€€ÑÉäì(€€€€€€€½¹ÍĞÕÉÉ•¹Ğ€ô…İ…¥ĞÉ•…‘¥±”¡ÕÉÉ•¹ÑA…Ñ ¤ì(€€€€€€€…İ…¥ĞÉ•Á±…•M…™•±ä¡É•ÍÑ½É•A…Ñ °ÕÉÉ•¹Ğ¤ì(€€€€€ô…Ñ €¡•ÉÉ½È¤ì(€€€€€€€¥˜€¡•ÉÉ½È¹½‘”€„ôô€9=9Pœ¤Ñ¡É½Ü•ÉÉ½Èì(€€€€€ô(€€€€€…İ…¥ĞÉ•Á±…•M…™•±ä¡ÕÉÉ•¹ÑA…Ñ °‰åÑ•Ì¤ì(€€€€€…İ…¥ĞÁÉÕ¹•!¥ÍÑ½Éä ¤ì(€€€€€É•ÑÕÉ¸ìÍ…Ù•‘Ğè¹•Ü…Ñ” ¤¹Ñ½%M=MÑÉ¥¹œ ¤°‰åÑ•Ìè‰åÑ•Ì¹‰åÑ•1•¹Ñ ôì(€€€ô°(€€€…ÁÁ±åI•ÍÑ½É”è…ÁÁ±åM…Ù•‘A…¬°(€€€½µµ¥Ñ%µÁ½ÉĞè…Íå¹Œ™Õ¹Ñ¥½¸€¡Ù…±Õ”¤ì(€€€€€½¹ÍĞ‰åÑ•Ì€ô¡•­•‘	åÑ•Ì¡Ù…±Õ”¤ì(€€€€€ÑÉäì(€€€€€€€½¹ÍĞÕÉÉ•¹Ğ€ô…İ…¥ĞÉ•…‘¥±”¡ÕÉÉ•¹ÑA…Ñ ¤ì(€€€€€€€…İ…¥ĞÉ•Á±…•M…™•±ä¡¥µÁ½ÉÑ	…­ÕÁA…Ñ °ÕÉÉ•¹Ğ¤ì(€€€€€ô…Ñ €¡•ÉÉ½È¤ì(€€€€€€€¥˜€¡•ÉÉ½È¹½‘”€„ôô€9=9Pœ¤Ñ¡É½Ü•ÉÉ½Èì(€€€€€ô(€€€€€É•ÑÕÉ¸Ñ¡¥Ì¹Í…Ù”¡‰åÑ•Ì°ìÁÉ½Ñ•ÑÕÉÉ•¹ĞèÑÉÕ”ô¤ì(€€€ô°(€€€…ÁÁ±å%µÁ½ÉÑ	…­ÕÀè…ÁÁ±åM…Ù•‘A…¬°(€ôì)ô()™Õ¹Ñ¥½¸¡•­•‘	åÑ•Ì¡Ù…±Õ”¤ì(€½¹ÍĞ‰åÑ•Ì€ôÙ…±Õ”¥¹ÍÑ…¹•½˜U¥¹ĞáÉÉ…ä€üÙ…±Õ”€è¹•ÜU¥¹ĞáÉÉ…ä¡Ù…±Õ”€üümt¤ì(€¥˜€ …‰åÑ•Ì¹‰åÑ•1•¹Ñ ñğ‰åÑ•Ì¹‰åÑ•1•¹Ñ €øµ…áA…­	åÑ•Ì¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–2–’Ÿ–Â?š^ƒšV#š"[¢Ú¢ş€ÔÄÈ5œ¤ì(€É•ÑÕÉ¸	Õ™™•È¹™É½´¡‰åÑ•Ì¤ì)ô()…Íå¹Œ™Õ¹Ñ¥½¸É•…‘=ÁÑ¥½¹…°¡Ñ…É•Ğ¤ì(€ÑÉäìÉ•ÑÕÉ¸¹•ÜU¥¹ĞáÉÉ…ä¡…İ…¥ĞÉ•…‘¥±”¡Ñ…É•Ğ¤¤ìô(€…Ñ €¡•ÉÉ½È¤ì¥˜€¡•ÉÉ½È¹½‘”€ôôô€9=9Pœ¤É•ÑÕÉ¸¹Õ±°ìÑ¡É½Ü•ÉÉ½Èìô)ô((
+import { readFile, readdir, stat, rm } from 'node:fs/promises';
+import path from 'node:path';
+import { createHash, randomUUID } from 'node:crypto';
+import { replaceSafely } from './atomic-write.mjs';
+
+const maxPackBytes = 512 * 1024 * 1024;
+
+export function createWorkspaceStore(userDataPath) {
+  const currentPath = path.join(userDataPath, 'workspace.storypack.zip');
+  const restorePath = path.join(userDataPath, 'restore.storypack.zip');
+  const importBackupPath = path.join(userDataPath, 'before-import.storypack.zip');
+  const historyPath = path.join(userDataPath, 'history');
+  const listHistory = async () => {
+    let names;
+    try { names = await readdir(historyPath); } catch (error) { if (error.code === 'ENOENT') return []; throw error; }
+    const rows = await Promise.all(names.filter((name) => /^\d{13}-(regular|protected)-[a-f0-9-]+\.storypack\.zip$/.test(name)).map(async (id) => {
+      const info = await stat(path.join(historyPath, id));
+      return { id, savedAt: new Date(Number(id.slice(0, 13))).toISOString(), bytes: info.size, reason: id.includes('-protected-') ? 'å¤§é‡åˆ å­— / åˆ‡æ¢å·¥ç¨‹å‰ä¿æŠ¤' : 'å®šæ—¶å¿«ç…§' };
+    }));
+    return rows.sort((a, b) => b.id.localeCompare(a.id));
+  };
+  const archiveCurrent = async (protect = false) => {
+    const current = await readOptional(currentPath);
+    if (!current) return;
+    const rows = await listHistory();
+    const category = protect ? 'protected' : 'regular';
+    const sameCategory = rows.filter((row) => row.id.includes(`-${category}-`));
+    if (!protect && sameCategory[0] && Date.now() - Number(sameCategory[0].id.slice(0, 13)) < 5 * 60 * 1000) return;
+    const hash = createHash('sha256').update(current).digest('hex');
+    if (sameCategory[0]) {
+      const latest = await readFile(path.join(historyPath, sameCategory[0].id));
+      if (createHash('sha256').update(latest).digest('hex') === hash) return;
+    }
+    await replaceSafely(path.join(historyPath, `${Date.now()}-${category}-${randomUUID()}.storypack.zip`), current);
+  };
+  const pruneHistory = async () => {
+    const rows = await listHistory();
+    for (const [category, limit] of [['regular', 12], ['protected', 8]]) {
+      for (const row of rows.filter((item) => item.id.includes(`-${category}-`)).slice(limit)) await rm(path.join(historyPath, row.id), { force: true });
+    }
+  };
+  const applySavedPack = async (value) => {
+      const bytes = checkedBytes(value);
+      await archiveCurrent(true);
+      await replaceSafely(currentPath, bytes);
+      await pruneHistory();
+      return { savedAt: new Date().toISOString(), bytes: bytes.byteLength };
+    };
+  return {
+    listRestoreVersions: async () => {
+      const rows = await listHistory();
+      try { const info = await stat(restorePath); rows.unshift({ id: 'legacy-restore', savedAt: info.mtime.toISOString(), bytes: info.size, reason: 'ä¸Šä¸€æ¬¡ä¿å­˜' }); } catch (error) { if (error.code !== 'ENOENT') throw error; }
+      return rows;
+    },
+    loadRestoreVersion: (id) => {
+      if (id === 'legacy-restore') return readOptional(restorePath);
+      if (typeof id !== 'string' || !/^\d{13}-(regular|protected)-[a-f0-9-]+\.storypack\.zip$/.test(id)) throw new Error('æ¢å¤ç‰ˆæœ¬æ ‡è¯†æ— æ•ˆã€‚');
+      return readOptional(path.join(historyPath, id));
+    },
+    load: () => readOptional(currentPath),
+    loadRestore: () => readOptional(restorePath),
+    loadImportBackup: () => readOptional(importBackupPath),
+    save: async (value, options = {}) => {
+      const bytes = checkedBytes(value);
+      await archiveCurrent(Boolean(options.protectCurrent));
+      try {
+        const current = await readFile(currentPath);
+        await replaceSafely(restorePath, current);
+      } catch (error) {
+        if (error.code !== 'ENOENT') throw error;
+      }
+      await replaceSafely(currentPath, bytes);
+      await pruneHistory();
+      return { savedAt: new Date().toISOString(), bytes: bytes.byteLength };
+    },
+    applyRestore: applySavedPack,
+    commitImport: async function (value) {
+      const bytes = checkedBytes(value);
+      try {
+        const current = await readFile(currentPath);
+        await replaceSafely(importBackupPath, current);
+      } catch (error) {
+        if (error.code !== 'ENOENT') throw error;
+      }
+      return this.save(bytes, { protectCurrent: true });
+    },
+    applyImportBackup: applySavedPack,
+  };
+}
+
+function checkedBytes(value) {
+  const bytes = value instanceof Uint8Array ? value : new Uint8Array(value ?? []);
+  if (!bytes.byteLength || bytes.byteLength > maxPackBytes) throw new Error('å·¥ç¨‹åŒ…å¤§å°æ— æ•ˆæˆ–è¶…è¿‡ 512 MBã€‚');
+  return Buffer.from(bytes);
+}
+
+async function readOptional(target) {
+  try { return new Uint8Array(await readFile(target)); }
+  catch (error) { if (error.code === 'ENOENT') return null; throw error; }
+}
+

@@ -1,2 +1,43 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y½¹ÍÐì½¹Ñ•áÑ	É¥‘”°¥ÁI•¹‘•É•Èô€ôÉ•ÅÕ¥É” •±•ÑÉ½¸œ¤ì()½¹Ñ•áÑ	É¥‘”¹•áÁ½Í•%¹5…¥¹]½É± ÍÑ½Éå]½É­‰•¹ œ°ì(€É•…‘±¥Á‰½…Éè€ ¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” •‘¥Ñ¥¹œé±¥Á‰½…ÉµÉ•…œ¤°(€ÝÉ¥Ñ•±¥Á‰½…Éè€¡Ù…±Õ”¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” •‘¥Ñ¥¹œé±¥Á‰½…ÉµÝÉ¥Ñ”œ°Ù…±Õ”¤°(€€¼¨ƒšr³–rÃ–Þ—ž¢/–êO¾òkš¾?’â¨­•äƒ’â’î÷ž.³ž®/––ºçŽš‹–’7–:–>Ë–J3–’[¦£’þw–¶c’ö7žö¸€¨¼(€±¥‰É…Éäèì(€€€±¥ÍÐè€ ¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé±¥ÍÐœ¤°(€€€±½…‘1•…äè€ ¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé±½…µ±•…äœ¤°(€€€…‘½ÁÑ1•…äè€¡‰åÑ•Ì°µ•Ñ„¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé…‘½ÁÐµ±•…äœ°‰åÑ•Ì°µ•Ñ„¤°(€€€±½…è€¡­•ä¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé±½…œ°­•ä¤°(€€€É•…Ñ”è€¡‰åÑ•Ì°µ•Ñ„¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÉ•…Ñ”œ°‰åÑ•Ì°µ•Ñ„¤°(€€€É•¹…µ”è€¡­•ä°¹…µ”¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÉ•¹…µ”œ°­•ä°¹…µ”¤°(€€€Í…Ù”è€¡­•ä°‰åÑ•Ì°½ÁÑ¥½¹Ì¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÍ…Ù”œ°­•ä°‰åÑ•Ì°½ÁÑ¥½¹Ì¤°(€€€Í…Ù•Ìè€¡­•ä°‰åÑ•Ì¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÍ…Ù”µ…Ìœ°­•ä°‰åÑ•Ì¤°(€€€Í…Ù•Q…É•Ðè€¡­•ä¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÍ…Ù”µÑ…É•Ðœ°­•ä¤°(€€€½Á•¹M…Ù•½±‘•Èè€¡­•ä¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé½Á•¸µÍ…Ù”µ™½±‘•Èœ°­•ä¤°(€€€¡¥ÍÑ½Éå1¥ÍÐè€¡­•ä¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé¡¥ÍÑ½Éäµ±¥ÍÐœ°­•ä¤°(€€€¡¥ÍÑ½Éå1½…è€¡­•ä°¥¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé¡¥ÍÑ½Éäµ±½…œ°­•ä°¥¤°(€€€É•ÍÑ½É•A½¥¹Ðè€¡­•ä¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÉ•ÍÑ½É”µÁ½¥¹Ðœ°­•ä¤°(€€€É•ÍÑ½É•ÁÁ±äè€¡­•ä°‰åÑ•Ì¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÉ•ÍÑ½É”µ…ÁÁ±äœ°­•ä°‰åÑ•Ì¤°(€€€¥µÁ½ÉÑ	…­ÕÀè€¡­•ä¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé¥µÁ½ÉÐµ‰…­ÕÀœ°­•ä¤°(€€€¥µÁ½ÉÑ	…­ÕÁÁÁ±äè€¡­•ä°‰åÑ•Ì¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé¥µÁ½ÉÐµ‰…­ÕÀµ…ÁÁ±äœ°­•ä°‰åÑ•Ì¤°(€€€¥µÁ½ÉÑ½µµ¥Ðè€¡­•ä°‰åÑ•Ì°µ•Ñ„¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…Éäé¥µÁ½ÉÐµ½µµ¥Ðœ°­•ä°‰åÑ•Ì°µ•Ñ„¤°(€€€Í•ÑÑ¥Ù”è€¡­•ä¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” ±¥‰É…ÉäéÍ•Ðµ…Ñ¥Ù”œ°­•ä¤°(€ô°(€•áÁ½ÉÑAÉ½©•Ðè€¡‰åÑ•Ì¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” Ý½É­ÍÁ…”é•áÁ½ÉÐœ°‰åÑ•Ì¤°(€•áÁ½ÉÑI•Ù¥•ÝA…¬è€¡‰åÑ•Ì¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” Ý½É­ÍÁ…”éÉ•Ù¥•Üµ•áÁ½ÉÐœ°‰åÑ•Ì¤°(€•áÁ½ÉÑ½Õµ•¹Ðè€¡Ù…±Õ”¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” Ý½É­ÍÁ…”é•áÁ½ÉÐµ‘½Õµ•¹Ðœ°Ù…±Õ”¤°(€¥µÁ½ÉÑ¥¡…¹•Ìè€ ¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” Ý½É­ÍÁ…”é…¤µ¡…¹•Ìµ¥µÁ½ÉÐœ¤°(€¥µÁ½ÉÑAÉ½©•Ðè€ ¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” Ý½É­ÍÁ…”é¥µÁ½ÉÐœ¤°(€¡½½Í•ÍÍ•ÑÌè€ ¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” …ÍÍ•ÑÌé¡½½Í”œ¤°(€½¹	•™½É•±½Í”è€¡…±±‰…¬¤€ôøì(€€€½¹ÍÐ±¥ÍÑ•¹•È€ô€¡}•Ù•¹Ð°É•ÅÕ•ÍÑ%¤€ôø…±±‰…¬¡É•ÅÕ•ÍÑ%¤ì(€€€¥ÁI•¹‘•É•È¹½¸ Ý½É­ÍÁ…”é‰•™½É”µ±½Í”œ°±¥ÍÑ•¹•È¤ì(€€€¥ÁI•¹‘•É•È¹Í•¹ Ý½É­ÍÁ…”é±½Í”µ¡…¹‘±•ÈµÉ•…‘äœ°ÑÉÕ”¤ì(€€€É•ÑÕÉ¸€ ¤€ôøì(€€€€€¥ÁI•¹‘•É•È¹É•µ½Ù•1¥ÍÑ•¹•È Ý½É­ÍÁ…”é‰•™½É”µ±½Í”œ°±¥ÍÑ•¹•È¤ì(€€€€€¥ÁI•¹‘•É•È¹Í•¹ Ý½É­ÍÁ…”é±½Í”µ¡…¹‘±•ÈµÉ•…‘äœ°™…±Í”¤ì(€€€ôì(€ô°(€±½Í•I•ÍÕ±Ðè€¡É•ÍÕ±Ð¤€ôø¥ÁI•¹‘•É•È¹¥¹Ù½­” Ý½É­ÍÁ…”é±½Í”µÉ•ÍÕ±Ðœ°É•ÍÕ±Ð¤°)ô¤ì
+const { contextBridge, ipcRenderer } = require('electron');
+
+contextBridge.exposeInMainWorld('storyWorkbench', {
+  readClipboard: () => ipcRenderer.invoke('editing:clipboard-read'),
+  writeClipboard: (value) => ipcRenderer.invoke('editing:clipboard-write', value),
+  /* æœ¬åœ°å·¥ç¨‹åº“ï¼šæ¯ä¸ª key ä¸€ä»½ç‹¬ç«‹å†…å®¹ã€æ¢å¤åŽ†å²å’Œå¤–éƒ¨ä¿å­˜ä½ç½® */
+  library: {
+    list: () => ipcRenderer.invoke('library:list'),
+    loadLegacy: () => ipcRenderer.invoke('library:load-legacy'),
+    adoptLegacy: (bytes, meta) => ipcRenderer.invoke('library:adopt-legacy', bytes, meta),
+    load: (key) => ipcRenderer.invoke('library:load', key),
+    create: (bytes, meta) => ipcRenderer.invoke('library:create', bytes, meta),
+    rename: (key, name) => ipcRenderer.invoke('library:rename', key, name),
+    save: (key, bytes, options) => ipcRenderer.invoke('library:save', key, bytes, options),
+    saveAs: (key, bytes) => ipcRenderer.invoke('library:save-as', key, bytes),
+    saveTarget: (key) => ipcRenderer.invoke('library:save-target', key),
+    openSaveFolder: (key) => ipcRenderer.invoke('library:open-save-folder', key),
+    historyList: (key) => ipcRenderer.invoke('library:history-list', key),
+    historyLoad: (key, id) => ipcRenderer.invoke('library:history-load', key, id),
+    restorePoint: (key) => ipcRenderer.invoke('library:restore-point', key),
+    restoreApply: (key, bytes) => ipcRenderer.invoke('library:restore-apply', key, bytes),
+    importBackup: (key) => ipcRenderer.invoke('library:import-backup', key),
+    importBackupApply: (key, bytes) => ipcRenderer.invoke('library:import-backup-apply', key, bytes),
+    importCommit: (key, bytes, meta) => ipcRenderer.invoke('library:import-commit', key, bytes, meta),
+    setActive: (key) => ipcRenderer.invoke('library:set-active', key),
+  },
+  exportProject: (bytes) => ipcRenderer.invoke('workspace:export', bytes),
+  exportReviewPack: (bytes) => ipcRenderer.invoke('workspace:review-export', bytes),
+  exportDocument: (value) => ipcRenderer.invoke('workspace:export-document', value),
+  importAiChanges: () => ipcRenderer.invoke('workspace:ai-changes-import'),
+  importProject: () => ipcRenderer.invoke('workspace:import'),
+  chooseAssets: () => ipcRenderer.invoke('assets:choose'),
+  onBeforeClose: (callback) => {
+    const listener = (_event, requestId) => callback(requestId);
+    ipcRenderer.on('workspace:before-close', listener);
+    ipcRenderer.send('workspace:close-handler-ready', true);
+    return () => {
+      ipcRenderer.removeListener('workspace:before-close', listener);
+      ipcRenderer.send('workspace:close-handler-ready', false);
+    };
+  },
+  closeResult: (result) => ipcRenderer.invoke('workspace:close-result', result),
+});

@@ -1,2 +1,51 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞìÙ…±¥‘…Ñ•AÉ½©•Ğô™É½´€œ¸¸½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ğ¹µ©Ìœì)¥µÁ½ÉĞìµ¥É…Ñ•AÉ½©•Ğô™É½´€œ¸¸½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì()•áÁ½ÉĞ…Íå¹Œ™Õ¹Ñ¥½¸É•…Ñ•AÉ½©•ÑÉ¡¥Ù”¡ÁÉ½©•Ğ°…ÍÍ•ÑI•½É‘Ì¤ì(€¥˜€ …±½‰…±Q¡¥Ì¹)Mi¥À¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–2î’îÛšr«¢ö÷–—œ¤ì(€Ù…±¥‘…Ñ•AÉ½©•Ğ¡ÁÉ½©•Ğ¤ì(€½¹ÍĞé¥À€ô¹•Ü±½‰…±Q¡¥Ì¹)Mi¥À ¤ì(€é¥À¹™¥±” ÁÉ½©•Ğ¹©Í½¸œ°)M=8¹ÍÑÉ¥¹¥™ä¡ÁÉ½©•Ğ°¹Õ±°°€È¤¤ì(€™½È€¡½¹ÍĞ…ÍÍ•Ğ½˜ÁÉ½©•Ğ¹…ÍÍ•ÑÌ¤ì(€€€½¹ÍĞÉ•½É€ô…ÍÍ•ÑI•½É‘Ì¹™¥¹ ¡¥Ñ•´¤€ôø¥Ñ•´¹¥€ôôô…ÍÍ•Ğ¹¥¤ì(€€€¥˜€ …É•½Éü¹‰±½ˆ¤Ñ¡É½Ü¹•ÜÉÉ½È¡ƒÒƒšvCŠp‘í…ÍÍ•Ğ¹¹…µ•÷Šw–öO–&7’â7–>¿R£¾ò3–Ş—¢/–2šr«–¾ó–ë	€¤ì(€€€é¥À¹™¥±”¡…ÍÍ•ÑÌ¼‘í…ÍÍ•Ğ¹¥‘õ€°É•½É¹‰±½ˆ¤ì(€ô(€É•ÑÕÉ¸é¥À¹•¹•É…Ñ•Íå¹Œ¡ìÑåÁ”è€‰±½ˆœ°½µÁÉ•ÍÍ¥½¸è€1Qœ°½µÁÉ•ÍÍ¥½¹=ÁÑ¥½¹Ìèì±•Ù•°è€Ôôô¤ì)ô()•áÁ½ÉĞ…Íå¹Œ™Õ¹Ñ¥½¸É•…‘AÉ½©•ÑÉ¡¥Ù”¡™¥±”¤ì(€¥˜€ …±½‰…±Q¡¥Ì¹)Mi¥À¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–2î’îÛšr«¢ö÷–—œ¤ì(€±•Ğé¥Àì(€ÑÉäì(€€€é¥À€ô…İ…¥Ğ±½‰…±Q¡¥Ì¹)Mi¥À¹±½…‘Íå¹Œ¡™¥±”°ì¡•­IÌÈèÑÉÕ”ô¤ì(€ô…Ñ ì(€€€Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–2š^ƒšÎW¢¾ï–>[¾ò3šZ’îÛ–>¿¢÷–ŞËš6–v?œ¤ì(€ô((€½¹ÍĞé¥Á¹ÑÉ¥•Ì€ô=‰©•Ğ¹Ù…±Õ•Ì¡é¥À¹™¥±•Ì¤¹™¥±Ñ•È ¡•¹ÑÉä¤€ôø€…•¹ÑÉä¹‘¥È¤ì(€½¹ÍĞÁÉ½©•Ñ¹ÑÉä€ôé¥Á¹ÑÉ¥•Ì¹™¥¹ ¡•¹ÑÉä¤€ôø•¹ÑÉä¹¹…µ”€ôôô€ÁÉ½©•Ğ¹©Í½¸œ¤ì(€½¹ÍĞ•áÁ…¹‘•‘	åÑ•Ì€ôé¥Á¹ÑÉ¥•Ì¹É•‘Õ” ¡ÍÕ´°•¹ÑÉä¤€ôøÍÕ´€¬€¡•¹ÑÉä¹}‘…Ñ„ü¹Õ¹½µÁÉ•ÍÍ•‘M¥é”€üü€À¤°€À¤ì(€¥˜€¡é¥Á¹ÑÉ¥•Ì¹±•¹Ñ €ø€ÄÀÀÀÈñğ•áÁ…¹‘•‘	åÑ•Ì€ø€ÔÄÈ€¨€ÄÀÈĞ€¨€ÄÀÈĞñğ€¡ÁÉ½©•Ñ¹ÑÉäü¹}‘…Ñ„ü¹Õ¹½µÁÉ•ÍÍ•‘M¥é”€üü€À¤€ø€ÌÈ€¨€ÄÀÈĞ€¨€ÄÀÈĞ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–2–ÆW–ò–B;¢Ú¢ş–º'–£¦fC–"Ûœ¤ì((€½¹ÍĞÁÉ½©•Ñ¥±”€ôé¥À¹™¥±” ÁÉ½©•Ğ¹©Í½¸œ¤ì(€¥˜€ …ÁÉ½©•Ñ¥±”¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/–2òë–ÂDÁÉ½©•Ğ¹©Í½»œ¤ì(€±•ĞÁÉ½©•Ğì(€ÑÉäì(€€€ÁÉ½©•Ğ€ôµ¥É…Ñ•AÉ½©•Ğ¡)M=8¹Á…ÉÍ”¡…İ…¥ĞÁÉ½©•Ñ¥±”¹…Íå¹Œ ÍÑÉ¥¹œœ¤¤¤ì(€€€Ù…±¥‘…Ñ•AÉ½©•Ğ¡ÁÉ½©•Ğ¤ì(€ô…Ñ €¡•ÉÉ½È¤ì(€€€Ñ¡É½Ü¹•ÜÉÉ½È¡•ÉÉ½È¹µ•ÍÍ…”ñğ€Ÿ–Ş—¢/šZ’îÛš‚ó–ò?š^ƒšV#œ¤ì(€ô((€½¹ÍĞÉ•½É‘Ì€ômtì(€™½È€¡½¹ÍĞ…ÍÍ•Ğ½˜ÁÉ½©•Ğ¹…ÍÍ•ÑÌ¤ì(€€€½¹ÍĞ™¥±•¹ÑÉä€ôé¥À¹™¥±”¡…ÍÍ•ÑÌ¼‘í…ÍÍ•Ğ¹¥‘õ€¤ì(€€€¥˜€ …™¥±•¹ÑÉä¤Ñ¡É½Ü¹•ÜÉÉ½È¡ƒ–Ş—¢/–2òë–ÂGÒƒšvCŠp‘í…ÍÍ•Ğ¹¹…µ•÷Šw¾ò3–:–Ş—¢/’şwš2’â7–>c	€¤ì(€€€½¹ÍĞ‰±½ˆ€ô…İ…¥Ğ™¥±•¹ÑÉä¹…Íå¹Œ ‰±½ˆœ¤ì(€€€¥˜€¡‰±½ˆ¹Í¥é”€„ôô…ÍÍ•Ğ¹Í¥é”¤Ñ¡É½Ü¹•ÜÉÉ½È¡ƒÒƒšvCŠp‘í…ÍÍ•Ğ¹¹…µ•÷Šw–’Ÿ–Â?’â;–Ş—¢/šâ–6W’â7’â¢Ó	€¤ì(€€€½¹ÍĞÑåÁ•‘	±½ˆ€ô‰±½ˆ¹ÑåÁ”€ôôô…ÍÍ•Ğ¹µ¥µ”€ü‰±½ˆ€è¹•Ü	±½ˆ¡m…İ…¥Ğ‰±½ˆ¹…ÉÉ…å	Õ™™•È ¥t°ìÑåÁ”è…ÍÍ•Ğ¹µ¥µ”ô¤ì(€€€É•½É‘Ì¹ÁÕÍ ¡ì€¸¸¹…ÍÍ•Ğ°‰±½ˆèÑåÁ•‘	±½ˆô¤ì(€ô(€É•ÑÕÉ¸ìÁÉ½©•Ğ°…ÍÍ•ÑÌèÉ•½É‘Ìôì)ô(
+import { validateProject } from '../domain/model/project.mjs';
+import { migrateProject } from '../domain/model/chapters.mjs';
+
+export async function createProjectArchive(project, assetRecords) {
+  if (!globalThis.JSZip) throw new Error('å·¥ç¨‹åŒ…ç»„ä»¶æœªè½½å…¥ã€‚');
+  validateProject(project);
+  const zip = new globalThis.JSZip();
+  zip.file('project.json', JSON.stringify(project, null, 2));
+  for (const asset of project.assets) {
+    const record = assetRecords.find((item) => item.id === asset.id);
+    if (!record?.blob) throw new Error(`ç´ æâ€œ${asset.name}â€å½“å‰ä¸å¯ç”¨ï¼Œå·¥ç¨‹åŒ…æœªå¯¼å‡ºã€‚`);
+    zip.file(`assets/${asset.id}`, record.blob);
+  }
+  return zip.generateAsync({ type: 'blob', compression: 'DEFLATE', compressionOptions: { level: 5 } });
+}
+
+export async function readProjectArchive(file) {
+  if (!globalThis.JSZip) throw new Error('å·¥ç¨‹åŒ…ç»„ä»¶æœªè½½å…¥ã€‚');
+  let zip;
+  try {
+    zip = await globalThis.JSZip.loadAsync(file, { checkCRC32: true });
+  } catch {
+    throw new Error('å·¥ç¨‹åŒ…æ— æ³•è¯»å–ï¼Œæ–‡ä»¶å¯èƒ½å·²æŸåã€‚');
+  }
+
+  const zipEntries = Object.values(zip.files).filter((entry) => !entry.dir);
+  const projectEntry = zipEntries.find((entry) => entry.name === 'project.json');
+  const expandedBytes = zipEntries.reduce((sum, entry) => sum + (entry._data?.uncompressedSize ?? 0), 0);
+  if (zipEntries.length > 10002 || expandedBytes > 512 * 1024 * 1024 || (projectEntry?._data?.uncompressedSize ?? 0) > 32 * 1024 * 1024) throw new Error('å·¥ç¨‹åŒ…å±•å¼€åè¶…è¿‡å®‰å…¨é™åˆ¶ã€‚');
+
+  const projectFile = zip.file('project.json');
+  if (!projectFile) throw new Error('å·¥ç¨‹åŒ…ç¼ºå°‘ project.jsonã€‚');
+  let project;
+  try {
+    project = migrateProject(JSON.parse(await projectFile.async('string')));
+    validateProject(project);
+  } catch (error) {
+    throw new Error(error.message || 'å·¥ç¨‹æ–‡ä»¶æ ¼å¼æ— æ•ˆã€‚');
+  }
+
+  const records = [];
+  for (const asset of project.assets) {
+    const fileEntry = zip.file(`assets/${asset.id}`);
+    if (!fileEntry) throw new Error(`å·¥ç¨‹åŒ…ç¼ºå°‘ç´ æâ€œ${asset.name}â€ï¼ŒåŸå·¥ç¨‹ä¿æŒä¸å˜ã€‚`);
+    const blob = await fileEntry.async('blob');
+    if (blob.size !== asset.size) throw new Error(`ç´ æâ€œ${asset.name}â€å¤§å°ä¸å·¥ç¨‹æ¸…å•ä¸ä¸€è‡´ã€‚`);
+    const typedBlob = blob.type === asset.mime ? blob : new Blob([await blob.arrayBuffer()], { type: asset.mime });
+    records.push({ ...asset, blob: typedBlob });
+  }
+  return { project, assets: records };
+}

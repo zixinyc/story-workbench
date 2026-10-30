@@ -1,2 +1,27 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•áÁ½ÉÐÑåÁ”A…É…É…Á¡É½ÁQ…É•Ð€ôìÑåÁ”è€É½ÕÀœìÉ½ÕÁ%èÍÑÉ¥¹œôðìÑåÁ”è€Á…É…É…Á œìÁ…É…É…Á¡%èÍÑÉ¥¹œìÁ½Í¥Ñ¥½¸è€‰•™½É”œð€…™Ñ•Èœôì)•áÁ½ÉÐ™Õ¹Ñ¥½¸Á…É…É…Á¡	½‘å	½Õ¹‘Ì¡Á…É…É…Á è!Q51±•µ•¹Ð¤ì(€½¹ÍÐ‰½Õ¹‘Ì€ôÁ…É…É…Á ¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤ì(€¥˜€¡Á…É…É…Á ¹µ…Ñ¡•Ì œ¹½ÕÑ±¥¹”µÁ…É…É…Á µÉ½Üœ¤¤É•ÑÕÉ¸‰½Õ¹‘Ìì(€½¹ÍÐ¡¥±‘É•¸€ôl¸¸¹Á…É…É…Á ¹¡¥±‘9½‘•Ít¹™¥±Ñ•È ¡¹½‘”¤€ôø€„¡¹½‘”¥¹ÍÑ…¹•½˜±•µ•¹Ð€˜˜¹½‘”¹µ…Ñ¡•Ì m‘…Ñ„µÉ½ÕÀµÁ…É…É…Á µ¥‘t±m‘…Ñ„µÁ…É…É…Á µÑ½½±Ítœ¤¤¤ì(€¥˜€¡¡¥±‘É•¸¹±•¹Ñ ¤ì(€€€½¹ÍÐÉ…¹”€ôÁ…É…É…Á ¹½Ý¹•É½Õµ•¹Ð¹É•…Ñ•I…¹” ¤ì(€€€É…¹”¹Í•ÑMÑ…ÉÑ	•™½É”¡¡¥±‘É•¹lÁt¤ìÉ…¹”¹Í•Ñ¹‘™Ñ•È¡¡¥±‘É•¸¹…Ð ´Ä¤„¤ì(€€€½¹ÍÐ‰½‘ä€ôÉ…¹”¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤ì(€€€¥˜€¡‰½‘ä¹¡•¥¡Ð€ø€À¤É•ÑÕÉ¸‰½‘äì(€ô(€½¹ÍÐÝ¥‘•ÑÌ€ôl¸¸¹Á…É…É…Á ¹¡¥±‘É•¹t¹™¥±Ñ•È ¡¹½‘”¤€ôø¹½‘”¹µ…Ñ¡•Ì m‘…Ñ„µÉ½ÕÀµÁ…É…É…Á µ¥‘t±m‘…Ñ„µÁ…É…É…Á µÑ½½±Ítœ¤¤ì(€½¹ÍÐÑ½À€ô5…Ñ ¹µ¥¸¡‰½Õ¹‘Ì¹‰½ÑÑ½´°5…Ñ ¹µ…à¡‰½Õ¹‘Ì¹Ñ½À€¬€ÄÀ°€¸¸¹Ý¥‘•ÑÌ¹µ…À ¡¹½‘”¤€ôø¹½‘”¹•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ð ¤¹‰½ÑÑ½´€¬€Ü¤¤¤ì(€É•ÑÕÉ¸ì€¸¸¹‰½Õ¹‘Ì°Ñ½À°‰½ÑÑ½´è5…Ñ ¹µ…à¡Ñ½À€¬€Ä°‰½Õ¹‘Ì¹‰½ÑÑ½´€´€ÄÀ¤°¡•¥¡Ðè5…Ñ ¹µ…à Ä°‰½Õ¹‘Ì¹‰½ÑÑ½´€´€ÄÀ€´Ñ½À¤ôì)ô)•áÁ½ÉÐ™Õ¹Ñ¥½¸É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ð¡Ñ…É•ÐèÙ•¹ÑQ…É•Ðð¹Õ±°°±¥•¹Ñdè¹Õµ‰•È°­¥¹è€Á…É…É…Á œð€…Õ‘¥¼œ€ô€Á…É…É…Á œ¤èA…É…É…Á¡É½ÁQ…É•Ðð¹Õ±°ì(€½¹ÍÐ•±•µ•¹Ð€ôÑ…É•Ð¥¹ÍÑ…¹•½˜±•µ•¹Ð€üÑ…É•Ð€è¹Õ±°ì(€½¹ÍÐ¡•…‘•È€ô•±•µ•¹Ðü¹±½Í•ÍÐñ!Q51±•µ•¹Ðø m‘…Ñ„µÉ½ÕÀµ‘É½Átœ¤ì(€¥˜€¡¡•…‘•Èü¹‘…Ñ…Í•Ð¹É½ÕÁÉ½À¤É•ÑÕÉ¸ìÑåÁ”è€É½ÕÀœ°É½ÕÁ%è¡•…‘•È¹‘…Ñ…Í•Ð¹É½ÕÁÉ½Àôì(€½¹ÍÐÁ…É…É…Á €ô•±•µ•¹Ðü¹±½Í•ÍÐñ!Q51±•µ•¹Ðø Ám‘…Ñ„µÁ…É…É…Á µ¥‘t±Ám‘…Ñ„µÁ…É…É…Á¡¥‘t°¹½ÕÑ±¥¹”µÁ…É…É…Á µÉ½Ým‘…Ñ„µÁ…É…É…Á µ¥‘tœ¤ì(€¥˜€ …Á…É…É…Á ¤É•ÑÕÉ¸¹Õ±°ì(€¥˜€¡­¥¹€ôôô€…Õ‘¥¼œ¤É•ÑÕÉ¸Á…É…É…Á ¹‘…Ñ…Í•Ð¹É½ÕÁ%€üìÑåÁ”è€É½ÕÀœ°É½ÕÁ%èÁ…É…É…Á ¹‘…Ñ…Í•Ð¹É½ÕÁ%ô€è¹Õ±°ì(€½¹ÍÐÁ…É…É…Á¡%€ôÁ…É…É…Á ¹•ÑÑÑÉ¥‰ÕÑ” ‘…Ñ„µÁ…É…É…Á µ¥œ¤€üüÁ…É…É…Á ¹•ÑÑÑÉ¥‰ÕÑ” ‘…Ñ„µÁ…É…É…Á¡¥œ¤ì(€¥˜€ …Á…É…É…Á¡%¤É•ÑÕÉ¸¹Õ±°ì(€½¹ÍÐ‰½‘ä€ôÁ…É…É…Á¡	½‘å	½Õ¹‘Ì¡Á…É…É…Á ¤ì(€É•ÑÕÉ¸ìÑåÁ”è€Á…É…É…Á œ°Á…É…É…Á¡%°Á½Í¥Ñ¥½¸è±¥•¹Ñd€ð‰½‘ä¹Ñ½À€¬‰½‘ä¹¡•¥¡Ð€¼€È€ü€‰•™½É”œ€è€…™Ñ•Èœôì)ô(
+export type ParagraphDropTarget = { type: 'group'; groupId: string } | { type: 'paragraph'; paragraphId: string; position: 'before' | 'after' };
+export function paragraphBodyBounds(paragraph: HTMLElement) {
+  const bounds = paragraph.getBoundingClientRect();
+  if (paragraph.matches('.outline-paragraph-row')) return bounds;
+  const children = [...paragraph.childNodes].filter((node) => !(node instanceof Element && node.matches('[data-group-paragraph-id],[data-paragraph-tools]')));
+  if (children.length) {
+    const range = paragraph.ownerDocument.createRange();
+    range.setStartBefore(children[0]); range.setEndAfter(children.at(-1)!);
+    const body = range.getBoundingClientRect();
+    if (body.height > 0) return body;
+  }
+  const widgets = [...paragraph.children].filter((node) => node.matches('[data-group-paragraph-id],[data-paragraph-tools]'));
+  const top = Math.min(bounds.bottom, Math.max(bounds.top + 10, ...widgets.map((node) => node.getBoundingClientRect().bottom + 7)));
+  return { ...bounds, top, bottom: Math.max(top + 1, bounds.bottom - 10), height: Math.max(1, bounds.bottom - 10 - top) };
+}
+export function resolveParagraphDropTarget(target: EventTarget | null, clientY: number, kind: 'paragraph' | 'audio' = 'paragraph'): ParagraphDropTarget | null {
+  const element = target instanceof Element ? target : null;
+  const header = element?.closest<HTMLElement>('[data-group-drop]');
+  if (header?.dataset.groupDrop) return { type: 'group', groupId: header.dataset.groupDrop };
+  const paragraph = element?.closest<HTMLElement>('p[data-paragraph-id],p[data-paragraphid],.outline-paragraph-row[data-paragraph-id]');
+  if (!paragraph) return null;
+  if (kind === 'audio') return paragraph.dataset.groupId ? { type: 'group', groupId: paragraph.dataset.groupId } : null;
+  const paragraphId = paragraph.getAttribute('data-paragraph-id') ?? paragraph.getAttribute('data-paragraphid');
+  if (!paragraphId) return null;
+  const body = paragraphBodyBounds(paragraph);
+  return { type: 'paragraph', paragraphId, position: clientY < body.top + body.height / 2 ? 'before' : 'after' };
+}

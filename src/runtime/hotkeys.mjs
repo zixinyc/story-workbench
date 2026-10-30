@@ -1,2 +1,5 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•áÁ½ÉĞ™Õ¹Ñ¥½¸Í¡½Õ±‘!…¹‘±•A±…å‰…­MÁ…”¡•Ù•¹Ğ¤ì(€¥˜€ …lœ€œ°€MÁ…•‰…Èt¹¥¹±Õ‘•Ì¡•Ù•¹Ğ¹­•ä¤ñğ•Ù•¹Ğ¹‘•™…Õ±ÑAÉ•Ù•¹Ñ•ñğ•Ù•¹Ğ¹É•Á•…Ğñğ•Ù•¹Ğ¹¥Í½µÁ½Í¥¹œñğ•Ù•¹Ğ¹­•å½‘”€ôôô€ÈÈäñğ•Ù•¹Ğ¹ÑÉ±-•äñğ•Ù•¹Ğ¹µ•Ñ…-•äñğ•Ù•¹Ğ¹…±Ñ-•äñğ•Ù•¹Ğ¹Í¡¥™Ñ-•ä¤É•ÑÕÉ¸™…±Í”ì(€½¹ÍĞÑ…É•Ğ€ô•Ù•¹Ğ¹Ñ…É•Ğì(€É•ÑÕÉ¸€…Ñ…É•Ğü¹¥Í½¹Ñ•¹Ñ‘¥Ñ…‰±”€˜˜€…Ñ…É•Ğü¹±½Í•ÍĞü¸ ¥¹ÁÕĞ±Ñ•áÑ…É•„±Í•±•Ğ±‰ÕÑÑ½¸±„±m½¹Ñ•¹Ñ•‘¥Ñ…‰±•t±mÉ½±”ô‰Ñ•áÑ‰½à‰t±mÉ½±”ô‰‘¥…±½œ‰tœ¤ì)ô
+export function shouldHandlePlaybackSpace(event) {
+  if (![' ', 'Spacebar'].includes(event.key) || event.defaultPrevented || event.repeat || event.isComposing || event.keyCode === 229 || event.ctrlKey || event.metaKey || event.altKey || event.shiftKey) return false;
+  const target = event.target;
+  return !target?.isContentEditable && !target?.closest?.('input,textarea,select,button,a,[contenteditable],[role="textbox"],[role="dialog"]');
+}

@@ -1,4 +1,15 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞì½µÁ¥±•½Õµ•¹Ğô™É½´€œ¸¸½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ğ¹µ©Ìœì)•áÁ½ÉĞ™Õ¹Ñ¥½¸…ÍÍ•ÑUÍ…•Ì¡ÁÉ½©•Ğ°…ÍÍ•Ñ%¤ì(€½¹ÍĞÉ•ÍÕ±Ğ€ômtì(€™½È€¡½¹ÍĞ¡…ÁÑ•È½˜ÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¤ì(€€€™½È€¡½¹ÍĞm¥¹‘•à°Õ•t½˜½µÁ¥±•½Õµ•¹Ğ¡¡…ÁÑ•È¹‘½Õµ•¹Ğ¤¹•¹ÑÉ¥•Ì ¤¤ì(€€€€€¥˜€¡Õ”¹Í•ÑÑ¥¹Ì¹‰…­É½Õ¹‘%€ôôô…ÍÍ•Ñ%ñğÕ”¹Í•ÑÑ¥¹Ì¹…Õ‘¥½%€ôôô…ÍÍ•Ñ%ñğÕ”¹Í•ÑÑ¥¹Ì¹Í•¹•1…å•ÉÌü¹Í½µ” ¡±…å•È¤€ôø±…å•È¹…ÍÍ•Ñ%€ôôô…ÍÍ•Ñ%¤¤ì(€€€€€€€É•ÍÕ±Ğ¹ÁÕÍ ¡¡…ÁÑ•È¹¹…µ”€¬€œƒ
-Üƒ²°€œ€¬€¡¥¹‘•à€¬€Ä¤€¬€œƒ–>”œ¤ì(€€€€€ô(€€€ô(€€€™½È€¡½¹ÍĞÉ…¹”½˜¡…ÁÑ•È¹µÕÍ¥I…¹•Ì¤ì(€€€€€¥˜€¡É…¹”¹…ÍÍ•Ñ%€ôôô…ÍÍ•Ñ%¤É•ÍÕ±Ğ¹ÁÕÍ ¡¡…ÁÑ•È¹¹…µ”€¬€œƒ
-Üƒ¢3šf¿¦~Ï’æC¢2–nĞœ¤ì(€€€ô(€ô(€É•ÑÕÉ¸É•ÍÕ±Ğì)ô
+import { compileDocument } from '../domain/model/document.mjs';
+export function assetUsages(project, assetId) {
+  const result = [];
+  for (const chapter of project.chapters) {
+    for (const [index, cue] of compileDocument(chapter.document).entries()) {
+      if (cue.settings.backgroundId === assetId || cue.settings.audioId === assetId || cue.settings.sceneLayers?.some((layer) => layer.assetId === assetId)) {
+        result.push(chapter.name + ' Â· ç¬¬ ' + (index + 1) + ' å¥');
+      }
+    }
+    for (const range of chapter.musicRanges) {
+      if (range.assetId === assetId) result.push(chapter.name + ' Â· èƒŒæ™¯éŸ³ä¹èŒƒå›´');
+    }
+  }
+  return result;
+}

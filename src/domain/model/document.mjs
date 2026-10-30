@@ -1,6 +1,147 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞìMUAA=IQ}5=Q%=9L°Ù…±¥‘…Ñ•5½Ñ¥½¹M•ÑÑ¥¹Ìô™É½´€œ¸¸¼¸¸½µ½Ñ¥½¸½•™™•ÑÌ¹µ©Ìœì()•áÁ½ÉĞ½¹ÍĞU1Q}MQQ%9L€ô=‰©•Ğ¹™É••é”¡ì(€µ½‘”è€‘¥…±½Õ”œ°(€ÍÁ•…­•Èè€œœ°(€™½¹ÑM¥é”è€Ğà°(€½±½Èè€œ˜Õ˜Å”äœ°(€àè€äØÀ°(€äè€ÔĞÀ°(€…±¥¸è€•¹Ñ•Èœ°(€µ½Ñ¥½¸è€¹½¹”œ°(€…‘Ù…¹”è€±¥¬œ°(€‘ÕÉ…Ñ¥½¹5Ìè€ÌÔÀÀ°(€‰…­É½Õ¹‘%è¹Õ±°°(€…Õ‘¥½%è¹Õ±°°)ô¤ì()•áÁ½ÉĞ™Õ¹Ñ¥½¸µ…­•%¡ÁÉ•™¥à€ô€¥œ¤ì(€½¹ÍĞÙ…±Õ”€ô±½‰…±Q¡¥Ì¹ÉåÁÑ¼ü¹É…¹‘½µUU%ü¸ ¤€üü€‘í…Ñ”¹¹½Ü ¤¹Ñ½MÑÉ¥¹œ ÌØ¥ô´‘í5…Ñ ¹É…¹‘½´ ¤¹Ñ½MÑÉ¥¹œ ÌØ¤¹Í±¥” È°€ÄÀ¥õ€ì(€É•ÑÕÉ¸€‘íÁÉ•™¥áô´‘íÙ…±Õ•õ€ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸±½¹”¡Ù…±Õ”¤ì(€É•ÑÕÉ¸ÍÑÉÕÑÕÉ•‘±½¹”¡Ù…±Õ”¤ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸‘•™…Õ±ÑM•ÑÑ¥¹Ì¡½Ù•ÉÉ¥‘•Ì€ôíô¤ì(€É•ÑÕÉ¸ì€¸¸¹U1Q}MQQ%9L°€¸¸¹½Ù•ÉÉ¥‘•Ìôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸Á±…¥¹Q•áĞ¡¹½‘•Ì€ômt¤ì(€É•ÑÕÉ¸¹½‘•Ì¹µ…À ¡¹½‘”¤€ôø¹½‘”¹ÑåÁ”€ôôô€Õ”œ€üÁ±…¥¹Q•áĞ¡¹½‘”¹¡¥±‘É•¸¤€è¹½‘”¹Ñ•áĞ€üü€œœ¤¹©½¥¸ œœ¤ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸Á±…¥¹Õ•%¡Á…É…É…Á¡%°¥¹‘•à°É•Í•ÉÙ•€ô¹•ÜM•Ğ ¤¤ì(€±•Ğ¥€ôMÑÉ¥¹œ¡Á…É…É…Á¡%¤€¬€œµÁ±…¥¸´œ€¬¥¹‘•àì(€İ¡¥±”€¡É•Í•ÉÙ•¹¡…Ì¡¥¤¤¥€¬ô€œµÉ…Üœì(€É•ÑÕÉ¸¥ì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸½µÁ¥±•½Õµ•¹Ğ¡‘½Õµ•¹Ğ¤ì(€½¹ÍĞÕ•Ì€ômtì(€½¹ÍĞÉ•Í•ÉÙ•€ô¹•ÜM•Ğ ¡‘½Õµ•¹Ğ¹‰±½­Ì€üümt¤¹™±…Ñ5…À ¡Á…É…É…Á ¤€ôøÁ…É…É…Á ¹¡¥±‘É•¸¹™¥±Ñ•È ¡¹½‘”¤€ôø¹½‘”¹ÑåÁ”€ôôô€Õ”œ¤¹µ…À ¡¹½‘”¤€ôø¹½‘”¹¥¤¤¤ì(€™½È€¡½¹ÍĞÁ…É…É…Á ½˜‘½Õµ•¹Ğ¹‰±½­Ì€üümt¤ì(€€€±•Ğ±½½Í”€ômtì(€€€±•Ğ±½½Í•%¹‘•à€ô€Àì(€€€½¹ÍĞ™±ÕÍ¡1½½Í”€ô€ ¤€ôøì(€€€€€½¹ÍĞÑ•áĞ€ôÁ±…¥¹Q•áĞ¡±½½Í”¤ì(€€€€€¥˜€¡Ñ•áĞ¹ÑÉ¥´ ¤¤ì(€€€€€€€½¹ÍĞ¥€ôÁ±…¥¹Õ•%¡Á…É…É…Á ¹¥°±½½Í•%¹‘•à°É•Í•ÉÙ•¤ì(€€€€€€€Õ•Ì¹ÁÕÍ ¡ì¥°Á…É…É…Á¡%èÁ…É…É…Á ¹¥°Í•ÑÑ¥¹Ìè‘•™…Õ±ÑM•ÑÑ¥¹Ì ¤°¡¥±‘É•¸è±½¹”¡±½½Í”¤°Ñ•áĞô¤ì(€€€€€€€±½½Í•%¹‘•à€¬ô€Äì(€€€€€ô(€€€€€±½½Í”€ômtì(€€€ôì((€€€™½È€¡½¹ÍĞ¹½‘”½˜Á…É…É…Á ¹¡¥±‘É•¸€üümt¤ì(€€€€€¥˜€¡¹½‘”¹ÑåÁ”€ôôô€Õ”œ¤ì(€€€€€€€™±ÕÍ¡1½½Í” ¤ì(€€€€€€€½¹ÍĞÍ•ÑÑ¥¹Ì€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡¹½‘”¹Í•ÑÑ¥¹Ì¤ì(€€€€€€€Õ•Ì¹ÁÕÍ ¡ì¥è¹½‘”¹¥°Á…É…É…Á¡%èÁ…É…É…Á ¹¥°Í•ÑÑ¥¹Ì°¡¥±‘É•¸è±½¹”¡¹½‘”¹¡¥±‘É•¸¤°Ñ•áĞèÁ±…¥¹Q•áĞ¡¹½‘”¹¡¥±‘É•¸¤ô¤ì(€€€€€ô•±Í”ì(€€€€€€€±½½Í”¹ÁÕÍ ¡±½¹”¡¹½‘”¤¤ì(€€€€€ô(€€€ô(€€€™±ÕÍ¡1½½Í” ¤ì(€ô(€É•ÑÕÉ¸Õ•Ì¹™¥±Ñ•È ¡Õ”¤€ôøÕ”¹Ñ•áĞ¹ÑÉ¥´ ¤¤ì)ô(()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•Í½±Ù•MÑ…Ñ”¡Á±…¸°Õ•%¤ì(€±•Ğ‰…­É½Õ¹‘%€ô¹Õ±°ì(€±•ĞÍ•¹•1…å•ÉÌ€ômtì(€™½È€¡½¹ÍĞÕ”½˜Á±…¸¤ì(€€€¥˜€¡Õ”¹Í•ÑÑ¥¹Ì¹‰…­É½Õ¹‘%€ôôô€}}±•…É}|œ¤‰…­É½Õ¹‘%€ô¹Õ±°ì(€€€•±Í”¥˜€¡Õ”¹Í•ÑÑ¥¹Ì¹‰…­É½Õ¹‘%¤‰…­É½Õ¹‘%€ôÕ”¹Í•ÑÑ¥¹Ì¹‰…­É½Õ¹‘%ì(€€€¥˜€¡ÉÉ…ä¹¥ÍÉÉ…ä¡Õ”¹Í•ÑÑ¥¹Ì¹Í•¹•1…å•ÉÌ¤¤Í•¹•1…å•ÉÌ€ô±½¹”¡Õ”¹Í•ÑÑ¥¹Ì¹Í•¹•1…å•ÉÌ¤ì(€€€¥˜€¡Õ”¹¥€ôôôÕ•%¤É•ÑÕÉ¸ì‰…­É½Õ¹‘%°Í•¹•1…å•ÉÌôì(€ô(€É•ÑÕÉ¸ì‰…­É½Õ¹‘%è¹Õ±°°Í•¹•1…å•ÉÌèmtôì)ô()•áÁ½ÉĞ™Õ¹Ñ¥½¸Ù…±¥‘…Ñ•½Õµ•¹Ğ¡‘½Õµ•¹Ğ¤ì(€¥˜€ …‘½Õµ•¹Ğñğ‘½Õµ•¹Ğ¹ÑåÁ”€„ôô€‘½Œœñğ€…ÉÉ…ä¹¥ÍÉÉ…ä¡‘½Õµ•¹Ğ¹‰±½­Ì¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–Ş—¢/š¶šZîOšzš^ƒšV#œ¤ì(€½¹ÍĞ¥‘Ì€ô¹•ÜM•Ğ ¤ì(€½¹ÍĞÙ¥Í¥Ğ€ô€¡¹½‘”¤€ôøì(€€€¥˜€¡¹½‘”¹ÑåÁ”€ôôô€Á…É…É…Á œñğ¹½‘”¹ÑåÁ”€ôôô€Õ”œ¤ì(€€€€€¥˜€ …¹½‘”¹¥ñğ¥‘Ì¹¡…Ì¡¹½‘”¹¥¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿšº×¢B÷š"[šòS–ë–6W–%ƒòë–’Çš"[¦7–’7œ¤ì(€€€€€¥‘Ì¹…‘¡¹½‘”¹¥¤ì(€€€€€¥˜€ …ÉÉ…ä¹¥ÍÉÉ…ä¡¹½‘”¹¡¥±‘É•¸¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿš¶šZ¢*
-çòë–ÂG––ºçœ¤ì(€€€€€¥˜€¡¹½‘”¹ÑåÁ”€ôôô€Õ”œ€˜˜¹½‘”¹Í•ÑÑ¥¹Ìü¹Í•¹•1…å•ÉÌ€„ôôÕ¹‘•™¥¹•¤ì(€€€€€€€¥˜€ …ÉÉ…ä¹¥ÍÉÉ…ä¡¹½‘”¹Í•ÑÑ¥¹Ì¹Í•¹•1…å•ÉÌ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–rëšf¿–nû–ÆîOšzš^ƒšV#œ¤ì(€€€€€€€½¹ÍĞ±…å•É%‘Ì€ô¹•ÜM•Ğ ¤ì(€€€€€€€™½È€¡½¹ÍĞ±…å•È½˜¹½‘”¹Í•ÑÑ¥¹Ì¹Í•¹•1…å•ÉÌ¤ì(€€€€€€€€€¥˜€¡ÑåÁ•½˜±…å•È¹¥€„ôô€ÍÑÉ¥¹œœñğ€…±…å•È¹¥ñğ±…å•É%‘Ì¹¡…Ì¡±…å•È¹¥¤ñğÑåÁ•½˜±…å•È¹…ÍÍ•Ñ%€„ôô€ÍÑÉ¥¹œœñğ€…±…å•È¹…ÍÍ•Ñ%¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–rëšf¿–nû–Æ%ƒš"[ÒƒšvC–òWR£š^ƒšV#œ¤ì(€€€€€€€€€¥˜€ …m±…å•È¹à°±…å•È¹ä°±…å•È¹İ¥‘Ñ °±…å•È¹¡•¥¡Ğ°±…å•È¹½Á…¥Ñä°±…å•È¹é%¹‘•át¹•Ù•Éä¡9Õµ‰•È¹¥Í¥¹¥Ñ”¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–rëšf¿–nû–Æ’ö7ö»š"[–Âë–¾ãš^ƒšV#œ¤ì(€€€€€€€€€¥˜€¡±…å•È¹à€ğ€Àñğ±…å•È¹à€ø€ÄäÈÀñğ±…å•È¹ä€ğ€Àñğ±…å•È¹ä€ø€ÄÀàÀñğ±…å•È¹İ¥‘Ñ €ğô€Àñğ±…å•È¹İ¥‘Ñ €ø€ÌàĞÀñğ±…å•È¹¡•¥¡Ğ€ğô€Àñğ±…å•È¹¡•¥¡Ğ€ø€ÈÄØÀñğ±…å•È¹½Á…¥Ñä€ğ€Àñğ±…å•È¹½Á…¥Ñä€ø€Äñğ€…9Õµ‰•È¹¥Í%¹Ñ••È¡±…å•È¹é%¹‘•à¤ñğ±…å•È¹é%¹‘•à€ğ€À¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–rëšf¿–nû–Æ–Âë–¾ã–vCš‚–ÆêŸš"[¦?šb;–ê›¢Ú–ë¢2–nÓœ¤ì(€€€€€€€€€¥˜€¡±…å•È¹É½Ñ…Ñ¥½¸€„ôôÕ¹‘•™¥¹•€˜˜€ …9Õµ‰•È¹¥Í¥¹¥Ñ”¡±…å•È¹É½Ñ…Ñ¥½¸¤ñğ5…Ñ ¹…‰Ì¡±…å•È¹É½Ñ…Ñ¥½¸¤€ø€ÌØÀÀ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–rëšf¿–nû–Æš^/¢ö³¢K–ê›š^ƒšV#œ¤ì(€€€€€€€€€¥˜€¡l™±¥Á`œ°€™±¥Ádœ°€±½­•œ°€¡¥‘‘•¸œ°€Ù¥‘•½5ÕÑ•œ°€Ù¥‘•½1½½Àt¹Í½µ” ¡­•ä¤€ôø±…å•Ém­•åt€„ôôÕ¹‘•™¥¹•€˜˜ÑåÁ•½˜±…å•Ém­•åt€„ôô€‰½½±•…¸œ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–rëšf¿–nû–Æ–ò–Ïš^ƒšV#œ¤ì(€€€€€€€€€¥˜€¡±…å•È¹™¥Ğ€„ôôÕ¹‘•™¥¹•€˜˜€…l½¹Ñ…¥¸œ°€½Ù•Èœ°€™¥±°t¹¥¹±Õ‘•Ì¡±…å•È¹™¥Ğ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–rëšf¿–nû–Æ¦¦7šZç–ò?š^ƒšV#œ¤ì(€€€€€€€€€¥˜€¡±…å•È¹Ù¥‘•½Y½±Õµ”€„ôôÕ¹‘•™¥¹•€˜˜€ …9Õµ‰•È¹¥Í¥¹¥Ñ”¡±…å•È¹Ù¥‘•½Y½±Õµ”¤ñğ±…å•È¹Ù¥‘•½Y½±Õµ”€ğ€Àñğ±…å•È¹Ù¥‘•½Y½±Õµ”€ø€Ä¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢¦ŠG–:–Ã¦~Ï¦?š^ƒšV#œ¤ì(€€€€€€€€€¥˜€¡±…å•È¹Ù¥‘•½MÑ…ÉÑ5Ì€„ôôÕ¹‘•™¥¹•€˜˜€ …9Õµ‰•È¹¥Í¥¹¥Ñ”¡±…å•È¹Ù¥‘•½MÑ…ÉÑ5Ì¤ñğ±…å•È¹Ù¥‘•½MÑ…ÉÑ5Ì€ğ€À¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢¦ŠG&šº×¢Öß
-çš^ƒšV#œ¤ì(€€€€€€€€€¥˜€¡±…äV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅæW"çf–FVôVæD×2ÓÒVæFVf–æVBbb‚çVÖ&W"æ—4f–æ—FR†Æ–W"çf–FVôVæD×2’ÇÂÆ–W"çf–FVôVæD×2ÃÒ†Æ–W"çf–FVõ7F'D×2óò’’’F‡&÷ræWrW'&÷"‚~Šxnš)x˜~jë^{¸x+[ø^š¾i™®K¨î‹[~x+8"r“°¢–b†Æ–W"æ7&÷ÓÒVæFVf–æVB’°¢6öç7B7&÷ÒÆ–W"æ7&÷°¢–b‚7&÷ÇÂ²vÆVgBrÂwF÷rÂw&–v‡BrÂv&÷GFöÒuÒæWfW'’‚†¶W’’ÓâçVÖ&W"æ—4f–æ—FR†7&÷¶¶W•Ò’bb7&÷¶¶W•ÒãÒbb7&÷¶¶W•ÒÂã“R’ÇÂ7&÷æÆVgB²7&÷ç&–v‡BãÒã“RÇÂ7&÷çF÷²7&÷æ&÷GFöÒãÒã“R’F‡&÷ræWrW'&÷"‚~Y»îx˜~Š8Xš®ˆÈ>Y»NiziX8"r“°¢Ğ¢Æ–W$–G2æFB†Æ–W"æ–B“°¢Ğ¢Ğ¢–b†æöFRçG—RÓÓÒv7VRr’fÆ–FFT7VU6WGF–æw2†æöFRç6WGF–æw2“°¢æöFRæ6†–ÆG&Vâæf÷$V6‚‡f—6—B“°¢&WGW&ã°¢Ğ¢–b†æöFRçG—RÓÓÒwFW‡Br’°¢–b‡G—VöbæöFRçFW‡BÓÒw7G&–ærr’F‡&÷ræWrW'&÷"‚~jÚ>ih~ih~ZÙ~jÎ[ÈşiziX8"r“°¢–b†æöFRæ6öÆ÷"ÓÒVæFVf–æVBbb‡G—VöbæöFRæ6öÆ÷"ÓÒw7G&–ærrÇÂõâ5³Ó–Öe×³gÒBö’çFW7B†æöFRæ6öÆ÷"’’’F‡&÷ræWrW'&÷"‚~jÚ>ih~š)Îˆ›.jÎ[ÈşiziX8"r“°¢&WGW&ã°¢Ğ¢F‡&÷ræWrW'&÷"‚~[z^zˆ¾XÈ^Y
-¾KˆŞiJşhÈy¨NjÚ>ih~ˆ¨.x+8"r“°¢Ó°¢Fö7VÖVçBæ&Æö6·2æf÷$V6‚‚†&Æö6²’Óâ°¢–b†&Æö6²çG—RÓÒw&w&‚r’F‡&÷ræWrW'&÷"‚~jÚ>ih~jë^‰ŞjÎ[ÈşiziX8"r“°¢f—6—B†&Æö6²“°¢Ò“°¢&WGW&âG'VS°§Ğ ¦W‡÷'BgVæ7F–öâfÆ–FFT7VU6WGF–æw2‡fÇVR’°¢–b‚fÇVRÇÂG—VöbfÇVRÓÒvö&¦V7BrÇÂ'&’æ—4'&’‡fÇVR’’F‡&÷ræWrW'&÷"‚~kÉNX{®Šëî{Úî{¹>ièNiziX8"r“°¢6öç7B6WGF–æw2Ò²ââäDTdTÅEõ4UED”äu2ÂââçfÇVRÓ°¢–b‚²vF–ÆöwVRrÂvg&VRuÒæ–æ6ÇVFW2‡6WGF–æw2æÖöFR’’F‡&÷ræWrW'&÷"‚~kÉNX{®jŠ[ÈşiziX8"r“°¢–b‡G—Vöb6WGF–æw2ç7V¶W"ÓÒw7G&–ærrÇÂ6WGF–æw2ç7V¶W"æÆVæwF‚â#’F‡&÷ræWrW'&÷"‚~ŠûNŠùŞK«®YŞz{iziX8"r“°¢–b‚çVÖ&W"æ—4f–æ—FR‡6WGF–æw2æföçE6—¦R’ÇÂ6WGF–æw2æföçE6—¦RÂ‚ÇÂ6WGF–æw2æföçE6—¦Râ#Sb’F‡&÷ræWrW'&÷"‚~ZÙ~Xû~[ø^š¾YÊ‚(	3#SbK˜¾™{N8"r“°¢–b‡G—Vöb6WGF–æw2æ6öÆ÷"ÓÒw7G&–ærrÇÂõâ5³Ó–Öe×³gÒBö’çFW7B‡6WGF–æw2æ6öÆ÷"’’F‡&÷ræWrW'&÷"‚~kÉNX{®š)Îˆ›.jÎ[ÈşiziX8"r“°¢–b‚çVÖ&W"æ—4f–æ—FR‡6WGF–æw2ç‚’ÇÂ6WGF–æw2ç‚ÂÇÂ6WGF–æw2ç‚â“#ÇÂçVÖ&W"æ—4f–æ—FR‡6WGF–æw2ç’’ÇÂ6WGF–æw2ç’ÂÇÂ6WGF–æw2ç’âƒ’F‡&÷ræWrW'&÷"‚~kÉNX{®YÙj~‹h^X{®yK¾[ˆ>ˆÈ>Y»N8"r“°¢–b‚²vÆVgBrÂv6VçFW"rÂw&–v‡BuÒæ–æ6ÇVFW2‡6WGF–æw2æÆ–vâ’’F‡&÷ræWrW'&÷"‚~ih~ZÙ~Zû›Ùik[ÈşiziX8"r“°¢–b‚5Uõ%DTEôÔõD”ôå2æ†2‡6WGF–æw2æÖ÷F–öâ’’F‡&÷ræWrW'&÷"‚~XªiX{¾Yè¾iziX8"r“°¢fÆ–FFTÖ÷F–öå6WGF–æw2‡6WGF–æw2æÖ÷F–öâÂ6WGF–æw2æÖ÷F–öå6WGF–æw2“°¢–b‚²v6Æ–6²rÂwF–ÖVBuÒæ–æ6ÇVFW2‡6WGF–æw2æGfæ6R’’F‡&÷ræWrW'&÷"‚~Kˆ¾KˆXú^hê‹ù¾ik[ÈşiziX8"r“°¢–b‚çVÖ&W"æ—4f–æ—FR‡6WGF–æw2æGW&F–öä×2’ÇÂ6WGF–æw2æGW&F–öä×2ÂSÇÂ6WGF–æw2æGW&F–öä×2âc’F‡&÷ræWrW'&÷"‚~kÉNX{®i{n™[ş[ø^š¾YÊ‚ã^(	3czy.K˜¾™{N8"r“°¢f÷"†6öç7B&VfW&Væ6Röb·6WGF–æw2æ&6¶w&÷VæD–BÂ6WGF–æw2æVF–ô–EÒ’°¢–b‡&VfW&Væ6RÓÒçVÆÂbb&VfW&Væ6RÓÒuõö6ÆV%õòrbb‡G—Vöb&VfW&Væ6RÓÒw7G&–ærrÇÂ&VfW&Væ6RæÆVæwF‚â#’’F‡&÷ræWrW'&÷"‚~{JiÙ[É^yJjÎ[ÈşiziX8"r“°¢Ğ¢–b‡6WGF–æw2ç66VæTÆ–W'2ÓÒVæFVf–æVBbb'&’æ—4'&’‡6WGF–æw2ç66VæTÆ–W'2’’F‡&÷ræWrW'&÷"‚~YË®išşY»î[.{¹>ièNiziX8"r“°§Ğ
+import { SUPPORTED_MOTIONS, validateMotionSettings } from '../../motion/effects.mjs';
+
+export const DEFAULT_SETTINGS = Object.freeze({
+  mode: 'dialogue',
+  speaker: '',
+  fontSize: 48,
+  color: '#f5f1e9',
+  x: 960,
+  y: 540,
+  align: 'center',
+  motion: 'none',
+  advance: 'click',
+  durationMs: 3500,
+  backgroundId: null,
+  audioId: null,
+});
+
+export function makeId(prefix = 'id') {
+  const value = globalThis.crypto?.randomUUID?.() ?? `${Date.now().toString(36)}-${Math.random().toString(36).slice(2, 10)}`;
+  return `${prefix}-${value}`;
+}
+
+export function clone(value) {
+  return structuredClone(value);
+}
+
+export function defaultSettings(overrides = {}) {
+  return { ...DEFAULT_SETTINGS, ...overrides };
+}
+
+export function plainText(nodes = []) {
+  return nodes.map((node) => node.type === 'cue' ? plainText(node.children) : node.text ?? '').join('');
+}
+
+export function plainCueId(paragraphId, index, reserved = new Set()) {
+  let id = String(paragraphId) + '-plain-' + index;
+  while (reserved.has(id)) id += '-raw';
+  return id;
+}
+
+export function compileDocument(document) {
+  const cues = [];
+  const reserved = new Set((document.blocks ?? []).flatMap((paragraph) => paragraph.children.filter((node) => node.type === 'cue').map((node) => node.id)));
+  for (const paragraph of document.blocks ?? []) {
+    let loose = [];
+    let looseIndex = 0;
+    const flushLoose = () => {
+      const text = plainText(loose);
+      if (text.trim()) {
+        const id = plainCueId(paragraph.id, looseIndex, reserved);
+        cues.push({ id, paragraphId: paragraph.id, settings: defaultSettings(), children: clone(loose), text });
+        looseIndex += 1;
+      }
+      loose = [];
+    };
+
+    for (const node of paragraph.children ?? []) {
+      if (node.type === 'cue') {
+        flushLoose();
+        const settings = defaultSettings(node.settings);
+        cues.push({ id: node.id, paragraphId: paragraph.id, settings, children: clone(node.children), text: plainText(node.children) });
+      } else {
+        loose.push(clone(node));
+      }
+    }
+    flushLoose();
+  }
+  return cues.filter((cue) => cue.text.trim());
+}
+
+
+export function resolveState(plan, cueId) {
+  let backgroundId = null;
+  let sceneLayers = [];
+  for (const cue of plan) {
+    if (cue.settings.backgroundId === '__clear__') backgroundId = null;
+    else if (cue.settings.backgroundId) backgroundId = cue.settings.backgroundId;
+    if (Array.isArray(cue.settings.sceneLayers)) sceneLayers = clone(cue.settings.sceneLayers);
+    if (cue.id === cueId) return { backgroundId, sceneLayers };
+  }
+  return { backgroundId: null, sceneLayers: [] };
+}
+
+export function validateDocument(document) {
+  if (!document || document.type !== 'doc' || !Array.isArray(document.blocks)) throw new Error('å·¥ç¨‹æ­£æ–‡ç»“æ„æ— æ•ˆã€‚');
+  const ids = new Set();
+  const visit = (node) => {
+    if (node.type === 'paragraph' || node.type === 'cue') {
+      if (!node.id || ids.has(node.id)) throw new Error('æ®µè½æˆ–æ¼”å‡ºå•å…ƒ ID ç¼ºå¤±æˆ–é‡å¤ã€‚');
+      ids.add(node.id);
+      if (!Array.isArray(node.children)) throw new Error('æ­£æ–‡èŠ‚ç‚¹ç¼ºå°‘å†…å®¹ã€‚');
+      if (node.type === 'cue' && node.settings?.sceneLayers !== undefined) {
+        if (!Array.isArray(node.settings.sceneLayers)) throw new Error('åœºæ™¯å›¾å±‚ç»“æ„æ— æ•ˆã€‚');
+        const layerIds = new Set();
+        for (const layer of node.settings.sceneLayers) {
+          if (typeof layer.id !== 'string' || !layer.id || layerIds.has(layer.id) || typeof layer.assetId !== 'string' || !layer.assetId) throw new Error('åœºæ™¯å›¾å±‚ ID æˆ–ç´ æå¼•ç”¨æ— æ•ˆã€‚');
+          if (![layer.x, layer.y, layer.width, layer.height, layer.opacity, layer.zIndex].every(Number.isFinite)) throw new Error('åœºæ™¯å›¾å±‚ä½ç½®æˆ–å°ºå¯¸æ— æ•ˆã€‚');
+          if (layer.x < 0 || layer.x > 1920 || layer.y < 0 || layer.y > 1080 || layer.width <= 0 || layer.width > 3840 || layer.height <= 0 || layer.height > 2160 || layer.opacity < 0 || layer.opacity > 1 || !Number.isInteger(layer.zIndex) || layer.zIndex < 0) throw new Error('åœºæ™¯å›¾å±‚å°ºå¯¸ã€åæ ‡ã€å±‚çº§æˆ–é€æ˜åº¦è¶…å‡ºèŒƒå›´ã€‚');
+          if (layer.rotation !== undefined && (!Number.isFinite(layer.rotation) || Math.abs(layer.rotation) > 3600)) throw new Error('åœºæ™¯å›¾å±‚æ—‹è½¬è§’åº¦æ— æ•ˆã€‚');
+          if (['flipX', 'flipY', 'locked', 'hidden', 'videoMuted', 'videoLoop'].some((key) => layer[key] !== undefined && typeof layer[key] !== 'boolean')) throw new Error('åœºæ™¯å›¾å±‚å¼€å…³æ— æ•ˆã€‚');
+          if (layer.fit !== undefined && !['contain', 'cover', 'fill'].includes(layer.fit)) throw new Error('åœºæ™¯å›¾å±‚é€‚é…æ–¹å¼æ— æ•ˆã€‚');
+          if (layer.videoVolume !== undefined && (!Number.isFinite(layer.videoVolume) || layer.videoVolume < 0 || layer.videoVolume > 1)) throw new Error('è§†é¢‘åŸå£°éŸ³é‡æ— æ•ˆã€‚');
+          if (layer.videoStartMs !== undefined && (!Number.isFinite(layer.videoStartMs) || layer.videoStartMs < 0)) throw new Error('è§†é¢‘ç‰‡æ®µèµ·ç‚¹æ— æ•ˆã€‚');
+          if (layer.videoEndMs !== undefined && (!Number.isFinite(layer.videoEndMs) || layer.videoEndMs <= (layer.videoStartMs ?? 0))) throw new Error('è§†é¢‘ç‰‡æ®µç»ˆç‚¹å¿…é¡»æ™šäºèµ·ç‚¹ã€‚');
+          if (layer.crop !== undefined) {
+            const crop = layer.crop;
+            if (!crop || !['left', 'top', 'right', 'bottom'].every((key) => Number.isFinite(crop[key]) && crop[key] >= 0 && crop[key] < 0.95) || crop.left + crop.right >= 0.95 || crop.top + crop.bottom >= 0.95) throw new Error('å›¾ç‰‡è£å‰ªèŒƒå›´æ— æ•ˆã€‚');
+          }
+          layerIds.add(layer.id);
+        }
+      }
+      if (node.type === 'cue') validateCueSettings(node.settings);
+      node.children.forEach(visit);
+      return;
+    }
+    if (node.type === 'text') {
+      if (typeof node.text !== 'string') throw new Error('æ­£æ–‡æ–‡å­—æ ¼å¼æ— æ•ˆã€‚');
+      if (node.color !== undefined && (typeof node.color !== 'string' || !/^#[0-9a-f]{6}$/i.test(node.color))) throw new Error('æ­£æ–‡é¢œè‰²æ ¼å¼æ— æ•ˆã€‚');
+      return;
+    }
+    throw new Error('å·¥ç¨‹åŒ…å«ä¸æ”¯æŒçš„æ­£æ–‡èŠ‚ç‚¹ã€‚');
+  };
+  document.blocks.forEach((block) => {
+    if (block.type !== 'paragraph') throw new Error('æ­£æ–‡æ®µè½æ ¼å¼æ— æ•ˆã€‚');
+    visit(block);
+  });
+  return true;
+}
+
+export function validateCueSettings(value) {
+  if (!value || typeof value !== 'object' || Array.isArray(value)) throw new Error('æ¼”å‡ºè®¾ç½®ç»“æ„æ— æ•ˆã€‚');
+  const settings = { ...DEFAULT_SETTINGS, ...value };
+  if (!['dialogue', 'free'].includes(settings.mode)) throw new Error('æ¼”å‡ºæ¨¡å¼æ— æ•ˆã€‚');
+  if (typeof settings.speaker !== 'string' || settings.speaker.length > 120) throw new Error('è¯´è¯äººåç§°æ— æ•ˆã€‚');
+  if (!Number.isFinite(settings.fontSize) || settings.fontSize < 8 || settings.fontSize > 256) throw new Error('å­—å·å¿…é¡»åœ¨ 8â€“256 ä¹‹é—´ã€‚');
+  if (typeof settings.color !== 'string' || !/^#[0-9a-f]{6}$/i.test(settings.color)) throw new Error('æ¼”å‡ºé¢œè‰²æ ¼å¼æ— æ•ˆã€‚');
+  if (!Number.isFinite(settings.x) || settings.x < 0 || settings.x > 1920 || !Number.isFinite(settings.y) || settings.y < 0 || settings.y > 1080) throw new Error('æ¼”å‡ºåæ ‡è¶…å‡ºç”»å¸ƒèŒƒå›´ã€‚');
+  if (!['left', 'center', 'right'].includes(settings.align)) throw new Error('æ–‡å­—å¯¹é½æ–¹å¼æ— æ•ˆã€‚');
+  if (!SUPPORTED_MOTIONS.has(settings.motion)) throw new Error('åŠ¨æ•ˆç±»å‹æ— æ•ˆã€‚');
+  validateMotionSettings(settings.motion, settings.motionSettings);
+  if (!['click', 'timed'].includes(settings.advance)) throw new Error('ä¸‹ä¸€å¥æ¨è¿›æ–¹å¼æ— æ•ˆã€‚');
+  if (!Number.isFinite(settings.durationMs) || settings.durationMs < 500 || settings.durationMs > 600000) throw new Error('æ¼”å‡ºæ—¶é•¿å¿…é¡»åœ¨ 0.5â€“600 ç§’ä¹‹é—´ã€‚');
+  for (const reference of [settings.backgroundId, settings.audioId]) {
+    if (reference !== null && reference !== '__clear__' && (typeof reference !== 'string' || reference.length > 200)) throw new Error('ç´ æå¼•ç”¨æ ¼å¼æ— æ•ˆã€‚');
+  }
+  if (settings.sceneLayers !== undefined && !Array.isArray(settings.sceneLayers)) throw new Error('åœºæ™¯å›¾å±‚ç»“æ„æ— æ•ˆã€‚');
+}

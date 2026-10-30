@@ -1,2 +1,88 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞìÉ•…Ñ•!Ñµ±Õ‘¥½	…­•¹ô™É½´€œ¸¸½ÍÉŒ½µ•‘¥„½¡Ñµ°µ…Õ‘¥¼µ‰…­•¹¹ÑÌœì()±…ÍÌ…­•Õ‘¥¼•áÑ•¹‘ÌÙ•¹ÑQ…É•Ğì(€ÍÑ…Ñ¥Œ¥¹ÍÑ…¹•Ì€ômtì(€ÍÑ…Ñ¥Œ…ÕÑ½I•…‘ä€ôÑÉÕ”ì(€ÕÉÉ•¹ÑQ¥µ”€ô€Àì(€•ÉÉ½È€ô¹Õ±°ì(€ÁÉ•±½…€ô€œœì(€ÍÉŒ€ô€œœì(€Á±…å½Õ¹Ğ€ô€Àì(€Á…ÕÍ•½Õ¹Ğ€ô€Àì(€±½…‘½Õ¹Ğ€ô€Àì(€½¹ÍÑÉÕÑ½È ¤ì(€€€ÍÕÁ•È ¤ì(€€€…­•Õ‘¥¼¹¥¹ÍÑ…¹•Ì¹ÁÕÍ ¡Ñ¡¥Ì¤ì(€ô(€±½… ¤ì(€€€Ñ¡¥Ì¹±½…‘½Õ¹Ğ€¬ô€Äì(€€€¥˜€¡…­•Õ‘¥¼¹…ÕÑ½I•…‘ä€˜˜Ñ¡¥Ì¹ÍÉŒ¤ÅÕ•Õ•5¥É½Ñ…Í¬  ¤€ôøÑ¡¥Ì¹‘¥ÍÁ…Ñ¡Ù•¹Ğ¡¹•ÜÙ•¹Ğ ±½…‘•‘µ•Ñ…‘…Ñ„œ¤¤¤ì(€ô(€Á±…ä ¤ìÑ¡¥Ì¹Á±…å½Õ¹Ğ€¬ô€ÄìÉ•ÑÕÉ¸AÉ½µ¥Í”¹É•Í½±Ù” ¤ìô(€Á…ÕÍ” ¤ìÑ¡¥Ì¹Á…ÕÍ•½Õ¹Ğ€¬ô€Äìô(€É•µ½Ù•ÑÑÉ¥‰ÕÑ”¡¹…µ”¤ì¥˜€¡¹…µ”€ôôô€ÍÉŒœ¤Ñ¡¥Ì¹ÍÉŒ€ô€œœìô)ô()™Õ¹Ñ¥½¸¥¹ÍÑ…±±Õ‘¥½…­•Ì¡Ğ°…ÕÑ½I•…‘ä€ôÑÉÕ”¤ì(€½¹ÍĞÁÉ•Ù¥½ÕÍÕ‘¥¼€ô±½‰…±Q¡¥Ì¹Õ‘¥¼ì(€½¹ÍĞÁÉ•Ù¥½ÕÍ]¥¹‘½Ü€ô±½‰…±Q¡¥Ì¹İ¥¹‘½Üì(€½¹ÍĞÁÉ•Ù¥½ÕÍÉ•…Ñ”€ôUI0¹É•…Ñ•=‰©•ÑUI0ì(€½¹ÍĞÁÉ•Ù¥½ÕÍI•Ù½­”€ôUI0¹É•Ù½­•=‰©•ÑUI0ì(€½¹ÍĞÉ•Ù½­•€ômtì(€…­•Õ‘¥¼¹¥¹ÍÑ…¹•Ì€ômtì(€…­•Õ‘¥¼¹…ÕÑ½I•…‘ä€ô…ÕÑ½I•…‘äì(€±½‰…±Q¡¥Ì¹Õ‘¥¼€ô…­•Õ‘¥¼ì(€±½‰…±Q¡¥Ì¹İ¥¹‘½Ü€ôìÍ•ÑQ¥µ•½ÕĞ°±•…ÉQ¥µ•½ÕĞôì(€UI0¹É•…Ñ•=‰©•ÑUI0€ô€ ¤€ôø€‰±½ˆéÑ•ÍĞµ…Õ‘¥¼œì(€UI0¹É•Ù½­•=‰©•ÑUI0€ô€¡ÕÉ°¤€ôøÉ•Ù½­•¹ÁÕÍ ¡ÕÉ°¤ì(€Ğ¹…™Ñ•È  ¤€ôøì(€€€±½‰…±Q¡¥Ì¹Õ‘¥¼€ôÁÉ•Ù¥½ÕÍÕ‘¥¼ì(€€€±½‰…±Q¡¥Ì¹İ¥¹‘½Ü€ôÁÉ•Ù¥½ÕÍ]¥¹‘½Üì(€€€UI0¹É•…Ñ•=‰©•ÑUI0€ôÁÉ•Ù¥½ÕÍÉ•…Ñ”ì(€€€UI0¹É•Ù½­•=‰©•ÑUI0€ôÁÉ•Ù¥½ÕÍI•Ù½­”ì(€ô¤ì(€É•ÑÕÉ¸É•Ù½­•ì)ô()Ñ•ÍĞ Ÿ–:R¦~Ï¦ŠG¦¦7–f£––’š^Û¦vg¦~Ï¾ò3–’7R£–>—š~–æÛš*+š¾¯K–ºk’ö7¢ö³š6‹’âëHœ°…Íå¹Œ€¡Ğ¤€ôøì(€½¹ÍĞÉ•Ù½­•€ô¥¹ÍÑ…±±Õ‘¥½…­•Ì¡Ğ¤ì(€½¹ÍĞ•Ù•¹ÑÌ€ômtì(€½¹ÍĞ½¹ÑÉ½±±•È€ô¹•Ü‰½ÉÑ½¹ÑÉ½±±•È ¤ì(€½¹ÍĞ‰…­•¹€ôÉ•…Ñ•!Ñµ±Õ‘¥½	…­•¹ ¡¥¤€ôø¥€ôôô€µÕÍ¥Œ´Äœ€üì¥°µ¥µ”è€…Õ‘¥¼½µÁ•œœ°‰±½ˆè¹•Ü	±½ˆ¡lÍ½Õ¹t°ìÑåÁ”è€…Õ‘¥¼½µÁ•œœô¤ô€èÕ¹‘•™¥¹•¤ì(€½¹ÍĞ¡…¹‘±”€ô…İ…¥Ğ‰…­•¹¹ÁÉ•Á…É” µÕÍ¥Œ´Äœ°½¹ÑÉ½±±•È¹Í¥¹…°°ì•¹‘•è€ ¤€ôø•Ù•¹ÑÌ¹ÁÕÍ  •¹‘•œ¤°•ÉÉ½Èè€¡•ÉÉ½È¤€ôø•Ù•¹ÑÌ¹ÁÕÍ ¡•ÉÉ½È¹µ•ÍÍ…”¤ô¤ì(€½¹ÍĞ…Õ‘¥¼€ô…­•Õ‘¥¼¹¥¹ÍÑ…¹•ÍlÁtì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡…Õ‘¥¼¹Á±…å½Õ¹Ğ°€À¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡…Õ‘¥¼¹ÍÉŒ°€‰±½ˆéÑ•ÍĞµ…Õ‘¥¼œ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡¡…¹‘±”¹Á±…ä ¤°€Ä¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡¡…¹‘±”¹Á±…ä Ä¤°€Ä¤ì(€¡…¹‘±”¹Í••­5Ì ÄÈÔÀ°€Ä¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡…Õ‘¥¼¹ÕÉÉ•¹ÑQ¥µ”°€Ä¸ÈÔ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡…Õ‘¥¼¹Á±…å½Õ¹Ğ°€È¤ì(€¡…¹‘±”¹‘¥ÍÁ½Í” ¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡É•Ù½­•°l‰±½ˆéÑ•ÍĞµ…Õ‘¥¼t¤ì)ô¤ì()Ñ•ÍĞ Ÿ–>[šÚ#–ªK’öO––’’òkš.Kîw–æÛ¦+šRø	±½ˆUI0œ°…Íå¹Œ€¡Ğ¤€ôøì(€½¹ÍĞÉ•Ù½­•€ô¥¹ÍÑ…±±Õ‘¥½…­•Ì¡Ğ°™…±Í”¤ì(€½¹ÍĞ½¹ÑÉ½±±•È€ô¹•Ü‰½ÉÑ½¹ÑÉ½±±•È ¤ì(€½¹ÍĞ‰…­•¹€ôÉ•…Ñ•!Ñµ±Õ‘¥½	…­•¹  ¤€ôø€¡ì¥è€…Õ‘¥¼´Äœ°µ¥µ”è€…Õ‘¥¼½İ…Øœ°‰±½ˆè¹•Ü	±½ˆ¡lÍ½Õ¹t°ìÑåÁ”è€…Õ‘¥¼½İ…Øœô¤ô¤¤ì(€½¹ÍĞÁ•¹‘¥¹œ€ô‰…­•¹¹ÁÉ•Á…É” …Õ‘¥¼´Äœ°½¹ÑÉ½±±•È¹Í¥¹…°°ì•¹‘• ¤íô°•ÉÉ½È ¤íôô¤ì(€½¹ÑÉ½±±•È¹…‰½ÉĞ ¤ì(€…İ…¥Ğ…ÍÍ•ÉĞ¹É•©•ÑÌ¡Á•¹‘¥¹œ°ì¹…µ”è€‰½ÉÑÉÉ½Èœô¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡É•Ù½­•°l‰±½ˆéÑ•ÍĞµ…Õ‘¥¼t¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡…­•Õ‘¥¼¹¥¹ÍÑ…¹•ÍlÁt¹ÍÉŒ°€œœ¤ì)ô¤ì()Ñ•ÍĞ Ÿ–òš¶—–:RšJ·šRû–’Ç¢Ò—’òk–>7¦š#îg–ªK’öO’òk¢¾tœ°…Íå¹Œ€¡Ğ¤€ôøì(€¥¹ÍÑ…±±Õ‘¥½…­•Ì¡Ğ¤ì(€…­•Õ‘¥¼¹ÁÉ½Ñ½ÑåÁ”¹Á±…ä€ô€ ¤€ôøAÉ½µ¥Í”¹É•©•Ğ¡¹•ÜÉÉ½È ŸšJ·šRû¢Š¯š.Kîtœ¤¤ì(€½¹ÍĞ•ÉÉ½ÉÌ€ômtì(€½¹ÍĞ‰…­•¹€ôÉ•…Ñ•!Ñµ±Õ‘¥½	…­•¹  ¤€ôø€¡ì¥è€…Õ‘¥¼´Äœ°µ¥µ”è€…Õ‘¥¼½İ…Øœ°‰±½ˆè¹•Ü	±½ˆ¡lÍ½Õ¹t°ìÑåÁ”è€…Õ‘¥¼½İ…Øœô¤ô¤¤ì(€½¹ÍĞ¡…¹‘±”€ô…İ…¥Ğ‰…­•¹¹ÁÉ•Á…É” …Õ‘¥¼´Äœ°¹•Ü‰½ÉÑ½¹ÑÉ½±±•È ¤¹Í¥¹…°°ì•¹‘• ¤íô°•ÉÉ½Èè€¡•ÉÉ½È¤€ôø•ÉÉ½ÉÌ¹ÁÕÍ ¡•ÉÉ½È¹µ•ÍÍ…”¤ô¤ì(€¡…¹‘±”¹Á±…ä ¤ì(€…İ…¥Ğ¹•ÜAÉ½µ¥Í” ¡É•Í½±Ù”¤€ôøÍ•ÑQ¥µ•½ÕĞ¡É•Í½±Ù”°€À¤¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡•ÉÉ½ÉÌ°lŸšJ·šRû¢Š¯š.Kîtt¤ì(€¡…¹‘±”¹‘¥ÍÁ½Í” ¤ì)ô¤ì(
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { createHtmlAudioBackend } from '../src/media/html-audio-backend.ts';
+
+class FakeAudio extends EventTarget {
+  static instances = [];
+  static autoReady = true;
+  currentTime = 0;
+  error = null;
+  preload = '';
+  src = '';
+  playCount = 0;
+  pauseCount = 0;
+  loadCount = 0;
+  constructor() {
+    super();
+    FakeAudio.instances.push(this);
+  }
+  load() {
+    this.loadCount += 1;
+    if (FakeAudio.autoReady && this.src) queueMicrotask(() => this.dispatchEvent(new Event('loadedmetadata')));
+  }
+  play() { this.playCount += 1; return Promise.resolve(); }
+  pause() { this.pauseCount += 1; }
+  removeAttribute(name) { if (name === 'src') this.src = ''; }
+}
+
+function installAudioFakes(t, autoReady = true) {
+  const previousAudio = globalThis.Audio;
+  const previousWindow = globalThis.window;
+  const previousCreate = URL.createObjectURL;
+  const previousRevoke = URL.revokeObjectURL;
+  const revoked = [];
+  FakeAudio.instances = [];
+  FakeAudio.autoReady = autoReady;
+  globalThis.Audio = FakeAudio;
+  globalThis.window = { setTimeout, clearTimeout };
+  URL.createObjectURL = () => 'blob:test-audio';
+  URL.revokeObjectURL = (url) => revoked.push(url);
+  t.after(() => {
+    globalThis.Audio = previousAudio;
+    globalThis.window = previousWindow;
+    URL.createObjectURL = previousCreate;
+    URL.revokeObjectURL = previousRevoke;
+  });
+  return revoked;
+}
+
+test('åŸç”ŸéŸ³é¢‘é€‚é…å™¨å‡†å¤‡æ—¶é™éŸ³ï¼Œå¤ç”¨å¥æŸ„å¹¶æŠŠæ¯«ç§’å®šä½è½¬æ¢ä¸ºç§’', async (t) => {
+  const revoked = installAudioFakes(t);
+  const events = [];
+  const controller = new AbortController();
+  const backend = createHtmlAudioBackend((id) => id === 'music-1' ? { id, mime: 'audio/mpeg', blob: new Blob(['sound'], { type: 'audio/mpeg' }) } : undefined);
+  const handle = await backend.prepare('music-1', controller.signal, { ended: () => events.push('ended'), error: (error) => events.push(error.message) });
+  const audio = FakeAudio.instances[0];
+  assert.equal(audio.playCount, 0);
+  assert.equal(audio.src, 'blob:test-audio');
+  assert.equal(handle.play(), 1);
+  assert.equal(handle.play(1), 1);
+  handle.seekMs(1250, 1);
+  assert.equal(audio.currentTime, 1.25);
+  assert.equal(audio.playCount, 2);
+  handle.dispose();
+  assert.deepEqual(revoked, ['blob:test-audio']);
+});
+
+test('å–æ¶ˆåª’ä½“å‡†å¤‡ä¼šæ‹’ç»å¹¶é‡Šæ”¾ Blob URL', async (t) => {
+  const revoked = installAudioFakes(t, false);
+  const controller = new AbortController();
+  const backend = createHtmlAudioBackend(() => ({ id: 'audio-1', mime: 'audio/wav', blob: new Blob(['sound'], { type: 'audio/wav' }) }));
+  const pending = backend.prepare('audio-1', controller.signal, { ended() {}, error() {} });
+  controller.abort();
+  await assert.rejects(pending, { name: 'AbortError' });
+  assert.deepEqual(revoked, ['blob:test-audio']);
+  assert.equal(FakeAudio.instances[0].src, '');
+});
+
+test('å¼‚æ­¥åŸç”Ÿæ’­æ”¾å¤±è´¥ä¼šåé¦ˆç»™åª’ä½“ä¼šè¯', async (t) => {
+  installAudioFakes(t);
+  FakeAudio.prototype.play = () => Promise.reject(new Error('æ’­æ”¾è¢«æ‹’ç»'));
+  const errors = [];
+  const backend = createHtmlAudioBackend(() => ({ id: 'audio-1', mime: 'audio/wav', blob: new Blob(['sound'], { type: 'audio/wav' }) }));
+  const handle = await backend.prepare('audio-1', new AbortController().signal, { ended() {}, error: (error) => errors.push(error.message) });
+  handle.play();
+  await new Promise((resolve) => setTimeout(resolve, 0));
+  assert.deepEqual(errors, ['æ’­æ”¾è¢«æ‹’ç»']);
+  handle.dispose();
+});

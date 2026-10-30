@@ -1,2 +1,37 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐ)Mi¥À™É½´€©Íé¥Àœì)¥µÁ½ÉÐìÉ•…Ñ••µ½AÉ½©•Ðô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ð¹µ©Ìœì)¥µÁ½ÉÐìÉ•…Ñ•AÉ½©•ÑÉ¡¥Ù”°É•…‘AÉ½©•ÑÉ¡¥Ù”ô™É½´€œ¸¸½ÍÉŒ½Á•ÉÍ¥ÍÑ•¹”½…É¡¥Ù”¹µ©Ìœì()±½‰…±Q¡¥Ì¹)Mi¥À€ô)Mi¥Àì()Ñ•ÍÐ Ÿ–Þ—ž¢/–2žÒƒšvC–º3šVÓ–ú¢þS¾ò3–v?–Þ—ž¢/–r£š>C’ê“–&7¢Š¯š.Kžîtœ°…Íå¹Œ€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ…ÍÍ•Ð€ôì¥è€…Õ‘¥¼µÑ•ÍÐœ°¹…µ”è€Ÿ–ê?šnÈ¹Ý…Øœ°­¥¹è€…Õ‘¥¼œ°µ¥µ”è€…Õ‘¥¼½Ý…Øœ°Í¥é”è€Ðôì(€ÁÉ½©•Ð¹…ÍÍ•ÑÌ¹ÁÕÍ ¡…ÍÍ•Ð¤ì(€½¹ÍÐ‰±½ˆ€ô¹•Ü	±½ˆ¡l]Yt°ìÑåÁ”è…ÍÍ•Ð¹µ¥µ”ô¤ì(€½¹ÍÐ…É¡¥Ù”€ô…Ý…¥ÐÉ•…Ñ•AÉ½©•ÑÉ¡¥Ù”¡ÁÉ½©•Ð°mì€¸¸¹…ÍÍ•Ð°‰±½ˆõt¤ì(€½¹ÍÐ±½…‘•€ô…Ý…¥ÐÉ•…‘AÉ½©•ÑÉ¡¥Ù”¡…É¡¥Ù”¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡±½…‘•¹ÁÉ½©•Ð°ÁÉ½©•Ð¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡±½…‘•¹…ÍÍ•ÑÍlÁt¹‰±½ˆ¹Í¥é”°€Ð¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡±½…‘•¹…ÍÍ•ÑÍlÁt¹‰±½ˆ¹ÑåÁ”°€…Õ‘¥¼½Ý…Øœ¤ì((€½¹ÍÐé¥À€ô…Ý…¥Ð)Mi¥À¹±½…‘Íå¹Œ¡…É¡¥Ù”¤ì(€½¹ÍÐ‘…Ñ„€ô)M=8¹Á…ÉÍ”¡…Ý…¥Ðé¥À¹™¥±” ÁÉ½©•Ð¹©Í½¸œ¤¹…Íå¹Œ ÍÑÉ¥¹œœ¤¤ì(€‘…Ñ„¹¡…ÁÑ•ÉÍlÁt¹‘½Õµ•¹Ð¹‰±½­Ì¹™¥¹ ¡‰±½¬¤€ôø‰±½¬¹¡¥±‘É•¹lÁtü¹ÑåÁ”€ôôô€Õ”œ¤¹¡¥±‘É•¹lÁt¹Í•ÑÑ¥¹Ì¹½±½È€ô¹Õ±°ì(€é¥À¹™¥±” ÁÉ½©•Ð¹©Í½¸œ°)M=8¹ÍÑÉ¥¹¥™ä¡‘…Ñ„¤¤ì(€½¹ÍÐ¥¹Ù…±¥€ô…Ý…¥Ðé¥À¹•¹•É…Ñ•Íå¹Œ¡ìÑåÁ”è€‰±½ˆœô¤ì(€…Ý…¥Ð…ÍÍ•ÉÐ¹É•©•ÑÌ¡É•…‘AÉ½©•ÑÉ¡¥Ù”¡¥¹Ù…±¥¤°€¿¦Šs¢&È¼¤ì)ô¤ì()Ñ•ÍÐ Ÿ–Þ—ž¢/–2žÒƒšvCžòë–’Çš"[–Âë–¾ã’â7ž²›š^Û’â7¢þS–n{–6+¢ö÷–—–Þ—ž¢,œ°…Íå¹Œ€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ…ÍÍ•Ð€ôì¥è€…ÍÍ•Ð´Äœ°¹…µ”è€¥µ…”¹Á¹œœ°­¥¹è€¥µ…”œ°µ¥µ”è€¥µ…”½Á¹œœ°Í¥é”è€Ôôì(€ÁÉ½©•Ð¹…ÍÍ•ÑÌ¹ÁÕÍ ¡…ÍÍ•Ð¤ì(€½¹ÍÐ…É¡¥Ù”€ô…Ý…¥ÐÉ•…Ñ•AÉ½©•ÑÉ¡¥Ù”¡ÁÉ½©•Ð°mì€¸¸¹…ÍÍ•Ð°‰±½ˆè¹•Ü	±½ˆ¡lœÄÈÌÐÔt°ìÑåÁ”è…ÍÍ•Ð¹µ¥µ”ô¤õt¤ì(€½¹ÍÐé¥À€ô…Ý…¥Ð)Mi¥À¹±½…‘Íå¹Œ¡…É¡¥Ù”¤ì(€é¥À¹™¥±” …ÍÍ•ÑÌ½…ÍÍ•Ð´Äœ°€œÄÈÌÐœ¤ì(€½¹ÍÐ‰…€ô…Ý…¥Ðé¥À¹•¹•É…Ñ•Íå¹Œ¡ìÑåÁ”è€‰±½ˆœô¤ì(€…Ý…¥Ð…ÍÍ•ÉÐ¹É•©•ÑÌ¡É•…‘AÉ½©•ÑÉ¡¥Ù”¡‰…¤°€¿–’Ÿ–Â<¼¤ì)ô¤ì
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import JSZip from 'jszip';
+import { createDemoProject } from '../src/domain/model/project.mjs';
+import { createProjectArchive, readProjectArchive } from '../src/persistence/archive.mjs';
+
+globalThis.JSZip = JSZip;
+
+test('å·¥ç¨‹åŒ…ç´ æå®Œæ•´å¾€è¿”ï¼Œåå·¥ç¨‹åœ¨æäº¤å‰è¢«æ‹’ç»', async () => {
+  const project = createDemoProject();
+  const asset = { id: 'audio-test', name: 'åºæ›².wav', kind: 'audio', mime: 'audio/wav', size: 4 };
+  project.assets.push(asset);
+  const blob = new Blob(['WAVE'], { type: asset.mime });
+  const archive = await createProjectArchive(project, [{ ...asset, blob }]);
+  const loaded = await readProjectArchive(archive);
+  assert.deepEqual(loaded.project, project);
+  assert.equal(loaded.assets[0].blob.size, 4);
+  assert.equal(loaded.assets[0].blob.type, 'audio/wav');
+
+  const zip = await JSZip.loadAsync(archive);
+  const data = JSON.parse(await zip.file('project.json').async('string'));
+  data.chapters[0].document.blocks.find((block) => block.children[0]?.type === 'cue').children[0].settings.color = null;
+  zip.file('project.json', JSON.stringify(data));
+  const invalid = await zip.generateAsync({ type: 'blob' });
+  await assert.rejects(readProjectArchive(invalid), /é¢œè‰²/);
+});
+
+test('å·¥ç¨‹åŒ…ç´ æç¼ºå¤±æˆ–å°ºå¯¸ä¸ç¬¦æ—¶ä¸è¿”å›žåŠè½½å…¥å·¥ç¨‹', async () => {
+  const project = createDemoProject();
+  const asset = { id: 'asset-1', name: 'image.png', kind: 'image', mime: 'image/png', size: 5 };
+  project.assets.push(asset);
+  const archive = await createProjectArchive(project, [{ ...asset, blob: new Blob(['12345'], { type: asset.mime }) }]);
+  const zip = await JSZip.loadAsync(archive);
+  zip.file('assets/asset-1', '1234');
+  const bad = await zip.generateAsync({ type: 'blob' });
+  await assert.rejects(readProjectArchive(bad), /å¤§å°/);
+});

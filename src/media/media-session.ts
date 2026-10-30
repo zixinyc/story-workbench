@@ -1,3 +1,211 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•áÁ½ÉÐÑåÁ”5•‘¥…MÑ…ÑÕÌ€ô€¥‘±”œð€±½…‘¥¹œœð€Á±…å¥¹œœð€Á…ÕÍ•œð€•ÉÉ½Èœð€‘¥ÍÁ½Í•œì()•áÁ½ÉÐ¥¹Ñ•É™…”5•‘¥…!…¹‘±”ì(€Á±…ä¡Í½Õ¹‘%üè¹Õµ‰•È¤è¹Õµ‰•Èð¹Õ±°ì(€Á…ÕÍ”¡Í½Õ¹‘%è¹Õµ‰•È¤èÙ½¥ì(€ÍÑ½À¡Í½Õ¹‘%üè¹Õµ‰•È¤èÙ½¥ì(€Í••­5Ì¡µ¥±±¥Í•½¹‘Ìè¹Õµ‰•È°Í½Õ¹‘%è¹Õµ‰•È¤èÙ½¥ì(€Í•ÑY½±Õµ”ü¡Ù½±Õµ”è¹Õµ‰•È¤èÙ½¥ì(€Í•Ñ1½½Àü¡±½½Àè‰½½±•…¸¤èÙ½¥ì(€‘¥ÍÁ½Í” ¤èÙ½¥ì)ô()•áÁ½ÉÐ¥¹Ñ•É™…”5•‘¥…	…­•¹ì(€ÁÉ•Á…É”¡…ÍÍ•Ñ%èÍÑÉ¥¹œ°Í¥¹…°è‰½ÉÑM¥¹…°°•Ù•¹ÑÌè5•‘¥…Ù•¹ÑÌ¤èAÉ½µ¥Í”ñ5•‘¥…!…¹‘±”øì)ô()•áÁ½ÉÐ¥¹Ñ•É™…”5•‘¥…Ù•¹ÑÌì(€•¹‘• ¤èÙ½¥ì(€•ÉÉ½È¡…ÕÍ”èÕ¹­¹½Ý¸¤èÙ½¥ì)ô()•áÁ½ÉÐ¥¹Ñ•É™…”5•‘¥…M¹…ÁÍ¡½Ðì(€ÍÑ…ÑÕÌè5•‘¥…MÑ…ÑÕÌì(€…ÍÍ•Ñ%èÍÑÉ¥¹œð¹Õ±°ì(€•ÉÉ½ÈèÍÑÉ¥¹œð¹Õ±°ì)ô()•áÁ½ÉÐ±…ÍÌ5•‘¥…M•ÍÍ¥½¸ì(€ÁÉ¥Ù…Ñ”‰…­•¹è5•‘¥…	…­•¹ì(€ÁÉ¥Ù…Ñ”½¹¡…¹”è€¡Í¹…ÁÍ¡½Ðè5•‘¥…M¹…ÁÍ¡½Ð¤€ôøÙ½¥ì(€ÁÉ¥Ù…Ñ”•¹•É…Ñ¥½¸€ô€Àì(€ÁÉ¥Ù…Ñ”½¹ÑÉ½±±•Èè‰½ÉÑ½¹ÑÉ½±±•Èð¹Õ±°€ô¹Õ±°ì(€ÁÉ¥Ù…Ñ”¡…¹‘±”è5•‘¥…!…¹‘±”ð¹Õ±°€ô¹Õ±°ì(€ÁÉ¥Ù…Ñ”Í½Õ¹‘%è¹Õµ‰•Èð¹Õ±°€ô¹Õ±°ì(€ÁÉ¥Ù…Ñ”½™™Í•Ñ5Ì€ô€Àì(€ÁÉ¥Ù…Ñ”Ý…¹ÑÍA±…å‰…¬€ô™…±Í”ì(€ÁÉ¥Ù…Ñ”Ù½±Õµ”€ô€Äì(€ÁÉ¥Ù…Ñ”±½½À€ô™…±Í”ì(€ÁÉ¥Ù…Ñ”ÍÑ…Ñ”è5•‘¥…M¹…ÁÍ¡½Ð€ôìÍÑ…ÑÕÌè€¥‘±”œ°…ÍÍ•Ñ%è¹Õ±°°•ÉÉ½Èè¹Õ±°ôì((€½¹ÍÑÉÕÑ½È¡‰…­•¹è5•‘¥…	…­•¹°½¹¡…¹”è€¡Í¹…ÁÍ¡½Ðè5•‘¥…M¹…ÁÍ¡½Ð¤€ôøÙ½¥€ô€ ¤€ôøíô¤ì(€€€Ñ¡¥Ì¹‰…­•¹€ô‰…­•¹ì(€€€Ñ¡¥Ì¹½¹¡…¹”€ô½¹¡…¹”ì(€ô((€Í¹…ÁÍ¡½Ð ¤è5•‘¥…M¹…ÁÍ¡½Ðì(€€€É•ÑÕÉ¸ì€¸¸¹Ñ¡¥Ì¹ÍÑ…Ñ”ôì(€ô((€…Íå¹ŒÍÑ…ÉÐ¡…ÍÍ•Ñ%èÍÑÉ¥¹œ°½™™Í•Ñ5Ì€ô€À¤èAÉ½µ¥Í”ñÙ½¥øì(€€€¥˜€¡Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€ôôô€‘¥ÍÁ½Í•œ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–ªK’öO’òk¢¾w–ÞË¦+šRûŽœ¤ì(€€€¥˜€ ……ÍÍ•Ñ%¹ÑÉ¥´ ¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿžòë–ÂG¦~Ï¦ŠGžÒƒšv@%Žœ¤ì(€€€Ñ¡¥Ì¹Ù…±¥‘…Ñ•=™™Í•Ð¡½™™Í•Ñ5Ì¤ì(€€€½¹ÍÐ±•…¹ÕÁÉÉ½È€ôÑ¡¥Ì¹¥¹Ù…±¥‘…Ñ” ¤ì(€€€¥˜€¡±•…¹ÕÁÉÉ½È¤ì(€€€€€Ñ¡¥Ì¹ÍÑ…Ñ”€ôìÍÑ…ÑÕÌè€•ÉÉ½Èœ°…ÍÍ•Ñ%èÑ¡¥Ì¹ÍÑ…Ñ”¹…ÍÍ•Ñ%°•ÉÉ½Èè±•…¹ÕÁÉÉ½Èôì(€€€€€Ñ¡¥Ì¹ÁÕ‰±¥Í  ¤ì(€€€€€É•ÑÕÉ¸ì(€€€ô(€€€½¹ÍÐ•¹•É…Ñ¥½¸€ôÑ¡¥Ì¹•¹•É…Ñ¥½¸ì(€€€½¹ÍÐ½¹ÑÉ½±±•È€ô¹•Ü‰½ÉÑ½¹ÑÉ½±±•È ¤ì(€€€Ñ¡¥Ì¹½¹ÑÉ½±±•È€ô½¹ÑÉ½±±•Èì(€€€Ñ¡¥Ì¹½™™Í•Ñ5Ì€ô½™™Í•Ñ5Ìì(€€€Ñ¡¥Ì¹Ý…¹ÑÍA±…å‰…¬€ôÑÉÕ”ì(€€€Ñ¡¥Ì¹ÍÑ…Ñ”€ôìÍÑ…ÑÕÌè€±½…‘¥¹œœ°…ÍÍ•Ñ%°•ÉÉ½Èè¹Õ±°ôì(€€€Ñ¡¥Ì¹ÁÕ‰±¥Í  ¤ì((€€€ÑÉäì(€€€€€½¹ÍÐ¡…¹‘±”€ô…Ý…¥ÐÑ¡¥Ì¹‰…­•¹¹ÁÉ•Á…É”¡…ÍÍ•Ñ%°½¹ÑÉ½±±•È¹Í¥¹…°°ì(€€€€€€€•¹‘•è€ ¤€ôøì(€€€€€€€€€¥˜€¡•¹•É…Ñ¥½¸€ôôôÑ¡¥Ì¹•¹•É…Ñ¥½¸€˜˜Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€ôôô€Á±…å¥¹œœ¤Ñ¡¥Ì¹ÍÑ½À ¤ì(€€€€€€€ô°(€€€€€€€•ÉÉ½Èè€¡…ÕÍ”¤€ôøì(€€€€€€€€€¥˜€¡•¹•É…Ñ¥½¸€ôôôÑ¡¥Ì¹•¹•É…Ñ¥½¸¤Ñ¡¥Ì¹™…¥°¡…ÕÍ”¤ì(€€€€€€€ô°(€€€€€ô¤ì(€€€€€¥˜€¡•¹•É…Ñ¥½¸€„ôôÑ¡¥Ì¹•¹•É…Ñ¥½¸¤ì(€€€€€€€¡…¹‘±”¹‘¥ÍÁ½Í” ¤ì(€€€€€€€É•ÑÕÉ¸ì(€€€€€ô(€€€€€Ñ¡¥Ì¹½¹ÑÉ½±±•È€ô¹Õ±°ì(€€€€€Ñ¡¥Ì¹¡…¹‘±”€ô¡…¹‘±”ì(€€€€€¥˜€¡Ñ¡¥Ì¹Ù½±Õµ”€„ôô€Ä¤¡…¹‘±”¹Í•ÑY½±Õµ”ü¸¡Ñ¡¥Ì¹Ù½±Õµ”¤ì(€€€€€¥˜€¡Ñ¡¥Ì¹±½½À¤¡…¹‘±”¹Í•Ñ1½½Àü¸¡ÑÉÕ”¤ì(€€€€€¥˜€¡Ñ¡¥Ì¹Ý…¹ÑÍA±…å‰…¬¤Ñ¡¥Ì¹…Ñ¥Ù…Ñ” ¤ì(€€€€€•±Í”ì(€€€€€€€Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€ô€Á…ÕÍ•œì(€€€€€€€Ñ¡¥Ì¹ÁÕ‰±¥Í  ¤ì(€€€€€ô(€€€ô…Ñ €¡•ÉÉ½È¤ì(€€€€€¥˜€¡•¹•É…Ñ¥½¸€ôôôÑ¡¥Ì¹•¹•É…Ñ¥½¸¤Ñ¡¥Ì¹™…¥°¡•ÉÉ½È¤ì(€€€ô(€ô((€Á…ÕÍ” ¤èÙ½¥ì(€€€¥˜€ …l±½…‘¥¹œœ°€Á±…å¥¹œt¹¥¹±Õ‘•Ì¡Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ¤¤É•ÑÕÉ¸ì(€€€Ñ¡¥Ì¹Ý…¹ÑÍA±…å‰…¬€ô™…±Í”ì(€€€ÑÉäì(€€€€€¥˜€¡Ñ¡¥Ì¹¡…¹‘±”€˜˜Ñ¡¥Ì¹Í½Õ¹‘%€„ôô¹Õ±°¤Ñ¡¥Ì¹¡…¹‘±”¹Á…ÕÍ”¡Ñ¡¥Ì¹Í½Õ¹‘%¤ì(€€€€€Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€ô€Á…ÕÍ•œì(€€€€€Ñ¡¥Ì¹ÁÕ‰±¥Í  ¤ì(€€€ô…Ñ €¡•ÉÉ½È¤ì(€€€€€Ñ¡¥Ì¹™…¥°¡•ÉÉ½È¤ì(€€€ô(€ô((€É•ÍÕµ” ¤èÙ½¥ì(€€€¥˜€¡Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€„ôô€Á…ÕÍ•œ¤É•ÑÕÉ¸ì(€€€Ñ¡¥Ì¹Ý…¹ÑÍA±…å‰…¬€ôÑÉÕ”ì(€€€¥˜€ …Ñ¡¥Ì¹¡…¹‘±”¤ì(€€€€€Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€ô€±½…‘¥¹œœì(€€€€€Ñ¡¥Ì¹ÁÕ‰±¥Í  ¤ì(€€€€€É•ÑÕÉ¸ì(€€€ô(€€€ÑÉäì(€€€€€Ñ¡¥Ì¹…Ñ¥Ù…Ñ” ¤ì(€€€ô…Ñ €¡•ÉÉ½È¤ì(€€€€€Ñ¡¥Ì¹™…¥°¡•ÉÉ½È¤ì(€€€ô(€ô((€Í••­5Ì¡µ¥±±¥Í•½¹‘Ìè¹Õµ‰•È¤èÙ½¥ì(€€€Ñ¡¥Ì¹Ù…±¥‘…Ñ•=™™Í•Ð¡µ¥±±¥Í•½¹‘Ì¤ì(€€€¥˜€ …l±½…‘¥¹œœ°€Á±…å¥¹œœ°€Á…ÕÍ•t¹¥¹±Õ‘•Ì¡Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ¤¤É•ÑÕÉ¸ì(€€€Ñ¡¥Ì¹½™™Í•Ñ5Ì€ôµ¥±±¥Í•½¹‘Ìì(€€€ÑÉäì(€€€€€¥˜€¡Ñ¡¥Ì¹¡…¹‘±”€˜˜Ñ¡¥Ì¹Í½Õ¹‘%€„ôô¹Õ±°¤Ñ¡¥Ì¹¡…¹‘±”¹Í••­5Ì¡µ¥±±¥Í•½¹‘Ì°Ñ¡¥Ì¹Í½Õ¹‘%¤ì(€€€ô…Ñ €¡•ÉÉ½È¤ì(€€€€€Ñ¡¥Ì¹™…¥°¡•ÉÉ½È¤ì(€€€ô(€ô((€Í•ÑY½±Õµ”¡Ù½±Õµ”è¹Õµ‰•È¤èÙ½¥ì(€€€¥˜€ …9Õµ‰•È¹¥Í¥¹¥Ñ”¡Ù½±Õµ”¤ñðÙ½±Õµ”€ð€ÀñðÙ½±Õµ”€ø€Ä¤Ñ¡É½Ü¹•ÜI…¹•ÉÉ½È Ÿ¦~Ï¦?–þ¦†ï–r €Àƒ–"À€Äƒ’æ/¦^ÓŽœ¤ì(€€€Ñ¡¥Ì¹Ù½±Õµ”€ôÙ½±Õµ”ì(€€€Ñ¡¥Ì¹¡…¹‘±”ü¹Í•ÑY½±Õµ”ü¸¡Ù½±Õµ”¤ì(€ô((€Í•Ñ1½½À¡±½½Àè‰½½±•…¸¤èÙ½¥ì(€€€Ñ¡¥Ì¹±½½À€ô±½½Àì(€€€Ñ¡¥Ì¹¡…¹‘±”ü¹Í•Ñ1½½Àü¸¡±½½À¤ì(€ô((€ÍÑ½À ¤èÙ½¥ì(€€€¥˜€¡Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€ôôô€‘¥ÍÁ½Í•œ¤É•ÑÕÉ¸ì(€€€½¹ÍÐ•ÉÉ½È€ôÑ¡¥Ì¹¥¹Ù…±¥‘…Ñ” ¤ì(€€€Ñ¡¥Ì¹ÍÑ…Ñ”€ôìÍÑ…ÑÕÌè•ÉÉ½È€ü€•ÉÉ½Èœ€è€¥‘±”œ°…ÍÍ•Ñ%è¹Õ±°°•ÉÉ½Èôì(€€€Ñ¡¥Ì¹ÁÕ‰±¥Í  ¤ì(€ô((€‘¥ÍÁ½Í” ¤èÙ½¥ì(€€€¥˜€¡Ñ¡¥Ì¹ÍÑ…Ñ”¹ÍÑ…ÑÕÌ€ôôô€‘¥ÍÁ½Í•œ¤É•ÑÕÉ¸ì(€€€½¹ÍÐ•ÉÉ½È€ôÑ¡¥Ì¹¥¹Ù…±¥‘…Ñ” ¤ì(€€€Ñ¡¥Ì¹ÍÑ…Ñ”€ôìÍÑ…ÑÕÌè€‘¥ÍÁ½Í•œ°…ÍÍ•Ñ%è¹Õ±°°•ÉÉ½Èôì(€€€Ñ¡¥Ì¹ÁÕ‰±¥Í  ¤ì(€ô((€ÁÉ¥Ù…Ñ”…Ñ¥Ù…Ñ” ¤èÙ½¥ì(€€€¥˜€ …Ñ¡¥Ì¹¡…¹‘±”¤É•ÑÕÉ¸ì(€€€½¹ÍÐ¡…¹‘±”€ôÑ¡¥Ì¹¡…¹‘±”ì(€€€½¹ÍÐ•¹•É…Ñ¥½¸€ôÑ¡¥Ì¹•¹•É…Ñ¥½¸ì(€€€½¹ÍÐ™¥ÉÍÑA±…ä€ôÑ¡¥Ì¹Í½Õ¹‘%€ôôô¹Õ±°ì(€€€½¹ÍÐÍ½Õ¹‘%€ô¡…¹‘±”¹Á±…ä¡Ñ¡¥Ì¹Í½Õ¹‘%€üüÕ¹‘•™¥¹•¤ì(€€€¥˜€¡•¹•É…Ñ¥½¸€„ôôÑ¡¥Ì¹•¹•É…Ñ¥½¸¤É•ÑÕÉ¸ì(€€€¥˜€¡Í½Õ¹‘%€ôôô¹Õ±°ñð€…9Õµ‰•È¹¥Í¥¹¥Ñ”¡Í½Õ¹‘%¤¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¦~Ï¦ŠGšr«¢÷–ò–ž/šJ·šRûŽœ¤ì(€€€Ñ¡¥Ì¸V¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅç6÷VæD–BÒ6÷VæD–C°¢–b†f—'7EÆ’bbF†—2æöfg6WD×2â’†æFÆRç6VV´×2‡F†—2æöfg6WD×2Â6÷VæD–B“°¢–b†vVæW&F–öâÓÒF†—2ævVæW&F–öâ’&WGW&ã°¢F†—2ç7FFRç7FGW2ÒwÆ––ærs°¢F†—2çV&Æ—6‚‚“°¢Ð ¢&—fFR–çfÆ–FFR‚“¢7G&–ærÂçVÆÂ°¢F†—2ævVæW&F–öâ³Ò°¢F†—2æ6öçG&öÆÆW#òæ&÷'B‚“°¢F†—2æ6öçG&öÆÆW"ÒçVÆÃ°¢6öç7B†æFÆRÒF†—2æ†æFÆS°¢6öç7B6÷VæD–BÒF†—2ç6÷VæD–C°¢F†—2æ†æFÆRÒçVÆÃ°¢F†—2ç6÷VæD–BÒçVÆÃ°¢F†—2çvçG5Æ–&6²ÒfÇ6S°¢–b‚†æFÆR’&WGW&âçVÆÃ°¢ÆWBW'&÷#¢7G&–ærÂçVÆÂÒçVÆÃ°¢G'’°¢–b‡6÷VæD–BÓÒçVÆÂ’†æFÆRç7F÷‡6÷VæD–B“°¢Ò6F6‚†6W6R’°¢W'&÷"Ò7G&–ær†6W6R“°¢Ð¢G'’°¢†æFÆRæF—7÷6R‚“°¢Ò6F6‚†6W6R’°¢W'&÷"Ò¶W'&÷"Â7G&–ær†6W6R•Òæf–ÇFW"„&ööÆVâ’æ¦ö–â‚~ûÉ²r“°¢Ð¢&WGW&âW'&÷#°¢Ð ¢&—fFRf–Â†W'&÷#¢Væ¶æ÷vâ“¢fö–B°¢6öç7BÖW76vRÒW'&÷"–ç7Fæ6VöbW'&÷"òW'&÷"æÖW76vR¢7G&–ær†W'&÷"“°¢6öç7B6ÆVçWW'&÷"ÒF†—2æ–çfÆ–FFR‚“°¢F†—2ç7FFRÒ²7FGW3¢vW'&÷"rÂ76WD–C¢F†—2ç7FFRæ76WD–BÂW'&÷#¢¶ÖW76vRÂ6ÆVçWW'&÷%Òæf–ÇFW"„&ööÆVâ’æ¦ö–â‚~ûÉ²r’Ó°¢F†—2çV&Æ—6‚‚“°¢Ð ¢&—fFRfÆ–FFTöfg6WB†Ö–ÆÆ—6V6öæG3¢çVÖ&W"“¢fö–B°¢–b‚çVÖ&W"æ—4f–æ—FR†Ö–ÆÆ—6V6öæG2’ÇÂÖ–ÆÆ—6V6öæG2Â’F‡&÷ræWr&ævTW'&÷"‚~™û>š)i{n™{N[ø^š¾iŠþ™Ùî‹IþiÈž™™jú¾zy.i[8"r“°¢Ð ¢&—fFRV&Æ—6‚‚“¢fö–B°¢F†—2æöä6†ævR‡F†—2ç6æ6†÷B‚’“°¢Ð§Ð 
+export type MediaStatus = 'idle' | 'loading' | 'playing' | 'paused' | 'error' | 'disposed';
+
+export interface MediaHandle {
+  play(soundId?: number): number | null;
+  pause(soundId: number): void;
+  stop(soundId?: number): void;
+  seekMs(milliseconds: number, soundId: number): void;
+  setVolume?(volume: number): void;
+  setLoop?(loop: boolean): void;
+  dispose(): void;
+}
+
+export interface MediaBackend {
+  prepare(assetId: string, signal: AbortSignal, events: MediaEvents): Promise<MediaHandle>;
+}
+
+export interface MediaEvents {
+  ended(): void;
+  error(cause: unknown): void;
+}
+
+export interface MediaSnapshot {
+  status: MediaStatus;
+  assetId: string | null;
+  error: string | null;
+}
+
+export class MediaSession {
+  private backend: MediaBackend;
+  private onChange: (snapshot: MediaSnapshot) => void;
+  private generation = 0;
+  private controller: AbortController | null = null;
+  private handle: MediaHandle | null = null;
+  private soundId: number | null = null;
+  private offsetMs = 0;
+  private wantsPlayback = false;
+  private volume = 1;
+  private loop = false;
+  private state: MediaSnapshot = { status: 'idle', assetId: null, error: null };
+
+  constructor(backend: MediaBackend, onChange: (snapshot: MediaSnapshot) => void = () => {}) {
+    this.backend = backend;
+    this.onChange = onChange;
+  }
+
+  snapshot(): MediaSnapshot {
+    return { ...this.state };
+  }
+
+  async start(assetId: string, offsetMs = 0): Promise<void> {
+    if (this.state.status === 'disposed') throw new Error('åª’ä½“ä¼šè¯å·²é‡Šæ”¾ã€‚');
+    if (!assetId.trim()) throw new Error('ç¼ºå°‘éŸ³é¢‘ç´ æ IDã€‚');
+    this.validateOffset(offsetMs);
+    const cleanupError = this.invalidate();
+    if (cleanupError) {
+      this.state = { status: 'error', assetId: this.state.assetId, error: cleanupError };
+      this.publish();
+      return;
+    }
+    const generation = this.generation;
+    const controller = new AbortController();
+    this.controller = controller;
+    this.offsetMs = offsetMs;
+    this.wantsPlayback = true;
+    this.state = { status: 'loading', assetId, error: null };
+    this.publish();
+
+    try {
+      const handle = await this.backend.prepare(assetId, controller.signal, {
+        ended: () => {
+          if (generation === this.generation && this.state.status === 'playing') this.stop();
+        },
+        error: (cause) => {
+          if (generation === this.generation) this.fail(cause);
+        },
+      });
+      if (generation !== this.generation) {
+        handle.dispose();
+        return;
+      }
+      this.controller = null;
+      this.handle = handle;
+      if (this.volume !== 1) handle.setVolume?.(this.volume);
+      if (this.loop) handle.setLoop?.(true);
+      if (this.wantsPlayback) this.activate();
+      else {
+        this.state.status = 'paused';
+        this.publish();
+      }
+    } catch (error) {
+      if (generation === this.generation) this.fail(error);
+    }
+  }
+
+  pause(): void {
+    if (!['loading', 'playing'].includes(this.state.status)) return;
+    this.wantsPlayback = false;
+    try {
+      if (this.handle && this.soundId !== null) this.handle.pause(this.soundId);
+      this.state.status = 'paused';
+      this.publish();
+    } catch (error) {
+      this.fail(error);
+    }
+  }
+
+  resume(): void {
+    if (this.state.status !== 'paused') return;
+    this.wantsPlayback = true;
+    if (!this.handle) {
+      this.state.status = 'loading';
+      this.publish();
+      return;
+    }
+    try {
+      this.activate();
+    } catch (error) {
+      this.fail(error);
+    }
+  }
+
+  seekMs(milliseconds: number): void {
+    this.validateOffset(milliseconds);
+    if (!['loading', 'playing', 'paused'].includes(this.state.status)) return;
+    this.offsetMs = milliseconds;
+    try {
+      if (this.handle && this.soundId !== null) this.handle.seekMs(milliseconds, this.soundId);
+    } catch (error) {
+      this.fail(error);
+    }
+  }
+
+  setVolume(volume: number): void {
+    if (!Number.isFinite(volume) || volume < 0 || volume > 1) throw new RangeError('éŸ³é‡å¿…é¡»åœ¨ 0 åˆ° 1 ä¹‹é—´ã€‚');
+    this.volume = volume;
+    this.handle?.setVolume?.(volume);
+  }
+
+  setLoop(loop: boolean): void {
+    this.loop = loop;
+    this.handle?.setLoop?.(loop);
+  }
+
+  stop(): void {
+    if (this.state.status === 'disposed') return;
+    const error = this.invalidate();
+    this.state = { status: error ? 'error' : 'idle', assetId: null, error };
+    this.publish();
+  }
+
+  dispose(): void {
+    if (this.state.status === 'disposed') return;
+    const error = this.invalidate();
+    this.state = { status: 'disposed', assetId: null, error };
+    this.publish();
+  }
+
+  private activate(): void {
+    if (!this.handle) return;
+    const handle = this.handle;
+    const generation = this.generation;
+    const firstPlay = this.soundId === null;
+    const soundId = handle.play(this.soundId ?? undefined);
+    if (generation !== this.generation) return;
+    if (soundId === null || !Number.isFinite(soundId)) throw new Error('éŸ³é¢‘æœªèƒ½å¼€å§‹æ’­æ”¾ã€‚');
+    this.soundId = soundId;
+    if (firstPlay && this.offsetMs > 0) handle.seekMs(this.offsetMs, soundId);
+    if (generation !== this.generation) return;
+    this.state.status = 'playing';
+    this.publish();
+  }
+
+  private invalidate(): string | null {
+    this.generation += 1;
+    this.controller?.abort();
+    this.controller = null;
+    const handle = this.handle;
+    const soundId = this.soundId;
+    this.handle = null;
+    this.soundId = null;
+    this.wantsPlayback = false;
+    if (!handle) return null;
+    let error: string | null = null;
+    try {
+      if (soundId !== null) handle.stop(soundId);
+    } catch (cause) {
+      error = String(cause);
+    }
+    try {
+      handle.dispose();
+    } catch (cause) {
+      error = [error, String(cause)].filter(Boolean).join('ï¼›');
+    }
+    return error;
+  }
+
+  private fail(error: unknown): void {
+    const message = error instanceof Error ? error.message : String(error);
+    const cleanupError = this.invalidate();
+    this.state = { status: 'error', assetId: this.state.assetId, error: [message, cleanupError].filter(Boolean).join('ï¼›') };
+    this.publish();
+  }
+
+  private validateOffset(milliseconds: number): void {
+    if (!Number.isFinite(milliseconds) || milliseconds < 0) throw new RangeError('éŸ³é¢‘æ—¶é—´å¿…é¡»æ˜¯éžè´Ÿæœ‰é™æ¯«ç§’æ•°ã€‚');
+  }
+
+  private publish(): void {
+    this.onChange(this.snapshot());
+  }
+}

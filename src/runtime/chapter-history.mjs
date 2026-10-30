@@ -1,2 +1,10 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•áÁ½ÉÐ™Õ¹Ñ¥½¸µ•É•¡…ÁÑ•É!¥ÍÑ½ÉåM¹…ÁÍ¡½Ð¡ÕÉÉ•¹ÑAÉ½©•Ð°Í¹…ÁÍ¡½Ð°¡…ÁÑ•É%¤ì(€¥˜€ …ÕÉÉ•¹ÑAÉ½©•Ðñð€…Í¹…ÁÍ¡½ÐñðÕÉÉ•¹ÑAÉ½©•Ð¹¥€„ôôÍ¹…ÁÍ¡½Ð¹¥¤É•ÑÕÉ¸ÕÉÉ•¹ÑAÉ½©•Ðì(€½¹ÍÐ¡¥ÍÑ½É¥…±¡…ÁÑ•È€ôÍ¹…ÁÍ¡½Ð¹¡…ÁÑ•ÉÌ¹™¥¹ ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€ôôô¡…ÁÑ•É%¤ì(€¥˜€ …¡¥ÍÑ½É¥…±¡…ÁÑ•Èñð€…ÕÉÉ•¹ÑAÉ½©•Ð¹¡…ÁÑ•ÉÌ¹Í½µ” ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€ôôô¡…ÁÑ•É%¤¤É•ÑÕÉ¸ÕÉÉ•¹ÑAÉ½©•Ðì(€É•ÑÕÉ¸ì(€€€€¸¸¹ÕÉÉ•¹ÑAÉ½©•Ð°(€€€¡…ÁÑ•ÉÌèÕÉÉ•¹ÑAÉ½©•Ð¹¡…ÁÑ•ÉÌ¹µ…À ¡¡…ÁÑ•È¤€ôø¡…ÁÑ•È¹¥€ôôô¡…ÁÑ•É%€ü¡¥ÍÑ½É¥…±¡…ÁÑ•È€è¡…ÁÑ•È¤°(€€€ÕÁ‘…Ñ•‘ÐèÍ¹…ÁÍ¡½Ð¹ÕÁ‘…Ñ•‘Ð°(€ôì)ô
+export function mergeChapterHistorySnapshot(currentProject, snapshot, chapterId) {
+  if (!currentProject || !snapshot || currentProject.id !== snapshot.id) return currentProject;
+  const historicalChapter = snapshot.chapters.find((chapter) => chapter.id === chapterId);
+  if (!historicalChapter || !currentProject.chapters.some((chapter) => chapter.id === chapterId)) return currentProject;
+  return {
+    ...currentProject,
+    chapters: currentProject.chapters.map((chapter) => chapter.id === chapterId ? historicalChapter : chapter),
+    updatedAt: snapshot.updatedAt,
+  };
+}

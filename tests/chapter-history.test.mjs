@@ -1,2 +1,17 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞìµ•É•¡…ÁÑ•É!¥ÍÑ½ÉåM¹…ÁÍ¡½Ğô™É½´€œ¸¸½ÍÉŒ½ÉÕ¹Ñ¥µ”½¡…ÁÑ•Èµ¡¥ÍÑ½Éä¹µ©Ìœì()Ñ•ÍĞ Ÿ®ƒ¢*–:–>ËšJ“¦R–>«¢şc–:n»š‚®ƒ¢*–æÛ’şwVg–öO–&7šÒï–*£®ƒ¢*’â;–Û’î[®ƒ¢*œ°€ ¤€ôøì(€½¹ÍĞ½Ñ¡•É¡…ÁÑ•È€ôì¥è€¡…ÁÑ•Èµˆœ°‘½Õµ•¹Ğèì‰±½­Ìèmì¥è€ˆÄœ°Ñ•áĞè€ŸšršZÃš¶šZœõtôôì(€½¹ÍĞÕÉÉ•¹Ğ€ôì¥è€ÁÉ½©•Ğ´Äœ°…Ñ¥Ù•¡…ÁÑ•É%è€¡…ÁÑ•Èµˆœ°ÕÁ‘…Ñ•‘Ğè€¹•Üœ°¡…ÁÑ•ÉÌèmì¥è€¡…ÁÑ•Èµ„œ°‘½Õµ•¹Ğèì‰±½­Ìèmì¥è€„Äœ°Ñ•áĞè€ŸšZÃš¶šZœõtôô°½Ñ¡•É¡…ÁÑ•Étôì(€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôì¥è€ÁÉ½©•Ğ´Äœ°…Ñ¥Ù•¡…ÁÑ•É%è€¡…ÁÑ•Èµ„œ°ÕÁ‘…Ñ•‘Ğè€½±œ°¡…ÁÑ•ÉÌèmì¥è€¡…ÁÑ•Èµ„œ°‘½Õµ•¹Ğèì‰±½­Ìèmì¥è€„Äœ°Ñ•áĞè€Ÿš^Ÿš¶šZœõtôô°ì¥è€¡…ÁÑ•Èµˆœ°‘½Õµ•¹Ğèì‰±½­Ìèmì¥è€ˆÄœ°Ñ•áĞè€Ÿš^Ÿj–>›’â®€œõtôõtôì((€½¹ÍĞÉ•ÍÑ½É•€ôµ•É•¡…ÁÑ•É!¥ÍÑ½ÉåM¹…ÁÍ¡½Ğ¡ÕÉÉ•¹Ğ°Í¹…ÁÍ¡½Ğ°€¡…ÁÑ•Èµ„œ¤ì((€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•ÍÑ½É•¹…Ñ¥Ù•¡…ÁÑ•É%°€¡…ÁÑ•Èµˆœ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•ÍÑ½É•¹¡…ÁÑ•ÉÍlÁt¹‘½Õµ•¹Ğ¹‰±½­ÍlÁt¹Ñ•áĞ°€Ÿš^Ÿš¶šZœ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•ÍÑ½É•¹¡…ÁÑ•ÉÍlÅt°½Ñ¡•É¡…ÁÑ•È¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡µ•É•¡…ÁÑ•É!¥ÍÑ½ÉåM¹…ÁÍ¡½Ğ¡ÕÉÉ•¹Ğ°ì€¸¸¹Í¹…ÁÍ¡½Ğ°¥è€½Ñ¡•ÈµÁÉ½©•Ğœô°€¡…ÁÑ•Èµ„œ¤°ÕÉÉ•¹Ğ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡µ•É•¡…ÁÑ•É!¥ÍÑ½ÉåM¹…ÁÍ¡½Ğ¡ÕÉÉ•¹Ğ°Í¹…ÁÍ¡½Ğ°€µ¥ÍÍ¥¹œœ¤°ÕÉÉ•¹Ğ¤ì)ô¤ì
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { mergeChapterHistorySnapshot } from '../src/runtime/chapter-history.mjs';
+
+test('ç« èŠ‚å†å²æ’¤é”€åªè¿˜åŸç›®æ ‡ç« èŠ‚å¹¶ä¿ç•™å½“å‰æ´»åŠ¨ç« èŠ‚ä¸å…¶ä»–ç« èŠ‚', () => {
+  const otherChapter = { id: 'chapter-b', document: { blocks: [{ id: 'b1', text: 'æœ€æ–°æ­£æ–‡' }] } };
+  const current = { id: 'project-1', activeChapterId: 'chapter-b', updatedAt: 'new', chapters: [{ id: 'chapter-a', document: { blocks: [{ id: 'a1', text: 'æ–°æ­£æ–‡' }] } }, otherChapter] };
+  const snapshot = { id: 'project-1', activeChapterId: 'chapter-a', updatedAt: 'old', chapters: [{ id: 'chapter-a', document: { blocks: [{ id: 'a1', text: 'æ—§æ­£æ–‡' }] } }, { id: 'chapter-b', document: { blocks: [{ id: 'b1', text: 'æ—§çš„å¦ä¸€ç« ' }] } }] };
+
+  const restored = mergeChapterHistorySnapshot(current, snapshot, 'chapter-a');
+
+  assert.equal(restored.activeChapterId, 'chapter-b');
+  assert.equal(restored.chapters[0].document.blocks[0].text, 'æ—§æ­£æ–‡');
+  assert.equal(restored.chapters[1], otherChapter);
+  assert.equal(mergeChapterHistorySnapshot(current, { ...snapshot, id: 'other-project' }, 'chapter-a'), current);
+  assert.equal(mergeChapterHistorySnapshot(current, snapshot, 'missing'), current);
+});

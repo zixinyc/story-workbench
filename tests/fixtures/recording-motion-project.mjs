@@ -1,5 +1,21 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐìÉ•…Ñ•	±…¹­AÉ½©•Ðô™É½´€œ¸¸¼¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ð¹µ©Ìœì)¥µÁ½ÉÐì‘•™…Õ±ÑM•ÑÑ¥¹Ìô™É½´€œ¸¸¼¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ð¹µ©Ìœì)¥µÁ½ÉÐì‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì°µ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸ô™É½´€œ¸¸¼¸¸½ÍÉŒ½µ½Ñ¥½¸½•™™•ÑÌ¹µ©Ìœì()•áÁ½ÉÐ™Õ¹Ñ¥½¸É•…Ñ•I•½É‘¥¹5½Ñ¥½¹M…µÁ±” ¤ì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ•	±…¹­AÉ½©•Ð ¤ì(€ÁÉ½©•Ð¹¹…µ”€ô€Ÿ–öW–Æ?–*£šV#¢¾W’öpƒ
-Üƒ¦^£–’Xœì(€½¹ÍÐ¡…ÁÑ•È€ôÁÉ½©•Ð¹¡…ÁÑ•ÉÍlÁtì(€¡…ÁÑ•È¹¹…µ”€ô€Ÿž.³ž®/ž~·ž¾ƒ
-Üƒ¦v{š¶–ò?–&Ÿšœì(€½¹ÍÐ±¥¹•Ì€ôl(€€€lŸ¦^£–’[žj¢kš¶—–s’êŽœ°€¹½¹”t°(€€€lŸ¢¾ß¢ºÃ–ú]q»¢þg’â–"ïŽœ°€Ù•ÉÑ¥…±I•Ù•…°t°(€€€lŸ–ŽÃ¦~Ïš‹–’7š^Û¾ò3¦
-–>—¢¾w’î7žÛšâš–kŽœ°€¡½ÍÑ½¹Ù•É”t°(€€€lŸš"Gš*+¦^£š&O–òŽœ°€¹½¹”t°(€tì(€¡…ÁÑ•È¹‘½Õµ•¹Ð¹‰±½­Ì€ô±¥¹•Ì¹µ…À ¡mÑ•áÐ°µ½Ñ¥½¹t°¥¹‘•à¤€ôøì(€€€½¹ÍÐµ½Ñ¥½¹M•ÑÑ¥¹Ì€ô‘•™…Õ±Ñ5½Ñ¥½¹M•ÑÑ¥¹Ì¡µ½Ñ¥½¸°Ñ•áÐ¤ì(€€€É•ÑÕÉ¸ìÑåÁ”è€Á…É…É…Á œ°¥èÉÀµÍ…µÁ±”µÀ‘í¥¹‘•áõ€°¡¥±‘É•¸èmìÑåÁ”è€Õ”œ°¥èÉÀµÍ…µÁ±”µŒ‘í¥¹‘•áõ€°¡¥±‘É•¸èmìÑåÁ”è€Ñ•áÐœ°Ñ•áÐõt°Í•ÑÑ¥¹Ìè‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìµ½‘”è€™É•”œ°™½¹ÑM¥é”è€Øà°µ½Ñ¥½¸°µ½Ñ¥½¹M•ÑÑ¥¹Ì°…‘Ù…¹”è€Ñ¥µ•œ°‘ÕÉ…Ñ¥½¹5Ìè5…Ñ ¹µ…à ÈÔÀÀ°µ¥¹¥µÕµ5½Ñ¥½¹ÕÉ…Ñ¥½¸¡µ½Ñ¥½¸°Ñ•áÐ°µ½Ñ¥½¹M•ÑÑ¥¹Ì¤¤ô¤õtôì(€ô¤ì(€É•ÑÕÉ¸ÁÉ½©•Ðì)ô
+import { createBlankProject } from '../../src/domain/model/project.mjs';
+import { defaultSettings } from '../../src/domain/model/document.mjs';
+import { defaultMotionSettings, minimumMotionDuration } from '../../src/motion/effects.mjs';
+
+export function createRecordingMotionSample() {
+  const project = createBlankProject();
+  project.name = 'å½•å±åŠ¨æ•ˆè¯•ä½œ Â· é—¨å¤–';
+  const chapter = project.chapters[0];
+  chapter.name = 'ç‹¬ç«‹çŸ­ç¯‡ Â· éžæ­£å¼å‰§æƒ…';
+  const lines = [
+    ['é—¨å¤–çš„è„šæ­¥åœäº†ã€‚', 'none'],
+    ['è¯·è®°å¾—\nè¿™ä¸€åˆ»ã€‚', 'verticalReveal'],
+    ['å£°éŸ³æ¢å¤æ—¶ï¼Œé‚£å¥è¯ä»ç„¶æ¸…æ¥šã€‚', 'ghostConverge'],
+    ['æˆ‘æŠŠé—¨æ‰“å¼€ã€‚', 'none'],
+  ];
+  chapter.document.blocks = lines.map(([text, motion], index) => {
+    const motionSettings = defaultMotionSettings(motion, text);
+    return { type: 'paragraph', id: `rp-sample-p${index}`, children: [{ type: 'cue', id: `rp-sample-c${index}`, children: [{ type: 'text', text }], settings: defaultSettings({ mode: 'free', fontSize: 68, motion, motionSettings, advance: 'timed', durationMs: Math.max(2500, minimumMotionDuration(motion, text, motionSettings)) }) }] };
+  });
+  return project;
+}

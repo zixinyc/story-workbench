@@ -1,4 +1,133 @@
-®•y€h~)›≠Ê•ñá∂*'°î±ÍÏdÖ»4
-i´Z.áî˙ËÇ∂¶∞¸≠Üâœ ÿhü}wß+a¢w±y•µ¡Ω…–Å—ïÕ–Åô…Ω¥ÄùπΩëîÈ—ïÕ–úÏ)•µ¡Ω…–ÅÖÕÕï…–Åô…Ω¥ÄùπΩëîÈÖÕÕï…–ΩÕ—…•ç–úÏ)•µ¡Ω…–ÅÏÅï·•Õ—ÕMÂπåÅÙÅô…Ω¥ÄùπΩëîÈôÃúÏ)•µ¡Ω…–ÅÏÅŸïπ—µ•——ï»ÅÙÅô…Ω¥ÄùπΩëîÈïŸïπ—ÃúÏ)•µ¡Ω…–ÅÏÅµ≠ë—ïµ¿∞Å…ïÖë•±î∞Å›…•—ï•±î∞Å…¥ÅÙÅô…Ω¥ÄùπΩëîÈôÃΩ¡…Ωµ•ÕïÃúÏ)•µ¡Ω…–ÅΩÃÅô…Ω¥ÄùπΩëîÈΩÃúÏ)•µ¡Ω…–Å¡Ö—†Åô…Ω¥ÄùπΩëîÈ¡Ö—†úÏ)•µ¡Ω…–ÅŸ¥Åô…Ω¥ÄùπΩëîÈŸ¥úÏ)•µ¡Ω…–ÅÏÅç…ïÖ—ïA…Ω©ïç—1•â…Ö…‰ÅÙÅô…Ω¥Äú∏∏Ωï±ïç—…Ω∏Ω¡…Ω©ïç–µ±•â…Ö…‰πµ©ÃúÏ)•µ¡Ω…–ÅÏÅ…ï¡±ÖçïMÖôï±‰ÅÙÅô…Ω¥Äú∏∏Ωï±ïç—…Ω∏ΩÖ—Ωµ•åµ›…•—îπµ©ÃúÏ()ÖÕÂπåÅô’πç—•Ω∏ÅëïÕ≠—Ω¡!Ö…πïÕÃ°…ΩΩ–∞ÅïπÿÄÙÅÌÙ§ÅÏ(ÄÅçΩπÕ–Å’Õï…Ö—ÖAÖ—°ÃÄÙÅmtÏ(ÄÅçΩπÕ–Å°Öπë±ï…ÃÄÙÅπï‹Å5Ö¿†§Ï(ÄÅçΩπÕ–Å•¡åÄÙÅπï‹ÅŸïπ—µ•——ï»†§Ï(ÄÅ•¡åπ°Öπë±îÄÙÄ°πÖµî∞Å°Öπë±ï»§ÄÙ¯Å°Öπë±ï…ÃπÕï–°πÖµî∞Å°Öπë±ï»§Ï(ÄÅçΩπÕ–Å›•πëΩ›ÃÄÙÅmtÏ(ÄÅç±ÖÕÃÅ]•πëΩ‹Åï·—ïπëÃÅŸïπ—µ•——ï»ÅÏ(ÄÄÄÅçΩπÕ—…’ç—Ω»†§ÅÏ(ÄÄÄÄÄÅÕ’¡ï»†§Ï(ÄÄÄÄÄÅ—°•Ãπ›ïâΩπ—ïπ—ÃÄÙÅπï‹ÅŸïπ—µ•——ï»†§Ï(ÄÄÄÄÄÅ—°•Ãπ›ïâΩπ—ïπ—ÃπÕïπêÄÙÄ†∏∏πÖ…ùÃ§ÄÙ¯ÅÏÅ—°•ÃπÕïπ–ÄÙÅÖ…ùÃÏÅÙÏ(ÄÄÄÄÄÅ—°•Ãπ›ïâΩπ—ïπ—ÃπÕï—]•πëΩ›=¡ïπ!Öπë±ï»ÄÙÄ†§ÄÙ¯ÅÌÙÏ(ÄÄÄÄÄÅ›•πëΩ›Ãπ¡’Õ†°—°•Ã§Ï(ÄÄÄÅÙ(ÄÄÄÅÖÕÂπåÅ±ΩÖë•±î†§ÅÌÙ(ÄÄÄÅÖÕÂπåÅ±ΩÖëUI0†§ÅÌÙ(ÄÄÄÅç±ΩÕî†§ÅÏÅ—°•Ãπç±ΩÕïÖ±±ïêÄÙÅ—…’îÏÅÙ(ÄÄÄÅÕ—Ö—•åÅùï—±±]•πëΩ›Ã†§ÅÏÅ…ï—’…∏Å›•πëΩ›ÃÏÅÙ(ÄÅÙ(ÄÅçΩπÕ–ÅÖ¡¿ÄÙÅÏÅùï—AÖ—†ËÄ°≠•πê§ÄÙ¯Å≠•πêÄÙÙÙÄùï·îúÄ¸Å¡Ö—†π©Ω•∏°…ΩΩ–∞Äüñ&üöñ"oíˆsñﬁóíˆsñ>¿πï·îú§ÄËÅ…ΩΩ–∞Åùï—¡¡AÖ—†ËÄ†§ÄÙ¯Å…ΩΩ–∞ÅÕï—AÖ—†°πÖµî∞ÅŸÖ±’î§ÅÏÅ’Õï…Ö—ÖAÖ—°Ãπ¡’Õ†°ÌπÖµî∞ÅŸÖ±’ïÙ§ÏÅÙ∞Å•ÕAÖç≠ÖùïêËÅ—…’î∞Å›°ïπIïÖë‰ËÄ†§ÄÙ¯Ä°ÏÅ—°ï∏†§ÅÌÙÅÙ§∞ÅΩ∏†§ÅÌÙ∞Å≈’•–†§ÅÌÙÅÙÏ(ÄÅçΩπÕ–ÅçΩπ—ï·–ÄÙÅŸ¥πç…ïÖ—ïΩπ—ï·–°Ï(ÄÄÄÅÖ¡¿∞Å	…Ω›Õï…]•πëΩ‹ËÅ]•πëΩ‹∞Åë•Ö±ΩúËÅÌÙ∞Å•¡ç5Ö•∏ËÅ•¡å∞ÅÕ°ï±∞ËÅÌÙ∞(ÄÄÄÅ	’ôôï»∞ÅU•π–·……Ö‰∞Å¡Ö—†∞Å…ïÖë•±î∞Å›…•—ï•±î∞Åï·•Õ—ÕMÂπå∞Åç…ïÖ—ïA…Ω©ïç—1•â…Ö…‰∞Å…ï¡±ÖçïMÖôï±‰∞(ÄÄÄÅ¡…ΩçïÕÃËÅÏÅïπÿ∞Å…ïÕΩ’…çïÕAÖ—†ËÅ…ΩΩ–∞Å¡±Ö—ôΩ…¥ËÄù›•∏Ã»úÅÙ∞(ÄÅÙ§Ï(ÄÅçΩπÕ–ÅÕΩ’…çîÄÙÄ°Ö›Ö•–Å…ïÖë•±î°πï‹ÅUI0†ú∏∏Ωï±ïç—…Ω∏ΩµÖ•∏πµ©Ãú∞Å•µ¡Ω…–πµï—Ñπ’…∞§∞Äù’—ò‡ú§§π…ï¡±Öçî†Ωy•µ¡Ω…–Ä∏®Ìq»˝q∏Ωù¥∞Äúú§Ï(ÄÅŸ¥π…’π%πΩπ—ï·–°ÕΩ’…çîÄ¨Äùqπù±ΩâÖ±Q°•Ãπ—ïÕ—¡§ÄÙÅÌ…ïù•Õ—ï…%¡å±ç…ïÖ—ï]•πëΩ›ÙÏú∞ÅçΩπ—ï·–§Ï(ÄÅçΩπ—ï·–π—ïÕ—¡§π…ïù•Õ—ï…%¡å†§Ï(ÄÅ…ï—’…∏ÅÏÄ∏∏πçΩπ—ï·–π—ïÕ—¡§∞Å°Öπë±ï…Ã∞Å•¡å∞Å›•πëΩ›Ã∞Å’Õï…Ö—ÖAÖ—°ÃÅÙÏ)Ù()—ïÕ–†üöæ?í‚´ñﬁóû¢/í‚íÓ˜ññ∫Áí‚;ñí[¶£í˛wñ∂cíˆ7ûˆªæÚköZ√ñﬁóû¢/ûjí˛wñ∂cí‚7¢öûn[ö^üñﬁóû¢/ûjñí[¶£öZíÓÿú∞ÅÖÕÂπåÄ†§ÄÙ¯ÅÏ(ÄÅçΩπÕ–Å…ΩΩ–ÄÙÅÖ›Ö•–Åµ≠ë—ïµ¿°¡Ö—†π©Ω•∏°ΩÃπ—µ¡ë•»†§∞ÄùÕ›àµπÖ—•Ÿîµ±•â…Ö…‰¥ú§§Ï(ÄÅ—…‰ÅÏ(ÄÄÄÅçΩπÕ–Å†ÄÙÅÖ›Ö•–ÅëïÕ≠—Ω¡!Ö…πïÕÃ°…ΩΩ–§Ï(ÄÄÄÅçΩπÕ–Å±•â…Ö…‰ÄÙÅç…ïÖ—ïA…Ω©ïç—1•â…Ö…‰°…ΩΩ–§Ï(ÄÄÄÅçΩπÕ–ÅÑÄÙÅÖ›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰Èç…ïÖ—îú§°ÌÙ∞Å	’ôôï»πô…Ω¥†ùÕï±òµùïπï…Ö—ïêÅú§∞ÅÏÅπÖµîËÄüñﬁóû¢/ûR»ú∞Å¡…Ω©ïç—%êËÄù¡…Ω©ïç–µÑúÅÙ§Ï(ÄÄÄÅçΩπÕ–ÅàÄÙÅÖ›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰Èç…ïÖ—îú§°ÌÙ∞Å	’ôôï»πô…Ω¥†ùÕï±òµùïπï…Ö—ïêÅú§∞ÅÏÅπÖµîËÄüñﬁóû¢/íÊdú∞Å¡…Ω©ïç—%êËÄù¡…Ω©ïç–µàúÅÙ§Ï((ÄÄÄÅçΩπÕ–Åï·—ï…πÖ∞ÄÙÅ¡Ö—†π©Ω•∏°…ΩΩ–∞ÄùπÕ—Ω…Â¡Öç¨πÈ•¿ú§Ï(ÄÄÄÅÖ›Ö•–Å±•â…Ö…‰πÕÖŸïÕQº°Ñπ≠ï‰∞Å	’ôôï»πô…Ω¥†ùÅÿƒú§∞Åï·—ï…πÖ∞§Ï((ÄÄÄÅÖ›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰ÈÕÖŸîú§†ÅÌÙ∞Åàπ≠ï‰∞Å	’ôôï»πô…Ω¥†ùÅÿƒú§∞ÅÌÙ§Ï((ÄÄÄÅÖÕÕï…–πëïï¡≈’Ö∞°Ö›Ö•–Å…ïÖë•±î°ï·—ï…πÖ∞§∞Å	’ôôï»πô…Ω¥†ùÅÿƒú§∞ÄùÉûj¢´ñ*£í˛wñ∂cí‚7ñÍSöRÁñ*†ÅÉûjñí[¶£öZíÓÿú§Ï(ÄÄÄÅÖÕÕï…–πëïï¡≈’Ö∞°Ö›Ö•–Å±•â…Ö…‰π±ΩÖê°Ñπ≠ï‰§∞Åπï‹ÅU•π–·……Ö‰°	’ôôï»πô…Ω¥†ùÅÿƒú§§§Ï(ÄÄÄÅÖÕÕï…–πëïï¡≈’Ö∞°Ö›Ö•–Å±•â…Ö…‰π±ΩÖê°àπ≠ï‰§∞Åπï‹ÅU•π–·……Ö‰°	’ôôï»πô…Ω¥†ùÅÿƒú§§§Ï(ÄÄÄÅÖÕÕï…–πï≈’Ö∞°Ö›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰ÈÕÖŸîµ—Ö…ùï–ú§°ÌÙ∞ÅÑπ≠ï‰§∞Åï·—ï…πÖ∞§Ï(ÄÄÄÅÖÕÕï…–πï≈’Ö∞°Ö›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰ÈÕÖŸîµ—Ö…ùï–ú§°ÌÙ∞Åàπ≠ï‰§∞Åπ’±∞∞ÄüöZ√ñﬁóû¢/í‚7ñÍSûÓüö&ˇö^üñﬁóû¢/ûjí˛wñ∂cíˆ7ûˆ∏ú§Ï(ÄÅÙÅô•πÖ±±‰ÅÏÅÖ›Ö•–Å…¥°…ΩΩ–∞ÅÏÅ…ïç’…Õ•ŸîËÅ—…’î∞ÅôΩ…çîËÅ—…’îÅÙ§ÏÅÙ)Ù§Ï()—ïÕ–†üñæÛñóö>CíÍìñí«¢“óö^€ñﬁóû¢/ûjñí[¶£í˛wñ∂cíˆ7ûˆªí˛wö2í‚7ñ>cæÚ3í‚7íÚk¢äØ¶vg¶Ócö‚û¶Ëú∞ÅÖÕÂπåÄ†§ÄÙ¯ÅÏ(ÄÅçΩπÕ–Å…ΩΩ–ÄÙÅÖ›Ö•–Åµ≠ë—ïµ¿°¡Ö—†π©Ω•∏°ΩÃπ—µ¡ë•»†§∞ÄùÕ›àµπÖ—•Ÿîµ±•â…Ö…‰µôÖ•∞¥ú§§Ï(ÄÅ—…‰ÅÏ(ÄÄÄÅçΩπÕ–Å†ÄÙÅÖ›Ö•–ÅëïÕ≠—Ω¡!Ö…πïÕÃ°…ΩΩ–§Ï(ÄÄÄÅçΩπÕ–Å±•â…Ö…‰ÄÙÅç…ïÖ—ïA…Ω©ïç—1•â…Ö…‰°…ΩΩ–§Ï(ÄÄÄÅçΩπÕ–Åïπ—…‰ÄÙÅÖ›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰Èç…ïÖ—îú§°ÌÙ∞Å	’ôôï»πô…Ω¥†ùÕï±òµùïπï…Ö—ïêÅΩ…•ù•πÖ∞ú§∞ÅÏÅπÖµîËÄüñﬁóû¢/ûR»ú∞Å¡…Ω©ïç—%êËÄù¡…Ω©ïç–µÑúÅÙ§Ï(ÄÄÄÅçΩπÕ–Å—Ö…ùï–ÄÙÅ¡Ö—†π©Ω•∏°…ΩΩ–∞ÄùΩ±êµ¡…Ω©ïç–πÕ—Ω…Â¡Öç¨πÈ•¿ú§Ï(ÄÄÄÅÖ›Ö•–Å›…•—ï•±î°—Ö…ùï–∞Å	’ôôï»πô…Ω¥†ùï·—ï…πÖ∞ÅΩ…•ù•πÖ∞ú§§Ï(ÄÄÄÅÖ›Ö•–Å±•â…Ö…‰πÕÖŸïÕQº°ïπ—…‰π≠ï‰∞Å	’ôôï»πô…Ω¥†ùÕï±òµùïπï…Ö—ïêÅΩ…•ù•πÖ∞ú§∞Å—Ö…ùï–§Ï((ÄÄÄÄººÉûR£¢⁄¢˛íˆOûûøí‚+¶fCûjññ∫Á¢ûõñ>GñæÛñóñí«¢“î(ÄÄÄÅÖ›Ö•–ÅÖÕÕï…–π…ï©ïç—Ã†(ÄÄÄÄÄÄ†§ÄÙ¯Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰È•µ¡Ω…–µçΩµµ•–ú§°ÌÙ∞Åïπ—…‰π≠ï‰∞Å	’ôôï»πÖ±±Ωå†¿§∞ÅÌÙ§∞(ÄÄÄÄÄÄøñíüñ¬?ö^ÉöV º∞(ÄÄÄÄ§Ï(ÄÄÄÅÖÕÕï…–πï≈’Ö∞°Ö›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰ÈÕÖŸîµ—Ö…ùï–ú§°ÌÙ∞Åïπ—…‰π≠ï‰§∞Å—Ö…ùï–∞ÄüñæÛñóñí«¢“óñB;í˛wñ∂cíˆ7ûˆªñ˛¶ÜÔ¢˛cöbøñ:íˆ7ûˆ∏ú§Ï(ÄÄÄÅÖÕÕï…–πëïï¡≈’Ö∞°Ö›Ö•–Å…ïÖë•±î°—Ö…ùï–§∞Å	’ôôï»πô…Ω¥†ùÕï±òµùïπï…Ö—ïêÅΩ…•ù•πÖ∞ú§∞Äüñ:ñí[¶£ñﬁóû¢/öZíÓ€í‚7ñÍS¢äØñí«¢“óûjñæÛñóöRÁñ*†ú§Ï(ÄÄÄÅÖÕÕï…–πëïï¡≈’Ö∞°Ö›Ö•–Å±•â…Ö…‰π±ΩÖê°ïπ—…‰π≠ï‰§∞Åπï‹ÅU•π–·……Ö‰°	’ôôï»πô…Ω¥†ùÕï±òµùïπï…Ö—ïêÅΩ…•ù•πÖ∞ú§§∞Äüör≥örÎñﬁóû¢/í‚7ñÍS¢äØñí«¢“óûjñæÛñóöRÁñ*†ú§Ï(ÄÅÙÅô•πÖ±±‰ÅÏÅÖ›Ö•–Å…¥°…ΩΩ–∞ÅÏÅ…ïç’…Õ•ŸîËÅ—…’î∞ÅôΩ…çîËÅ—…’îÅÙ§ÏÅÙ)Ù§Ï()—ïÕ–†üñﬁóû¢/ñÍOö‚ñ6Wö2'ûnªñˆWö:£ñæÛæÚ3¶7ñF˜ñB7í‚7öRÁûéûncûnªñˆTú∞ÅÖÕÂπåÄ†§ÄÙ¯ÅÏ(ÄÅçΩπÕ–Å…ΩΩ–ÄÙÅÖ›Ö•–Åµ≠ë—ïµ¿°¡Ö—†π©Ω•∏°ΩÃπ—µ¡ë•»†§∞ÄùÕ›àµπÖ—•Ÿîµ±•â…Ö…‰µ±•Õ–¥ú§§Ï(ÄÅ—…‰ÅÏ(ÄÄÄÅçΩπÕ–Å†ÄÙÅÖ›Ö•–ÅëïÕ≠—Ω¡!Ö…πïÕÃ°…ΩΩ–§Ï(ÄÄÄÅçΩπÕ–Åç…ïÖ—ïêÄÙÅÖ›Ö•–Å†π°Öπë±ï…Ãπùï–†ù±•â…Ö…‰Èç…ïÖ—îú§°ÌÙ∞Å	’ôôï»πô…Ω¥†ù‡ú§∞ÅÏÅπÖµîËÄüö^üñB7ñ∂\ú∞Å¡…Ω©ïç—%êËÄù¡…Ω©ïç–µ‡úÅÙ§Ï(ÄÄÄÄV¢ïÁm°¯ßv∑öñZjÿ®ûá¬R«´±í –)§6≠h∫jSÎ¢
-⁄ö√Ú∂'?+a¢}ıﬁú≠Üâﬁ≈Ê6ˆÁ7B&VÊ÷VB“vóBÇÊÜÊF∆W'2ÊvWBÇv∆ñ'&'ìß&VÊ÷Rríá∑“¬7&VFVBÊ∂Wí¬~ikYﬁZŸrrì∞¢76W'BÊWV¬á&VÊ÷VBÊÊ÷R¬~ikYﬁZŸrrì∞¢6ˆÁ7B7FFR“vóBÇÊÜÊF∆W'2ÊvWBÇv∆ñ'&'ì¶∆ó7BríÇì∞¢76W'BÊWV¬á7FFRÁ&ˆ¶V7G2Ê∆VÊwFÇ¬ì∞¢76W'BÊWV¬á7FFRÁ&ˆ¶V7G5≥“ÊÊ÷R¬~ikYﬁZŸrrì∞¢76W'BÊˆ≤ÜWÜó7G57ñÊ2áFÇÊ¶ˆñ‚á&ˆ˜B¬v∆ñ'&'ír¬w&ˆ¶V7G2r¬7&VFVBÊ∂Wí¬wv˜&∑76RÁ7F˜'ó6≤Á¶órííì∞¢“fñÊ∆«í≤vóB&“á&ˆ˜B¬≤&V7W'6ófS¢G'VR¬f˜&6S¢G'VR“ì≤–ß“ì∞†ßFW7BÇ~Y
-˛X™éY(Œh.ZHﬁö^X˙˛X[>ôzﬁ˚»Œ{…nãÈYöéyõæäÎK˘ﬁZŸéZHNynYöéYÓöæzÿû[Ë^K˘ﬁZŸé{π>iÈ¬r¬7ñÊ2Çí”‚∞¢6ˆÁ7B&ˆ˜B“vóB÷∂GFV◊áFÇÊ¶ˆñ‚Ü˜2ÁF◊Fó"Çí¬w7v"÷ÊFófR÷6∆˜6R“ríì∞¢G'í∞¢6ˆÁ7BÇ“vóBFW6∑F˜Ü&ÊW72á&ˆ˜Bì∞¢vóBÇÊ7&VFUvñÊF˜rÇì∞¢6ˆÁ7BvñÊF˜r“ÇÁvñÊF˜w5≥”∞¢∆WB&WfVÁFVB“f«6S∞¢6ˆÁ7B6∆˜6R“Çí”‚≤&WfVÁFVB“f«6S≤vñÊF˜rÊV÷óBÇv6∆˜6Rr¬≤&WfVÁDFVfV«BÇí≤&WfVÁFVB“G'VS≤““ì≤&WGW&‚&WfVÁFVC≤”∞¢76W'BÊWV¬Ü6∆˜6RÇí¬f«6Rì∞¢ÇÊó2ÊV÷óBÇwv˜&∑76S¶6∆˜6R÷ÜÊF∆W"◊&VGír¬≤6VÊFW#¢∑““¬G'VRì∞¢76W'BÊWV¬Ü6∆˜6RÇí¬f«6R¬~X[nKπnö^ô⁄.Kàﬁà;ﬁyõæäÎ[Ÿ>Xòﬁz©~X˙>X[>ôzﬁZHNynYöÇrì∞¢ÇÊó2ÊV÷óBÇwv˜&∑76S¶6∆˜6R÷ÜÊF∆W"◊&VGír¬≤6VÊFW#¢vñÊF˜rÁvV$6ˆÁFVÁG2“¬G'VRì∞¢76W'BÊWV¬Ü6∆˜6RÇí¬G'VRì∞¢76W'BÊWV¬ávñÊF˜rÁ6VÁE≥“¬wv˜&∑76S¶&Vf˜&R÷6∆˜6Rrì∞¢ÇÊó2ÊV÷óBÇwv˜&∑76S¶6∆˜6R÷ÜÊF∆W"◊&VGír¬≤6VÊFW#¢vñÊF˜rÁvV$6ˆÁFVÁG2“¬f«6Rì∞¢76W'BÊWV¬Ü6∆˜6RÇí¬f«6R¬~ã˘æXZ^h.ZHﬁö^[õnkà^yn{…nãÈYöéZHNynYöéYÓX˙˛X[>ôz“rì∞¢ÇÊó2ÊV÷óBÇwv˜&∑76S¶6∆˜6R÷ÜÊF∆W"◊&VGír¬≤6VÊFW#¢vñÊF˜rÁvV$6ˆÁFVÁG2“¬G'VRì∞¢vñÊF˜rÁvV$6ˆÁFVÁG2ÊV÷óBÇw&VÊFW"◊&ˆ6W72÷vˆÊRrì∞¢76W'BÊWV¬Ü6∆˜6RÇí¬f«6R¬~kã.i˘>ã˘æzàæ[Jûk®>i{nKàﬁ[©NôHj€æz©~X˙2rì∞¢“fñÊ∆«í≤vóB&“á&ˆ˜B¬≤&V7W'6ófS¢G'VR¬f˜&6S¢G'VR“ì≤–ß“ì∞†ßFW7BÇ~KÎ˛iÆX»^yªN[»UÑ^K€˛yJéX»^Xh^i[h⁄Ó˚»ŒiãÓ[»˛ô©Nzkæãz˛[ËNK…éXXéKâNKàﬁiKûõπéäÍNZËûä8^jä[»Úr¬7ñÊ2Çí”‚∞¢6ˆÁ7B&ˆ˜B“vóB÷∂GFV◊áFÇÊ¶ˆñ‚Ü˜2ÁF◊Fó"Çí¬w7v"÷ÊFófR◊˜'F&∆R“ríì∞¢G'í∞¢6ˆÁ7B&VwV∆"“vóBFW6∑F˜Ü&ÊW72á&ˆ˜Bì∞¢76W'BÊFVWWV¬á&VwV∆"ÁW6W$FFFá2¬µ“ì∞¢vóBw&óFTfñ∆RáFÇÊ¶ˆñ‚á&ˆ˜B¬w˜'F&∆R÷÷ˆFRrí¬v∆ˆ6¬fóáGW&Rrì∞¢6ˆÁ7B˜'F&∆R“vóBFW6∑F˜Ü&ÊW72á&ˆ˜Bì∞¢76W'BÊFVWWV¬á˜'F&∆RÁW6W$FFFá2¬∑≤Ê÷S¢wW6W$FFr¬f«VS¢FÇÊ¶ˆñ‚á&ˆ˜B¬~ö®ŒiKni[h⁄‚rí’“ì∞¢6ˆÁ7Bó6ˆ∆FVEFÇ“FÇÊ¶ˆñ‚á&ˆ˜B¬vFñffW&VÁB÷ó6ˆ∆FVB÷FFrì∞¢6ˆÁ7Bó6ˆ∆FVB“vóBFW6∑F˜Ü&ÊW72á&ˆ˜B¬≤5Dı%ïıtı$¥$T‰4ÖıU4U%ÙDD¢ó6ˆ∆FVEFÇ“ì∞¢76W'BÊFVWWV¬Üó6ˆ∆FVBÁW6W$FFFá2¬∑≤Ê÷S¢wW6W$FFr¬f«VS¢ó6ˆ∆FVEFÇ’“ì∞¢“fñÊ∆«í≤vóB&“á&ˆ˜B¬≤&V7W'6ófS¢G'VR¬f˜&6S¢G'VR“ì≤–ß“ì∞
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { existsSync } from 'node:fs';
+import { EventEmitter } from 'node:events';
+import { mkdtemp, readFile, writeFile, rm } from 'node:fs/promises';
+import os from 'node:os';
+import path from 'node:path';
+import vm from 'node:vm';
+import { createProjectLibrary } from '../electron/project-library.mjs';
+import { replaceSafely } from '../electron/atomic-write.mjs';
+
+async function desktopHarness(root, env = {}) {
+  const userDataPaths = [];
+  const handlers = new Map();
+  const ipc = new EventEmitter();
+  ipc.handle = (name, handler) => handlers.set(name, handler);
+  const windows = [];
+  class Window extends EventEmitter {
+    constructor() {
+      super();
+      this.webContents = new EventEmitter();
+      this.webContents.send = (...args) => { this.sent = args; };
+      this.webContents.setWindowOpenHandler = () => {};
+      windows.push(this);
+    }
+    async loadFile() {}
+    async loadURL() {}
+    close() { this.closeCalled = true; }
+    static getAllWindows() { return windows; }
+  }
+  const app = { getPath: (kind) => kind === 'exe' ? path.join(root, 'ÂâßÊÉÖÂàõ‰ΩúÂ∑•‰ΩúÂè∞.exe') : root, getAppPath: () => root, setPath(name, value) { userDataPaths.push({name, value}); }, isPackaged: true, whenReady: () => ({ then() {} }), on() {}, quit() {} };
+  const context = vm.createContext({
+    app, BrowserWindow: Window, dialog: {}, ipcMain: ipc, shell: {},
+    Buffer, Uint8Array, path, readFile, writeFile, existsSync, createProjectLibrary, replaceSafely,
+    process: { env, resourcesPath: root, platform: 'win32' },
+  });
+  const source = (await readFile(new URL('../electron/main.mjs', import.meta.url), 'utf8')).replace(/^import .*;\r?\n/gm, '');
+  vm.runInContext(source + '\nglobalThis.testApi = {registerIpc,createWindow};', context);
+  context.testApi.registerIpc();
+  return { ...context.testApi, handlers, ipc, windows, userDataPaths };
+}
+
+test('ÊØè‰∏™Â∑•Á®ã‰∏Ä‰ªΩÂÜÖÂÆπ‰∏éÂ§ñÈÉ®‰øùÂ≠ò‰ΩçÁΩÆÔºöÊñ∞Â∑•Á®ãÁöÑ‰øùÂ≠ò‰∏çË¶ÜÁõñÊóßÂ∑•Á®ãÁöÑÂ§ñÈÉ®Êñá‰ª∂', async () => {
+  const root = await mkdtemp(path.join(os.tmpdir(), 'swb-native-library-'));
+  try {
+    const h = await desktopHarness(root);
+    const library = createProjectLibrary(root);
+    const a = await h.handlers.get('library:create')({}, Buffer.from('self-generated A'), { name: 'Â∑•Á®ãÁî≤', projectId: 'project-a' });
+    const b = await h.handlers.get('library:create')({}, Buffer.from('self-generated B'), { name: 'Â∑•Á®ã‰πô', projectId: 'project-b' });
+
+    const external = path.join(root, 'A.storypack.zip');
+    await library.saveAsTo(a.key, Buffer.from('A v1'), external);
+
+    await h.handlers.get('library:save')( {}, b.key, Buffer.from('B v1'), {});
+
+    assert.deepEqual(await readFile(external), Buffer.from('A v1'), 'B ÁöÑËá™Âä®‰øùÂ≠ò‰∏çÂ∫îÊîπÂä® A ÁöÑÂ§ñÈÉ®Êñá‰ª∂');
+    assert.deepEqual(await library.load(a.key), new Uint8Array(Buffer.from('A v1')));
+    assert.deepEqual(await library.load(b.key), new Uint8Array(Buffer.from('B v1')));
+    assert.equal(await h.handlers.get('library:save-target')({}, a.key), external);
+    assert.equal(await h.handlers.get('library:save-target')({}, b.key), null, 'Êñ∞Â∑•Á®ã‰∏çÂ∫îÁªßÊâøÊóßÂ∑•Á®ãÁöÑ‰øùÂ≠ò‰ΩçÁΩÆ');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('ÂØºÂÖ•Êèê‰∫§Â§±Ë¥•Êó∂Â∑•Á®ãÁöÑÂ§ñÈÉ®‰øùÂ≠ò‰ΩçÁΩÆ‰øùÊåÅ‰∏çÂèòÔºå‰∏ç‰ºöË¢´ÈùôÈªòÊ∏ÖÁ©∫', async () => {
+  const root = await mkdtemp(path.join(os.tmpdir(), 'swb-native-library-fail-'));
+  try {
+    const h = await desktopHarness(root);
+    const library = createProjectLibrary(root);
+    const entry = await h.handlers.get('library:create')({}, Buffer.from('self-generated original'), { name: 'Â∑•Á®ãÁî≤', projectId: 'project-a' });
+    const target = path.join(root, 'old-project.storypack.zip');
+    await writeFile(target, Buffer.from('external original'));
+    await library.saveAsTo(entry.key, Buffer.from('self-generated original'), target);
+
+    // Áî®Ë∂ÖËøá‰ΩìÁßØ‰∏äÈôêÁöÑÂÜÖÂÆπËß¶ÂèëÂØºÂÖ•Â§±Ë¥•
+    await assert.rejects(
+      () => h.handlers.get('library:import-commit')({}, entry.key, Buffer.alloc(0), {}),
+      /Â§ßÂ∞èÊó†Êïà/,
+    );
+    assert.equal(await h.handlers.get('library:save-target')({}, entry.key), target, 'ÂØºÂÖ•Â§±Ë¥•Âêé‰øùÂ≠ò‰ΩçÁΩÆÂøÖÈ°ªËøòÊòØÂéü‰ΩçÁΩÆ');
+    assert.deepEqual(await readFile(target), Buffer.from('self-generated original'), 'ÂéüÂ§ñÈÉ®Â∑•Á®ãÊñá‰ª∂‰∏çÂ∫îË¢´Â§±Ë¥•ÁöÑÂØºÂÖ•ÊîπÂä®');
+    assert.deepEqual(await library.load(entry.key), new Uint8Array(Buffer.from('self-generated original')), 'Êú¨Êú∫Â∑•Á®ã‰∏çÂ∫îË¢´Â§±Ë¥•ÁöÑÂØºÂÖ•ÊîπÂä®');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('Â∑•Á®ãÂ∫ìÊ∏ÖÂçïÊåâÁõÆÂΩïÊé®ÂØºÔºåÈáçÂëΩÂêç‰∏çÊîπÁ£ÅÁõòÁõÆÂΩï', async () => {
+  const root = await mkdtemp(path.join(os.tmpdir(), 'swb-native-library-list-'));
+  try {
+    const h = await desktopHarness(root);
+    const created = await h.handlers.get('library:create')({}, Buffer.from('x'), { name: 'ÊóßÂêçÂ≠ó', projectId: 'project-x' });
+    const renamed = await h.handlers.get('library:rename')({}, created.key, 'Êñ∞ÂêçÂ≠ó');
+    assert.equal(renamed.name, 'Êñ∞ÂêçÂ≠ó');
+    const state = await h.handlers.get('library:list')();
+    assert.equal(state.projects.length, 1);
+    assert.equal(state.projects[0].name, 'Êñ∞ÂêçÂ≠ó');
+    assert.ok(existsSync(path.join(root, 'library', 'projects', created.key, 'workspace.storypack.zip')));
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('ÂêØÂä®ÂíåÊÅ¢Â§çÈ°µÂèØÂÖ≥Èó≠ÔºåÁºñËæëÂô®ÁôªËÆ∞‰øùÂ≠òÂ§ÑÁêÜÂô®ÂêéÈ°ªÁ≠âÂæÖ‰øùÂ≠òÁªìÊûú', async () => {
+  const root = await mkdtemp(path.join(os.tmpdir(), 'swb-native-close-'));
+  try {
+    const h = await desktopHarness(root);
+    await h.createWindow();
+    const window = h.windows[0];
+    let prevented = false;
+    const close = () => { prevented = false; window.emit('close', { preventDefault() { prevented = true; } }); return prevented; };
+    assert.equal(close(), false);
+    h.ipc.emit('workspace:close-handler-ready', { sender: {} }, true);
+    assert.equal(close(), false, 'ÂÖ∂‰ªñÈ°µÈù¢‰∏çËÉΩÁôªËÆ∞ÂΩìÂâçÁ™óÂè£ÂÖ≥Èó≠Â§ÑÁêÜÂô®');
+    h.ipc.emit('workspace:close-handler-ready', { sender: window.webContents }, true);
+    assert.equal(close(), true);
+    assert.equal(window.sent[0], 'workspace:before-close');
+    h.ipc.emit('workspace:close-handler-ready', { sender: window.webContents }, false);
+    assert.equal(close(), false, 'ËøõÂÖ•ÊÅ¢Â§çÈ°µÂπ∂Ê∏ÖÁêÜÁºñËæëÂô®Â§ÑÁêÜÂô®ÂêéÂèØÂÖ≥Èó≠');
+    h.ipc.emit('workspace:close-handler-ready', { sender: window.webContents }, true);
+    window.webContents.emit('render-process-gone');
+    assert.equal(close(), false, 'Ê∏≤ÊüìËøõÁ®ãÂ¥©Ê∫ÉÊó∂‰∏çÂ∫îÈîÅÊ≠ªÁ™óÂè£');
+  } finally { await rm(root, { recursive: true, force: true }); }
+});
+
+test('‰æøÊê∫ÂåÖÁõ¥ÂºÄEXE‰ΩøÁî®ÂåÖÂÜÖÊï∞ÊçÆÔºåÊòæÂºèÈöîÁ¶ªË∑ØÂæÑ‰ºòÂÖà‰∏î‰∏çÊîπÈªòËÆ§ÂÆâË£ÖÊ®°Âºè', async () => {
+  const root = await mkdtemp(path.join(os.tmpdir(), 'swb-native-portable-'));
+  try {
+    const regular = await desktopHarness(root);
+    assert.deepEqual(regular.userDataPaths, []);
+    await writeFile(path.join(root, 'portable-mode'), 'local fixture');
+    const portable = await desktopHarness(root);
+    assert.deepEqual(portable.userDataPaths, [{ name: 'userData', value: path.join(root, 'È™åÊî∂Êï∞ÊçÆ') }]);
+    const isolatedPath = path.join(root, 'different-isolated-data');
+    const isolated = await desktopHarness(root, { STORY_WORKBENCH_USER_DATA: isolatedPath });
+    assert.deepEqual(isolated.userDataPaths, [{ name: 'userData', value: isolatedPath }]);
+  } finally { await rm(root, { recursive: true, force: true }); }
+});

@@ -1,2 +1,8 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞì‘•™¥¹•½¹™¥œô™É½´€Ù¥Ñ”œì)¥µÁ½ÉĞÉ•…Ğ™É½´€Ù¥Ñ•©Ì½Á±Õ¥¸µÉ•…Ğœì()•áÁ½ÉĞ‘•™…Õ±Ğ‘•™¥¹•½¹™¥œ¡ì(€Á±Õ¥¹ÌèmÉ•…Ğ ¥t°(€‰…Í”è€œ¸¼œ°(€‰Õ¥±èì½ÕÑ¥Èè€‘¥ÍĞœ°•µÁÑå=ÕÑ¥ÈèÑÉÕ”ô°)ô¤ì
+import { defineConfig } from 'vite';
+import react from '@vitejs/plugin-react';
+
+export default defineConfig({
+  plugins: [react()],
+  base: './',
+  build: { outDir: 'dist', emptyOutDir: true },
+});

@@ -1,2 +1,124 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•áÁ½ÉÐ™Õ¹Ñ¥½¸Á±…å‰…­MÑ…ÉÑ%¹‘•à¡Á±…¸°Í•±•Ñ•‘Õ•%°µ½‘”¤ì(€¥˜€¡µ½‘”€ôôô€…ÕÑ¼œ¤É•ÑÕÉ¸€Àì(€É•ÑÕÉ¸5…Ñ ¹µ…à À°Á±…¸¹™¥¹‘%¹‘•à ¡Õ”¤€ôøÕ”¹¥€ôôôÍ•±•Ñ•‘Õ•%¤¤ì)ô()•áÁ½ÉÐ™Õ¹Ñ¥½¸É•…Ñ•A±…å•È¡ì•ÑA±…¸°½¹¡…¹”°½¹¹Ñ•È°½¹A…ÕÍ•5•‘¥„°½¹I•ÍÕµ•5•‘¥„°½¹M••­5•‘¥„°½¹MÑ½Á5•‘¥„ô¤ì(€±•ÐÍÑ…ÑÕÌ€ô€ÍÑ½ÁÁ•œì(€±•Ð¥¹‘•à€ô€Àì(€±•Ð•±…ÁÍ•‘5Ì€ô€Àì(€±•ÐÍÑ…ÉÑ•‘Ð€ô€Àì(€±•ÐÉÕ¹5½‘”€ô¹Õ±°ì(€±•ÐÑ¥µ•È€ô¹Õ±°ì(€±•ÐÑ½­•¸€ô€Àì((€½¹ÍÐÕÉÉ•¹Ð€ô€ ¤€ôø•ÑA±…¸ ¥m¥¹‘•át€üü¹Õ±°ì(€½¹ÍÐ‘ÕÉ…Ñ¥½¸€ô€ ¤€ôø5…Ñ ¹µ…à ÔÀÀ°ÕÉÉ•¹Ð ¤ü¹Í•ÑÑ¥¹Ì¹‘ÕÉ…Ñ¥½¹5Ì€üü€ÌÔÀÀ¤ì(€½¹ÍÐÍ¹…ÁÍ¡½Ð€ô€ ¤€ôø€¡ìÍÑ…ÑÕÌ°¥¹‘•à°Õ”èÕÉÉ•¹Ð ¤°•±…ÁÍ•‘5Ì°‘ÕÉ…Ñ¥½¹5Ìè‘ÕÉ…Ñ¥½¸ ¤°ÉÕ¹5½‘”ô¤ì(€½¹ÍÐÁÕ‰±¥Í €ô€ ¤€ôø½¹¡…¹”¡Í¹…ÁÍ¡½Ð ¤¤ì((€™Õ¹Ñ¥½¸±•…É1½½À ¤ì(€€€¥˜€¡Ñ¥µ•È€„ôô¹Õ±°¤±•…ÉQ¥µ•½ÕÐ¡Ñ¥µ•È¤ì(€€€Ñ¥µ•È€ô¹Õ±°ì(€ô((€™Õ¹Ñ¥½¸Í¡½Õ±‘ÕÑ½‘Ù…¹”¡Õ”¤ì(€€€¥˜€¡ÉÕ¹5½‘”€ôôô€…ÕÑ¼œ¤É•ÑÕÉ¸ÑÉÕ”ì(€€€¥˜€¡ÉÕ¹5½‘”€ôôô€±¥¬œ¤É•ÑÕÉ¸™…±Í”ì(€€€É•ÑÕÉ¸Õ”ü¹Í•ÑÑ¥¹Ì¹…‘Ù…¹”€ôôô€Ñ¥µ•œì(€ô((€™Õ¹Ñ¥½¸ÍÑ½À ¤ì(€€€Ñ½­•¸€¬ô€Äì(€€€±•…É1½½À ¤ì(€€€ÍÑ…ÑÕÌ€ô€ÍÑ½ÁÁ•œì(€€€•±…ÁÍ•‘5Ì€ô€Àì(€€€ÉÕ¹5½‘”€ô¹Õ±°ì(€€€½¹MÑ½Á5•‘¥„ ¤ì(€€€ÁÕ‰±¥Í  ¤ì(€ô((€™Õ¹Ñ¥½¸•¹Ñ•È¡¹•áÑ%¹‘•à¤ì(€€€½¹ÍÐÁ±…¸€ô•ÑA±…¸ ¤ì(€€€¥˜€¡¹•áÑ%¹‘•à€ð€Àñð¹•áÑ%¹‘•à€øôÁ±…¸¹±•¹Ñ ¤É•ÑÕÉ¸ÍÑ½À ¤ì(€€€¥¹‘•à€ô¹•áÑ%¹‘•àì(€€€•±…ÁÍ•‘5Ì€ô€Àì(€€€ÍÑ…ÉÑ•‘Ð€ôÁ•É™½Éµ…¹”¹¹½Ü ¤ì(€€€½¹¹Ñ•È¡Á±…¹m¥¹‘•át°¥¹‘•à¤ì(€€€ÁÕ‰±¥Í  ¤ì(€ô((€™Õ¹Ñ¥½¸±½½À¡ÕÉÉ•¹ÑQ½­•¸¤ì(€€€±•…É1½½À ¤ì(€€€¥˜€¡ÍÑ…ÑÕÌ€„ôô€Á±…å¥¹œœñðÕÉÉ•¹ÑQ½­•¸€„ôôÑ½­•¸¤É•ÑÕÉ¸ì(€€€Ñ¥µ•È€ôÍ•ÑQ¥µ•½ÕÐ  ¤€ôøì(€€€€€¥˜€¡ÍÑ…ÑÕÌ€„ôô€Á±…å¥¹œœñðÕÉÉ•¹ÑQ½­•¸€„ôôÑ½­•¸¤É•ÑÕÉ¸ì(€€€€€½¹ÍÐ¹½Ü€ôÁ•É™½Éµ…¹”¹¹½Ü ¤ì(€€€€€•±…ÁÍ•‘5Ì€ô5…Ñ ¹µ¥¸¡‘ÕÉ…Ñ¥½¸ ¤°¹½Ü€´ÍÑ…ÉÑ•‘Ð¤ì(€€€€€½¹ÍÐÕ”€ôÕÉÉ•¹Ð ¤ì(€€€€€¥˜€¡Í¡½Õ±‘ÕÑ½‘Ù…¹”¡Õ”¤€˜˜•±…ÁÍ•‘5Ì€øô‘ÕÉ…Ñ¥½¸ ¤¤ì(€€€€€€€•¹Ñ•È¡¥¹‘•à€¬€Ä¤ì(€€€€€ô•±Í”ì(€€€€€€€ÁÕ‰±¥Í  ¤ì(€€€€€ô(€€€€€±½½À¡ÕÉÉ•¹ÑQ½­•¸¤ì(€€€ô°€àÀ¤ì(€ô((€™Õ¹Ñ¥½¸Á±…åÉ½´¡ÍÑ…ÉÑ%¹‘•à°µ½‘”€ô¹Õ±°¤ì(€€€½¹ÍÐÁ±…¸€ô•ÑA±…¸ ¤ì(€€€¥˜€ …Á±…¸¹±•¹Ñ ¤É•ÑÕÉ¸ì(€€€Ñ½­•¸€¬ô€Äì(€€€±•…É1½½À ¤ì(€€€½¹MÑ½Á5•‘¥„ ¤ì(€€€ÉÕ¹5½‘”€ôµ½‘”ì(€€€ÍÑ…ÑÕÌ€ô€Á±…å¥¹œœì(€€€•¹Ñ•È¡5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸¡ÍÑ…ÉÑ%¹‘•à°Á±…¸¹±•¹Ñ €´€Ä¤¤¤ì(€€€±½½À¡Ñ½­•¸¤ì(€ô((€™Õ¹Ñ¥½¸Á…ÕÍ” ¤ì(€€€¥˜€¡ÍÑ…ÑÕÌ€„ôô€Á±…å¥¹œœ¤É•ÑÕÉ¸ì(€€€•±…ÁÍ•‘5Ì€ô5…Ñ ¹µ¥¸¡‘ÕÉ…Ñ¥½¸ ¤°Á•É™½Éµ…¹”¹¹½Ü ¤€´ÍÑ…ÉÑ•‘Ð¤ì(€€€ÍÑ…ÑÕÌ€ô€Á…ÕÍ•œì(€€€±•…É1½½À ¤ì(€€€½¹A…ÕÍ•5•‘¥„ ¤ì(€€€ÁÕ‰±¥Í  ¤ì(€ô((€™Õ¹Ñ¥½¸É•ÍÕµ” ¤ì(€€€¥˜€¡ÍÑ…ÑÕÌ€„ôô€Á…ÕÍ•œ¤É•ÑÕÉ¸ì(€€€ÍÑ…ÑÕÌ€ô€Á±…å¥¹œœì(€€€ÍÑ…ÉÑ•‘Ð€ôÁ•É™½Éµ…¹”¹¹½Ü ¤€´•±…ÁÍ•‘5Ìì(€€€½¹I•ÍÕµ•5•‘¥„ ¤ì(€€€ÁÕ‰±¥Í  ¤ì(€€€±½½À¡Ñ½­•¸¤ì(€ô((€™Õ¹Ñ¥½¸…‘Ù…¹” ¤ì(€€€¥˜€¡ÍÑ…ÑÕÌ€„ôô€Á±…å¥¹œœñðÍ¡½Õ±‘ÕÑ½‘Ù…¹”¡ÕÉÉ•¹Ð ¤¤¤É•ÑÕÉ¸™…±Í”ì(€€€•¹Ñ•È¡¥¹‘•à€¬€Ä¤ì(€€€É•ÑÕÉ¸ÑÉÕ”ì(€ô((€™Õ¹Ñ¥½¸Í••¬¡™É…Ñ¥½¸¤ì(€€€¥˜€ …lÁ±…å¥¹œœ°€Á…ÕÍ•t¹¥¹±Õ‘•Ì¡ÍÑ…ÑÕÌ¤¤É•ÑÕÉ¸ì(€€€•±…ÁÍ•‘5Ì€ô‘ÕÉ…Ñ¥½¸ ¤€¨5…Ñ ¹µ…à À°5…Ñ ¹µ¥¸ Ä°™É…Ñ¥½¸¤¤ì(€€€ÍÑ…ÉÑ•‘Ð€ôÁ•É™½Éµ…¹”¹¹½Ü ¤€´•±…ÁÍ•‘5Ìì(€€€½¹M••­5•‘¥„¡•±…ÁÍ•‘5Ì¤ì(€€€¥˜€¡ÍÑ…ÑÕÌ€ôôô€Á±…å¥¹œœ€˜˜Í¡½Õ±‘ÕÑ½‘Ù…¹”¡ÕÉÉ•¹Ð ¤¤€˜˜•±…ÁÍ•‘5Ì€øô‘ÕÉ…Ñ¥½¸ ¤¤•¹Ñ•È¡¥¹‘•à€¬€Ä¤ì(€€€ÁÕ‰±¥Í  ¤ì(€ô((€É•ÑÕÉ¸ì(€€€Á±…åÉ½´°(€€€Á…ÕÍ”°(€€€É•ÍÕµ”°(€€€ÍÑ½À°(€€€…‘Ù…¹”°(€€€Í••¬°(€€€Í¹…ÁÍ¡½Ð°(€€€•ÑA±…¸°(€€€¥Í]…¥Ñ¥¹½É%¹ÁÕÐè€ ¤€ôøÍÑ…ÑÕÌ€ôôô€Á±…å¥¹œœ€˜˜€…Í¡½Õ±‘ÕÑ½‘Ù…¹”¡ÕÉÉ•¹Ð ¤¤°(€ôì)ô(
+export function playbackStartIndex(plan, selectedCueId, mode) {
+  if (mode === 'auto') return 0;
+  return Math.max(0, plan.findIndex((cue) => cue.id === selectedCueId));
+}
+
+export function createPlayer({ getPlan, onChange, onEnter, onPauseMedia, onResumeMedia, onSeekMedia, onStopMedia }) {
+  let status = 'stopped';
+  let index = 0;
+  let elapsedMs = 0;
+  let startedAt = 0;
+  let runMode = null;
+  let timer = null;
+  let token = 0;
+
+  const current = () => getPlan()[index] ?? null;
+  const duration = () => Math.max(500, current()?.settings.durationMs ?? 3500);
+  const snapshot = () => ({ status, index, cue: current(), elapsedMs, durationMs: duration(), runMode });
+  const publish = () => onChange(snapshot());
+
+  function clearLoop() {
+    if (timer !== null) clearTimeout(timer);
+    timer = null;
+  }
+
+  function shouldAutoAdvance(cue) {
+    if (runMode === 'auto') return true;
+    if (runMode === 'click') return false;
+    return cue?.settings.advance === 'timed';
+  }
+
+  function stop() {
+    token += 1;
+    clearLoop();
+    status = 'stopped';
+    elapsedMs = 0;
+    runMode = null;
+    onStopMedia();
+    publish();
+  }
+
+  function enter(nextIndex) {
+    const plan = getPlan();
+    if (nextIndex < 0 || nextIndex >= plan.length) return stop();
+    index = nextIndex;
+    elapsedMs = 0;
+    startedAt = performance.now();
+    onEnter(plan[index], index);
+    publish();
+  }
+
+  function loop(currentToken) {
+    clearLoop();
+    if (status !== 'playing' || currentToken !== token) return;
+    timer = setTimeout(() => {
+      if (status !== 'playing' || currentToken !== token) return;
+      const now = performance.now();
+      elapsedMs = Math.min(duration(), now - startedAt);
+      const cue = current();
+      if (shouldAutoAdvance(cue) && elapsedMs >= duration()) {
+        enter(index + 1);
+      } else {
+        publish();
+      }
+      loop(currentToken);
+    }, 80);
+  }
+
+  function playFrom(startIndex, mode = null) {
+    const plan = getPlan();
+    if (!plan.length) return;
+    token += 1;
+    clearLoop();
+    onStopMedia();
+    runMode = mode;
+    status = 'playing';
+    enter(Math.max(0, Math.min(startIndex, plan.length - 1)));
+    loop(token);
+  }
+
+  function pause() {
+    if (status !== 'playing') return;
+    elapsedMs = Math.min(duration(), performance.now() - startedAt);
+    status = 'paused';
+    clearLoop();
+    onPauseMedia();
+    publish();
+  }
+
+  function resume() {
+    if (status !== 'paused') return;
+    status = 'playing';
+    startedAt = performance.now() - elapsedMs;
+    onResumeMedia();
+    publish();
+    loop(token);
+  }
+
+  function advance() {
+    if (status !== 'playing' || shouldAutoAdvance(current())) return false;
+    enter(index + 1);
+    return true;
+  }
+
+  function seek(fraction) {
+    if (!['playing', 'paused'].includes(status)) return;
+    elapsedMs = duration() * Math.max(0, Math.min(1, fraction));
+    startedAt = performance.now() - elapsedMs;
+    onSeekMedia(elapsedMs);
+    if (status === 'playing' && shouldAutoAdvance(current()) && elapsedMs >= duration()) enter(index + 1);
+    publish();
+  }
+
+  return {
+    playFrom,
+    pause,
+    resume,
+    stop,
+    advance,
+    seek,
+    snapshot,
+    getPlan,
+    isWaitingForInput: () => status === 'playing' && !shouldAutoAdvance(current()),
+  };
+}

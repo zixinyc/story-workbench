@@ -1,4 +1,155 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐì‰¥¹‘‘¥Ñ½ÉY¥•Ý1¥ÍÑ•¹•ÉÌ°•‘¥Ñ½ÉY¥•Ý½´°¥Í‘¥Ñ½ÉY¥•ÝI•…‘ä°½¹‘¥Ñ½ÉY¥•Ý5½Õ¹Ðô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½•‘¥Ñ½ÈµÙ¥•Ü¹µ©Ìœì((¼¨¨(€¨ƒ–žò[¢úG–f£š2'šr³–rÀQ¥ÁÑ…À€Ì¸ÌÄ¸Ðƒžjžr–º{¢†3’âë–g¾òh(€¨€´ƒšÊ‡šr$•‘¥Ñ½ÉY¥•Üƒš^Ø¥Í•ÍÑÉ½å•ƒ–ÂÇšb¼ÑÉÕ—¾òl(€¨€´ƒ¢¾ï–>XÙ¥•Ü¹‘½´ƒ¢þgžÆïšr«––’–Æ{šŸ’òk’âï–*£š*o¦Rg¾ò#’â7šb¿¢þS–n{ž¦ë¾ò'Ž(€¨ƒ–nƒš¶“Ž3žnÓš:—¢¾ì•‘¥Ñ½È¹Ù¥•Ü¹‘½·Ž7–r£¢þg’â«šnÿ¢ê¯’â+’òkžržjš*o–ò–âã¾ò3–n{–öKš&7šr'š?’æ'Ž(€¨¼)™Õ¹Ñ¥½¸™…­•‘¥Ñ½È ¤ì(€±•ÐÙ¥•Ü€ô¹Õ±°ì(€½¹ÍÐÉ•¥ÍÑ•É•€ômtì(€½¹ÍÐ•µ¥Ð€ô€¡•Ù•¹Ð¤€ôøÉ•¥ÍÑ•É•¹™¥±Ñ•È ¡¥Ñ•´¤€ôø¥Ñ•´¹•Ù•¹Ð€ôôô•Ù•¹Ð¤¹™½É…  ¡¥Ñ•´¤€ôø¥Ñ•´¹™¸ ¤¤ì(€½¹ÍÐ•‘¥Ñ½È€ôì(€€€•Ð¥Í•ÍÑÉ½å• ¤ìÉ•ÑÕÉ¸€…Ù¥•Üìô°(€€€•ÐÙ¥•Ü ¤ì(€€€€€¥˜€¡Ù¥•Ü¤É•ÑÕÉ¸Ù¥•Üì(€€€€€É•ÑÕÉ¸¹•ÜAÉ½áä¡íô°ì(€€€€€€€•Ð¡}Ñ…É•Ð°­•ä¤ì(€€€€€€€€€¥˜€¡­•ä€ôôô€ÍÑ…Ñ”œ¤É•ÑÕÉ¸ì‘½Œèíôôì(€€€€€€€€€Ñ¡É½Ü¹•ÜÉÉ½È¡mÑ¥ÁÑ…À•ÉÉ½ÉtèQ¡”•‘¥Ñ½ÈÙ¥•Ü¥Ì¹½Ð…Ù…¥±…‰±”¸…¹¹½Ð…•ÍÌÙ¥•Ýlœ‘íMÑÉ¥¹œ¡­•ä¥ôt¹€¤ì(€€€€€€€ô°(€€€€€ô¤ì(€€€ô°(€€€½¸¡•Ù•¹Ð°™¸¤ìÉ•¥ÍÑ•É•¹ÁÕÍ ¡ì•Ù•¹Ð°™¸ô¤ìÉ•ÑÕÉ¸•‘¥Ñ½Èìô°(€€€½™˜¡•Ù•¹Ð°™¸¤ì(€€€€€½¹ÍÐ¥¹‘•à€ôÉ•¥ÍÑ•É•¹™¥¹‘%¹‘•à ¡¥Ñ•´¤€ôø¥Ñ•´¹•Ù•¹Ð€ôôô•Ù•¹Ð€˜˜¥Ñ•´¹™¸€ôôô™¸¤ì(€€€€€¥˜€¡¥¹‘•à€øô€À¤É•¥ÍÑ•É•¹ÍÁ±¥”¡¥¹‘•à°€Ä¤ì(€€€€€É•ÑÕÉ¸•‘¥Ñ½Èì(€€€ô°(€€€}}Á•¹‘¥¹œèÉ•¥ÍÑ•É•°(€€€}}µ½Õ¹Ð¡¹•áÑ½´¤ìÙ¥•Ü€ôì‘½´è¹•áÑ½´ôì•µ¥Ð µ½Õ¹Ðœ¤ìô°(€€€}}Õ¹µ½Õ¹Ð ¤ìÙ¥•Ü€ô¹Õ±°ì•µ¥Ð Õ¹µ½Õ¹Ðœ¤ìô°(€ôì(€É•ÑÕÉ¸•‘¥Ñ½Èì)ô()™Õ¹Ñ¥½¸™…­•½´ ¤ì(€½¹ÍÐ‰½Õ¹€ômtì(€É•ÑÕÉ¸ì(€€€‰½Õ¹°(€€€…‘‘Ù•¹Ñ1¥ÍÑ•¹•È¡ÑåÁ”°¡…¹‘±•È¤ì‰½Õ¹¹ÁÕÍ ¡ìÑåÁ”°¡…¹‘±•Èô¤ìô°(€€€É•µ½Ù•Ù•¹Ñ1¥ÍÑ•¹•È¡ÑåÁ”°¡…¹‘±•È¤ì(€€€€€½¹ÍÐ¥¹‘•à€ô‰½Õ¹¹™¥¹‘%¹‘•à ¡¥Ñ•´¤€ôø¥Ñ•´¹ÑåÁ”€ôôôÑåÁ”€˜˜¥Ñ•´¹¡…¹‘±•È€ôôô¡…¹‘±•È¤ì(€€€€€¥˜€¡¥¹‘•à€øô€À¤‰½Õ¹¹ÍÁ±¥”¡¥¹‘•à°€Ä¤ì(€€€ô°(€ôì)ô()Ñ•ÍÐ Ÿ¢ž–nûšr«š2¢ö÷š^Û–ÂÇžî«–"“–ºk’âë–B›¾ò3¢¾ï–>X=4ƒ¢þS–n{ž¦ë¢3’â7šb¿š*o¦Rdœ°€ ¤€ôøì(€½¹ÍÐ•‘¥Ñ½È€ô™…­•‘¥Ñ½È ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡¥Í‘¥Ñ½ÉY¥•ÝI•…‘ä¡•‘¥Ñ½È¤°™…±Í”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡¥Í‘¥Ñ½ÉY¥•ÝI•…‘ä¡¹Õ±°¤°™…±Í”¤ì(€…ÍÍ•ÉÐ¹Ñ¡É½ÝÌ  ¤€ôø•‘¥Ñ½È¹Ù¥•Ü¹‘½´°€½•‘¥Ñ½ÈÙ¥•Ü¥Ì¹½Ð…Ù…¥±…‰±”¼¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡•‘¥Ñ½ÉY¥•Ý½´¡•‘¥Ñ½È¤°¹Õ±°¤ì(€½¹ÍÐ‘½´€ô™…­•½´ ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡‘½´¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡¥Í‘¥Ñ½ÉY¥•ÝI•…‘ä¡•‘¥Ñ½È¤°ÑÉÕ”¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡•‘¥Ñ½ÉY¥•Ý½´¡•‘¥Ñ½È¤°‘½´¤ì)ô¤ì()Ñ•ÍÐ Ÿ–"š6‹–Þ—ž¢/–B;–º{’ú/¦7–îë¾òkžfï¢ºÃš^Û’â7š2¢ö÷¾ò3š2¢ö÷–B;žnG–B³¢«–*£¢†—’â(œ°€ ¤€ôøì(€½¹ÍÐ•‘¥Ñ½È€ô™…­•‘¥Ñ½È ¤ì(€½¹ÍÐ‘½´€ô™…­•½´ ¤ì(€½¹ÍÐ¡…¹‘±•È€ô€ ¤€ôøíôì(€½¹ÍÐ‘¥ÍÁ½Í”€ô‰¥¹‘‘¥Ñ½ÉY¥•Ý1¥ÍÑ•¹•ÉÌ¡•‘¥Ñ½È°mlÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ°¡…¹‘±•Éut¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡‘½´¹‰½Õ¹°mt°€Ÿšr«š2¢ö÷š^Û’â7–êSšr'’îï’öT=4ƒžnG–B°œ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡‘½´¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹¹±•¹Ñ °€Ä°€Ÿ¢ž–nûš2¢ö÷–B;–þ¦†ï¢†—žîDœ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹‘lÁt¹ÑåÁ”°€ÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ¤ì(€‘¥ÍÁ½Í” ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹¹±•¹Ñ °€À¤ì)ô¤ì()Ñ•ÍÐ Ÿžfï¢ºÃš^Û–ÞËžî?š2¢ö÷¾òkž®/–6ÏžîG–ºk¾òo–B3’â–º{’ú/šRÛ–"Ã¦7–’7š2¢ö÷’ê/’îÛ’â7’òk–>ƒ–*ƒžnG–B°œ°€ ¤€ôøì(€½¹ÍÐ•‘¥Ñ½È€ô™…­•‘¥Ñ½È ¤ì(€½¹ÍÐ‘½´€ô™…­•½´ ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡‘½´¤ì(€½¹ÍÐ¡…¹‘±•È€ô€ ¤€ôøíôì(€‰¥¹‘‘¥Ñ½ÉY¥•Ý1¥ÍÑ•¹•ÉÌ¡•‘¥Ñ½È°mlÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ°¡…¹‘±•Ét°lÍÑ½ÉäµÁ…É…É…Á µÍ•±•Ðœ°¡…¹‘±•Éut¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹¹±•¹Ñ °€È°€Ÿžfï¢ºÃš^Û–ÞËš2¢ö÷–þ¦†ïž®/–6ÏžîG–ºhœ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡‘½´¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹¹±•¹Ñ °€È°€Ÿ–B3’â’â¨=4ƒ–7š2¢ö÷’âš²‡’â7¦7–’7–>ƒ–*€œ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡™…­•½´ ¤¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹¹±•¹Ñ °€À°€Ÿš6‹–"ÃšZÃ¢ž–nû–B;š^œ=4ƒ’â+žjžnG–B³¢ššâš:$œ¤ì)ô¤ì()Ñ•ÍÐ Ÿ’â“šv‡’â7–B3žjžîG–ºk’êK’â7¢šžn[¾ò3–B¢«¦÷¢÷šRÛ’ê/’îØœ°€ ¤€ôøì(€½¹ÍÐ•‘¥Ñ½È€ô™…­•‘¥Ñ½È ¤ì(€½¹ÍÐ‘½´€ô™…­•½´ ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡‘½´¤ì(€½¹ÍÐ™¥ÉÍÐ€ô€ ¤€ôøíôì(€½¹ÍÐÍ•½¹€ô€ ¤€ôøíôì(€‰¥¹‘‘¥Ñ½ÉY¥•Ý1¥ÍÑ•¹•ÉÌ¡•‘¥Ñ½È°mlÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ°™¥ÉÍÑut¤ì(€‰¥¹‘‘¥Ñ½ÉY¥•Ý1¥ÍÑ•¹•ÉÌ¡•‘¥Ñ½È°mlÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ°Í•½¹‘ut¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹¹±•¹Ñ °€È¤ì)ô¤ì()Ñ•ÍÐ Ÿ¢ž–nû¢Š¯–6ã¢ö÷–B;š^œ=4ƒžnG–B³¢Š¯šâš:'¾ò3¦7šZÃš2¢ö÷–"ÃšZÀ=4ƒ’òk¦7šZÃžîG–ºhœ°€ ¤€ôøì(€½¹ÍÐ•‘¥Ñ½È€ô™…­•‘¥Ñ½È ¤ì(€½¹ÍÐ™¥ÉÍÐ€ô™…­•½´ ¤ì(€½¹ÍÐÍ•½¹€ô™…­•½´ ¤ì(€½¹ÍÐ¡…¹‘±•È€ô€ ¤€ôøíôì(€‰¥¹‘‘¥Ñ½ÉY¥•Ý1¥ÍÑ•¹•ÉÌ¡•‘¥Ñ½È°mlÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ°¡…¹‘±•Éut¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡™¥ÉÍÐ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡™¥ÉÍÐ¹‰½Õ¹¹±•¹Ñ °€Ä¤ì(€•‘¥Ñ½È¹}}Õ¹µ½Õ¹Ð ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡™¥ÉÍÐ¹‰½Õ¹¹±•¹Ñ °€À°€Ÿ–6ã¢ö÷–B;’â7¢÷žVg’â/š
-³ž¦ëžnG–B°œ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡Í•½¹¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Í•½¹¹‰½Õ¹¹±•¹Ñ °€Ä°€Ÿš6‹–"ÃšZÃ¢ž–nû–þ¦†ï¦7šZÃžîG–ºhœ¤ì)ô¤ì()Ñ•ÍÐ •™™•ÐƒšâžB–B;’â7–7¢Þ¦j?š2¢ö÷¦7žîDœ°€ ¤€ôøì(€½¹ÍÐ•‘¥Ñ½È€ô™…­•‘¥Ñ½È ¤ì(€½¹ÍÐ‘½´€ô™…­•½´ ¤ì(€½¹ÍÐ¡…¹‘±•È€ô€ ¤€ôøíôì(€½¹ÍÐ‘¥ÍÁ½Í”€ô‰¥¹‘‘¥Ñ½ÉY¥•Ý1¥ÍÑ•¹•ÉÌ¡•‘¥Ñ½È°mlÍÑ½ÉäµÉ½ÕÀµ½±±…ÁÍ”œ°¡…¹‘±•Éut¤ì(€‘¥ÍÁ½Í” ¤ì(€•‘¥Ñ½È¹}}µ½Õ¹Ð¡‘½´¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡‘½´¹‰½Õ¹¹±•¹Ñ °€À°€Ÿ–ÞËšâžBžj•™™•Ðƒ’â7¢¾—–r£š2¢ö÷–B;–7žîG–n{šv”œ¤ì)ô¤ì()Ñ•ÍÐ Ÿš*W–öÇžÆï–n{¢Â¾òk–ÂÇžî«–B;š&Ÿ¢†3’âš²‡¾ò3šr«–ÂÇžî«ž¶'–"Ãš2¢ö÷¾ò3–>[šÚ#–B;’â7–7š&Ÿ¢†0œ°€ ¤€ôøì(€½¹ÍÐ•‘¥Ñ½È€ô™…­•‘¥Ñ½È ¤ì(€½¹ÍÐ‘½´€ô™…­•½´ ¤ì(€½¹ÍÐÍ••¸€ômtì(€½¹ÍÐ…¹•°€ô½¹‘¥Ñ½ÉY¥•Ý5½Õ¹Ð¡•‘¥Ñ½È°€¡¹½‘”V¢•çm¡ø§v·š–ZjØ¨ž‡ÂRÇ«±’ Ð)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õÞœ­†‰ÞÅâ’Óâ6VVâçW6‚†æöFR’“°¢76W'BæFVWWVÂ‡6VVâÂµÒ“°¢VF—F÷"åõöÖ÷VçB†FöÒ“°¢76W'BæFVWWVÂ‡6VVâÂ¶FöÕÒ“°¢6öç7BÆFW"Òf¶TFöÒ‚“°¢VF—F÷"åõ÷VæÖ÷VçB‚“°¢VF—F÷"åõöÖ÷VçB†ÆFW"“°¢76W'BæFVWWVÂ‡6VVâÂ¶FöÒÂÆFW%Ò“°¢6æ6VÂ‚“°¢6öç7BgFW"Òf¶TFöÒ‚“°¢VF—F÷"åõ÷VæÖ÷VçB‚“°¢VF—F÷"åõöÖ÷VçB†gFW"“°¢76W'BæWVÂ‡6VVâæÆVæwF‚Â"“°§Ò“° §FW7B‚~[{.{¸þ[{º®i{nh©^[Ûz¸¾XÛ>hš~ŠÎKˆjÊûÈÎKˆÞzØžhÈ.‹ÛÞK¨¾K»brÂ‚’Óâ°¢6öç7BVF—F÷"Òf¶TVF—F÷"‚“°¢6öç7BFöÒÒf¶TFöÒ‚“°¢VF—F÷"åõöÖ÷VçB†FöÒ“°¢6öç7B6VVâÒµÓ°¢öäVF—F÷%f–WtÖ÷VçB†VF—F÷"Â†æöFR’Óâ6VVâçW6‚†æöFR’“°¢76W'BæFVWWVÂ‡6VVâÂ¶FöÕÒ“°§Ò“° §FW7B‚~k*iÈž{Én‹éYšŽZéîKè¾i{nKˆÞh©¾™IžûÈÎ‹ùNY¹îz›®i8ÞKÙÂrÂ‚’Óâ°¢76W'BæFöW4æ÷EF‡&÷r‚‚’Óâ&–æDVF—F÷%f–WtÆ—7FVæW'2†çVÆÂÂµ²w‚rÂ‚’Óâ·ÕÕÒ’‚’“°¢76W'BæFöW4æ÷EF‡&÷r‚‚’ÓâöäVF—F÷%f–WtÖ÷VçB†çVÆÂÂ‚’Óâ·Ò’‚’“°§Ò“°
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { bindEditorViewListeners, editorViewDom, isEditorViewReady, onEditorViewMount } from '../src/editor/editor-view.mjs';
+
+/**
+ * å‡ç¼–è¾‘å™¨æŒ‰æœ¬åœ° Tiptap 3.31.4 çš„çœŸå®žè¡Œä¸ºå†™ï¼š
+ * - æ²¡æœ‰ editorView æ—¶ isDestroyed å°±æ˜¯ trueï¼›
+ * - è¯»å– view.dom è¿™ç±»æœªå‡†å¤‡å±žæ€§ä¼šä¸»åŠ¨æŠ›é”™ï¼ˆä¸æ˜¯è¿”å›žç©ºï¼‰ã€‚
+ * å› æ­¤ã€Œç›´æŽ¥è¯» editor.view.domã€åœ¨è¿™ä¸ªæ›¿èº«ä¸Šä¼šçœŸçš„æŠ›å¼‚å¸¸ï¼Œå›žå½’æ‰æœ‰æ„ä¹‰ã€‚
+ */
+function fakeEditor() {
+  let view = null;
+  const registered = [];
+  const emit = (event) => registered.filter((item) => item.event === event).forEach((item) => item.fn());
+  const editor = {
+    get isDestroyed() { return !view; },
+    get view() {
+      if (view) return view;
+      return new Proxy({}, {
+        get(_target, key) {
+          if (key === 'state') return { doc: {} };
+          throw new Error(`[tiptap error]: The editor view is not available. Cannot access view['${String(key)}'].`);
+        },
+      });
+    },
+    on(event, fn) { registered.push({ event, fn }); return editor; },
+    off(event, fn) {
+      const index = registered.findIndex((item) => item.event === event && item.fn === fn);
+      if (index >= 0) registered.splice(index, 1);
+      return editor;
+    },
+    __pending: registered,
+    __mount(nextDom) { view = { dom: nextDom }; emit('mount'); },
+    __unmount() { view = null; emit('unmount'); },
+  };
+  return editor;
+}
+
+function fakeDom() {
+  const bound = [];
+  return {
+    bound,
+    addEventListener(type, handler) { bound.push({ type, handler }); },
+    removeEventListener(type, handler) {
+      const index = bound.findIndex((item) => item.type === type && item.handler === handler);
+      if (index >= 0) bound.splice(index, 1);
+    },
+  };
+}
+
+test('è§†å›¾æœªæŒ‚è½½æ—¶å°±ç»ªåˆ¤å®šä¸ºå¦ï¼Œè¯»å– DOM è¿”å›žç©ºè€Œä¸æ˜¯æŠ›é”™', () => {
+  const editor = fakeEditor();
+  assert.equal(isEditorViewReady(editor), false);
+  assert.equal(isEditorViewReady(null), false);
+  assert.throws(() => editor.view.dom, /editor view is not available/);
+  assert.equal(editorViewDom(editor), null);
+  const dom = fakeDom();
+  editor.__mount(dom);
+  assert.equal(isEditorViewReady(editor), true);
+  assert.equal(editorViewDom(editor), dom);
+});
+
+test('åˆ‡æ¢å·¥ç¨‹åŽå®žä¾‹é‡å»ºï¼šç™»è®°æ—¶ä¸æŒ‚è½½ï¼ŒæŒ‚è½½åŽç›‘å¬è‡ªåŠ¨è¡¥ä¸Š', () => {
+  const editor = fakeEditor();
+  const dom = fakeDom();
+  const handler = () => {};
+  const dispose = bindEditorViewListeners(editor, [['story-group-collapse', handler]]);
+  assert.deepEqual(dom.bound, [], 'æœªæŒ‚è½½æ—¶ä¸åº”æœ‰ä»»ä½• DOM ç›‘å¬');
+  editor.__mount(dom);
+  assert.equal(dom.bound.length, 1, 'è§†å›¾æŒ‚è½½åŽå¿…é¡»è¡¥ç»‘');
+  assert.equal(dom.bound[0].type, 'story-group-collapse');
+  dispose();
+  assert.equal(dom.bound.length, 0);
+});
+
+test('ç™»è®°æ—¶å·²ç»æŒ‚è½½ï¼šç«‹å³ç»‘å®šï¼›åŒä¸€å®žä¾‹æ”¶åˆ°é‡å¤æŒ‚è½½äº‹ä»¶ä¸ä¼šå åŠ ç›‘å¬', () => {
+  const editor = fakeEditor();
+  const dom = fakeDom();
+  editor.__mount(dom);
+  const handler = () => {};
+  bindEditorViewListeners(editor, [['story-group-collapse', handler], ['story-paragraph-select', handler]]);
+  assert.equal(dom.bound.length, 2, 'ç™»è®°æ—¶å·²æŒ‚è½½å¿…é¡»ç«‹å³ç»‘å®š');
+  editor.__mount(dom);
+  assert.equal(dom.bound.length, 2, 'åŒä¸€ä¸ª DOM å†æŒ‚è½½ä¸€æ¬¡ä¸é‡å¤å åŠ ');
+  editor.__mount(fakeDom());
+  assert.equal(dom.bound.length, 0, 'æ¢åˆ°æ–°è§†å›¾åŽæ—§ DOM ä¸Šçš„ç›‘å¬è¦æ¸…æŽ‰');
+});
+
+test('ä¸¤æ¡ä¸åŒçš„ç»‘å®šäº’ä¸è¦†ç›–ï¼Œå„è‡ªéƒ½èƒ½æ”¶äº‹ä»¶', () => {
+  const editor = fakeEditor();
+  const dom = fakeDom();
+  editor.__mount(dom);
+  const first = () => {};
+  const second = () => {};
+  bindEditorViewListeners(editor, [['story-group-collapse', first]]);
+  bindEditorViewListeners(editor, [['story-group-collapse', second]]);
+  assert.equal(dom.bound.length, 2);
+});
+
+test('è§†å›¾è¢«å¸è½½åŽæ—§ DOM ç›‘å¬è¢«æ¸…æŽ‰ï¼Œé‡æ–°æŒ‚è½½åˆ°æ–° DOM ä¼šé‡æ–°ç»‘å®š', () => {
+  const editor = fakeEditor();
+  const first = fakeDom();
+  const second = fakeDom();
+  const handler = () => {};
+  bindEditorViewListeners(editor, [['story-group-collapse', handler]]);
+  editor.__mount(first);
+  assert.equal(first.bound.length, 1);
+  editor.__unmount();
+  assert.equal(first.bound.length, 0, 'å¸è½½åŽä¸èƒ½ç•™ä¸‹æ‚¬ç©ºç›‘å¬');
+  editor.__mount(second);
+  assert.equal(second.bound.length, 1, 'æ¢åˆ°æ–°è§†å›¾å¿…é¡»é‡æ–°ç»‘å®š');
+});
+
+test('effect æ¸…ç†åŽä¸å†è·ŸéšæŒ‚è½½é‡ç»‘', () => {
+  const editor = fakeEditor();
+  const dom = fakeDom();
+  const handler = () => {};
+  const dispose = bindEditorViewListeners(editor, [['story-group-collapse', handler]]);
+  dispose();
+  editor.__mount(dom);
+  assert.equal(dom.bound.length, 0, 'å·²æ¸…ç†çš„ effect ä¸è¯¥åœ¨æŒ‚è½½åŽå†ç»‘å›žæ¥');
+});
+
+test('æŠ•å½±ç±»å›žè°ƒï¼šå°±ç»ªåŽæ‰§è¡Œä¸€æ¬¡ï¼Œæœªå°±ç»ªç­‰åˆ°æŒ‚è½½ï¼Œå–æ¶ˆåŽä¸å†æ‰§è¡Œ', () => {
+  const editor = fakeEditor();
+  const dom = fakeDom();
+  const seen = [];
+  const cancel = onEditorViewMount(editor, (node) => seen.push(node));
+  assert.deepEqual(seen, []);
+  editor.__mount(dom);
+  assert.deepEqual(seen, [dom]);
+  const later = fakeDom();
+  editor.__unmount();
+  editor.__mount(later);
+  assert.deepEqual(seen, [dom, later]);
+  cancel();
+  const after = fakeDom();
+  editor.__unmount();
+  editor.__mount(after);
+  assert.equal(seen.length, 2);
+});
+
+test('å·²ç»å°±ç»ªæ—¶æŠ•å½±ç«‹å³æ‰§è¡Œä¸€æ¬¡ï¼Œä¸ç­‰æŒ‚è½½äº‹ä»¶', () => {
+  const editor = fakeEditor();
+  const dom = fakeDom();
+  editor.__mount(dom);
+  const seen = [];
+  onEditorViewMount(editor, (node) => seen.push(node));
+  assert.deepEqual(seen, [dom]);
+});
+
+test('æ²¡æœ‰ç¼–è¾‘å™¨å®žä¾‹æ—¶ä¸æŠ›é”™ï¼Œè¿”å›žç©ºæ“ä½œ', () => {
+  assert.doesNotThrow(() => bindEditorViewListeners(null, [['x', () => {}]])());
+  assert.doesNotThrow(() => onEditorViewMount(null, () => {})());
+});

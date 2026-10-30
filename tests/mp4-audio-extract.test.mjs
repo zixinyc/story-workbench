@@ -1,2 +1,28 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞì•¹½‘•]…Øô™É½´€œ¸¸½ÍÉŒ½µ•‘¥„½µÀĞµ…Õ‘¥¼µ•áÑÉ…Ğ¹ÑÌœì()™Õ¹Ñ¥½¸™…­•	Õ™™•È¡ìÍ…µÁ±•I…Ñ”°¡…¹¹•±Ìô¤ì(€½¹ÍĞ±•¹Ñ €ô¡…¹¹•±ÍlÁt¹±•¹Ñ ì(€É•ÑÕÉ¸ìÍ…µÁ±•I…Ñ”°±•¹Ñ °¹Õµ‰•É=™¡…¹¹•±Ìè¡…¹¹•±Ì¹±•¹Ñ °•Ñ¡…¹¹•±…Ñ„è€¡¥¹‘•à¤€ôø±½…ĞÌÉÉÉ…ä¹™É½´¡¡…¹¹•±Ím¥¹‘•át¤ôì)ô()Ñ•ÍĞ ]Xƒ–Â¢Rš"Cš‚–I%ƒ–’Ó–æÛš2'–Â?®¿–g–”A4ÄØƒ–>3–Ã¦O¦š‚Üœ°…Íå¹Œ€ ¤€ôøì(€½¹ÍĞÉ•ÍÕ±Ğ€ô…İ…¥Ğ•¹½‘•]…Ø¡™…­•	Õ™™•È¡ìÍ…µÁ±•I…Ñ”è€È°¡…¹¹•±Ìèml´Ä°€Åt°lÀ¸Ô°€´À¸Õutô¤¤ì(€½¹ÍĞÙ¥•Ü€ô¹•Ü…Ñ…Y¥•Ü¡É•ÍÕ±Ğ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡¹•ÜQ•áÑ•½‘•È ¤¹‘•½‘”¡¹•ÜU¥¹ĞáÉÉ…ä¡É•ÍÕ±Ğ°€À°€Ğ¤¤°€I%œ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡¹•ÜQ•áÑ•½‘•È ¤¹‘•½‘”¡¹•ÜU¥¹ĞáÉÉ…ä¡É•ÍÕ±Ğ°€à°€Ğ¤¤°€]Yœ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù¥•Ü¹•ÑU¥¹ĞÄØ ÈÈ°ÑÉÕ”¤°€È¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù¥•Ü¹•ÑU¥¹ĞÌÈ ÈĞ°ÑÉÕ”¤°€È¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù¥•Ü¹•ÑU¥¹ĞÌÈ ĞÀ°ÑÉÕ”¤°€à¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù¥•Ü¹•Ñ%¹ĞÄØ ĞĞ°ÑÉÕ”¤°€´ÌÈÜØà¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù¥•Ü¹•Ñ%¹ĞÄØ ĞØ°ÑÉÕ”¤°€ÄØÌàÌ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù¥•Ü¹•Ñ%¹ĞÄØ Ğà°ÑÉÕ”¤°€ÌÈÜØÜ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù¥•Ü¹•Ñ%¹ĞÄØ ÔÀ°ÑÉÕ”¤°€´ÄØÌàĞ¤ì)ô¤ì()Ñ•ÍĞ Ÿ–"šº×–Â¢’òkšš~—–>[šÚ#’ş‡–>ß–æÛ–sš¶‹Rš"@œ°…Íå¹Œ€ ¤€ôøì(€½¹ÍĞ½¹ÑÉ½±±•È€ô¹•Ü‰½ÉÑ½¹ÑÉ½±±•È ¤ì(€½¹ÍĞÑ…Í¬€ô•¹½‘•]…Ø¡™…­•	Õ™™•È¡ìÍ…µÁ±•I…Ñ”è€Ä°¡…¹¹•±ÌèmlÀ°€Áutô¤°€Ä°½¹ÑÉ½±±•È¹Í¥¹…°°€ ¤€ôø½¹ÑÉ½±±•È¹…‰½ÉĞ ¤¤ì(€…İ…¥Ğ…ÍÍ•ÉĞ¹É•©•ÑÌ¡Ñ…Í¬°€¿–ŞË–>[šÚ ¼¤ì)ô¤ì
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { encodeWav } from '../src/media/mp4-audio-extract.ts';
+
+function fakeBuffer({ sampleRate, channels }) {
+  const length = channels[0].length;
+  return { sampleRate, length, numberOfChannels: channels.length, getChannelData: (index) => Float32Array.from(channels[index]) };
+}
+
+test('WAV å°è£…ç”Ÿæˆæ ‡å‡† RIFF å¤´å¹¶æŒ‰å°ç«¯å†™å…¥ PCM16 åŒå£°é“é‡‡æ ·', async () => {
+  const result = await encodeWav(fakeBuffer({ sampleRate: 2, channels: [[-1, 1], [0.5, -0.5]] }));
+  const view = new DataView(result);
+  assert.equal(new TextDecoder().decode(new Uint8Array(result, 0, 4)), 'RIFF');
+  assert.equal(new TextDecoder().decode(new Uint8Array(result, 8, 4)), 'WAVE');
+  assert.equal(view.getUint16(22, true), 2);
+  assert.equal(view.getUint32(24, true), 2);
+  assert.equal(view.getUint32(40, true), 8);
+  assert.equal(view.getInt16(44, true), -32768);
+  assert.equal(view.getInt16(46, true), 16383);
+  assert.equal(view.getInt16(48, true), 32767);
+  assert.equal(view.getInt16(50, true), -16384);
+});
+
+test('åˆ†æ®µå°è£…ä¼šæ£€æŸ¥å–æ¶ˆä¿¡å·å¹¶åœæ­¢ç”Ÿæˆ', async () => {
+  const controller = new AbortController();
+  const task = encodeWav(fakeBuffer({ sampleRate: 1, channels: [[0, 0]] }), 1, controller.signal, () => controller.abort());
+  await assert.rejects(task, /å·²å–æ¶ˆ/);
+});

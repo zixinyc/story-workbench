@@ -1,2 +1,22 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±yì(€€‰½µÁ¥±•É=ÁÑ¥½¹Ìˆèì(€€€€‰Ñ…É•Ğˆè€‰LÈÀÈÈˆ°(€€€€‰ÕÍ••™¥¹•½É±…ÍÍ¥•±‘ÌˆèÑÉÕ”°(€€€€‰±¥ˆˆèl‰LÈÀÈÈˆ°€‰=4ˆ°€‰=4¹%Ñ•É…‰±”‰t°(€€€€‰µ½‘Õ±”ˆè€‰M9•áĞˆ°(€€€€‰Í­¥Á1¥‰¡•¬ˆèÑÉÕ”°(€€€€‰µ½‘Õ±•I•Í½±ÕÑ¥½¸ˆè€‰	Õ¹‘±•Èˆ°(€€€€‰…±±½İ%µÁ½ÉÑ¥¹QÍáÑ•¹Í¥½¹ÌˆèÑÉÕ”°(€€€€‰…±±½İ)ÌˆèÑÉÕ”°(€€€€‰É•Í½±Ù•)Í½¹5½‘Õ±”ˆèÑÉÕ”°(€€€€‰¥Í½±…Ñ•‘5½‘Õ±•ÌˆèÑÉÕ”°(€€€€‰¹½µ¥ĞˆèÑÉÕ”°(€€€€‰©Íàˆè€‰É•…Ğµ©Íàˆ°(€€€€‰ÍÑÉ¥ĞˆèÑÉÕ”°(€€€€‰¹½U¹ÕÍ•‘1½…±ÌˆèÑÉÕ”°(€€€€‰¹½U¹ÕÍ•‘A…É…µ•Ñ•ÉÌˆèÑÉÕ”°(€€€€‰¹½…±±Ñ¡É½Õ¡…Í•Í%¹Mİ¥Ñ ˆèÑÉÕ”°(€€€€‰ÑåÁ•Ìˆèl‰Ù¥Ñ”½±¥•¹Ğˆ°€‰¹½‘”‰t(€ô°(€€‰¥¹±Õ‘”ˆèl‰ÍÉŒˆ°€‰Ù¥Ñ”¹½¹™¥œ¹ÑÌ‰t)ô
+{
+  "compilerOptions": {
+    "target": "ES2022",
+    "useDefineForClassFields": true,
+    "lib": ["ES2022", "DOM", "DOM.Iterable"],
+    "module": "ESNext",
+    "skipLibCheck": true,
+    "moduleResolution": "Bundler",
+    "allowImportingTsExtensions": true,
+    "allowJs": true,
+    "resolveJsonModule": true,
+    "isolatedModules": true,
+    "noEmit": true,
+    "jsx": "react-jsx",
+    "strict": true,
+    "noUnusedLocals": true,
+    "noUnusedParameters": true,
+    "noFallthroughCasesInSwitch": true,
+    "types": ["vite/client", "node"]
+  },
+  "include": ["src", "vite.config.ts"]
+}

@@ -1,5 +1,36 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞìµÕÍ¥I…¹•Ğô™É½´€œ¸¸½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì()•áÁ½ÉĞ™Õ¹Ñ¥½¸É•…Ñ•A…É…É…Á¡AÉ•Í•¹Ñ…Ñ¥½¹I•…‘•È¡•Ñ½¹Ñ•áĞ¤ì(€±•Ğ±…ÍÑ¡…ÁÑ•Èì(€±•Ğ±…ÍÑÍÍ•ÑÌì(€±•ĞÁÉ•Í•¹Ñ…Ñ¥½¹Ì€ô¹•Ü5…À ¤ì(€É•ÑÕÉ¸€¡Á…É…É…Á¡%¤€ôøì(€€€½¹ÍĞ½¹Ñ•áĞ€ô•Ñ½¹Ñ•áĞ ¤ì(€€€½¹ÍĞì¡…ÁÑ•È°…ÍÍ•ÑÌô€ô½¹Ñ•áĞì(€€€¥˜€¡¡…ÁÑ•È€„ôô±…ÍÑ¡…ÁÑ•Èñğ…ÍÍ•ÑÌ€„ôô±…ÍÑÍÍ•ÑÌ¤ì(€€€€€½¹ÍĞÁ½Í¥Ñ¥½¹Ì€ô¹•Ü5…À¡¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹µ…À ¡‰±½¬°¥¹‘•à¤€ôøm‰±½¬¹¥°¥¹‘•át¤¤ì(€€€€€½¹ÍĞÉ½ÕÁÌ€ôl¸¸¹¡…ÁÑ•È¹É½ÕÁÍt¹Í½ÉĞ ¡„°ˆ¤€ôø€¡Á½Í¥Ñ¥½¹Ì¹•Ğ¡„¹Á…É…É…Á¡%‘ÍlÁt¤€üü€´Ä¤€´€¡Á½Í¥Ñ¥½¹Ì¹•Ğ¡ˆ¹Á…É…É…Á¡%‘ÍlÁt¤€üü€´Ä¤¤ì(€€€€€½¹ÍĞ…ÍÍ•Ñ	å%€ô¹•Ü5…À¡…ÍÍ•ÑÌ¹µ…À ¡…ÍÍ•Ğ¤€ôøm…ÍÍ•Ğ¹¥°…ÍÍ•Ñt¤¤ì(€€€€€ÁÉ•Í•¹Ñ…Ñ¥½¹Ì€ô¹•Ü5…À¡¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹µ…À ¡‰±½¬¤€ôøm‰±½¬¹¥°ìÉ½ÕÁ%è¹Õ±°°±…‰•°è€Ÿšr«–"îœ°ÍÕµµ…Éäè€œœ°µÕÍ¥1…‰•°è€Ÿ¾ò,ƒšŞï–*ƒ¢3šf¿¦~Ï’æ@œõt¤¤ì(€€€€€É½ÕÁÌ¹™½É…  ¡É½ÕÀ°¥¹‘•à¤€ôøì(€€€€€€€½¹ÍĞµÕÍ¥Œ€ôµÕÍ¥I…¹•Ğ¡¡…ÁÑ•È°É½ÕÀ¹Á…É…É…Á¡%‘ÍlÁt¤ì(€€€€€€€½¹ÍĞ…Õ‘¥¼€ô…ÍÍ•Ñ	å%¹•Ğ¡µÕÍ¥Œü¹…ÍÍ•Ñ%¤ì(€€€€€€€½¹ÍĞ±…‰•°€ô€Ÿ²°€œ€¬€¡¥¹‘•à€¬€Ä¤€¬€œƒîƒ
-Ü€œ€¬É½ÕÀ¹¹…µ”ì(€€€€€€€½¹ÍĞÍÕµµ…Éä€ô…Õ‘¥¼€ü€ŸŠf¬€œ€¬…Õ‘¥¼¹¹…µ”€¬€¡µÕÍ¥Œü¹É½ÕÁ%‘Ìü¹±•¹Ñ €ü€œƒ
-Üƒ¢ş{î´€œ€¬µÕÍ¥Œ¹É½ÕÁ%‘Ì¹±•¹Ñ €¬€œƒîœ€è€œœ¤€è€Ÿš^ƒ¦7’æ@œì(€€€€€€€™½È€¡½¹ÍĞ¥½˜É½ÕÀ¹Á…É…É…Á¡%‘Ì¤ÁÉ•Í•¹Ñ…Ñ¥½¹Ì¹Í•Ğ¡¥°ìÉ½ÕÁ%èÉ½ÕÀ¹¥°±…‰•°°ÍÕµµ…ÉäèÉ½ÕÀ¹Á…É…É…Á¡%‘Ì¹±•¹Ñ €¬€œƒšºÔƒ
-Ü€œ€¬ÍÕµµ…Éä°½±±…ÁÍ•è€„…É½ÕÀ¹½±±…ÁÍ•°É½ÕÁMÑ…ÉĞè¥€ôôôÉ½ÕÀ¹Á…É…É…Á¡%‘ÍlÁt°µÕÍ¥1…‰•°è…Õ‘¥¼€ü€ŸšnÓš6‹¢3šf¿¦~Ï’æ@œ€è€Ÿ¾ò,ƒšŞï–*ƒ¢3šf¿¦~Ï’æ@œô¤ì(€€€€€ô¤ì(€€€€€±…ÍÑ¡…ÁÑ•È€ô¡…ÁÑ•Èì(€€€€€±…ÍÑÍÍ•ÑÌ€ô…ÍÍ•ÑÌì(€€€ô(€€€½¹ÍĞÁÉ•Í•¹Ñ…Ñ¥½¸€ôÁÉ•Í•¹Ñ…Ñ¥½¹Ì¹•Ğ¡Á…É…É…Á¡%¤€üüìÉ½ÕÁ%è¹Õ±°°±…‰•°è€Ÿšr«–"îœ°ÍÕµµ…Éäè€œœ°µÕÍ¥1…‰•°è€Ÿ¾ò,ƒšŞï–*ƒ¢3šf¿¦~Ï’æ@œôì(€€€É•ÑÕÉ¸ì(€€€€€€¸¸¹ÁÉ•Í•¹Ñ…Ñ¥½¸°(€€€€€Á…É…É…Á¡M•±•Ñ•è½¹Ñ•áĞ¹Á…É…É…Á¡%‘Ì¹¥¹±Õ‘•Ì¡Á…É…É…Á¡%¤°(€€€€€É½ÕÁM•±•Ñ•è½¹Ñ•áĞ¹É½ÕÁ%‘Ì¹¥¹±Õ‘•Ì¡ÁÉ•Í•¹Ñ…Ñ¥½¸¹É½ÕÁ%¤°(€€€€€É½ÕÁÉ½Á1…‰•°è½¹Ñ•áĞ¹‘É½Á!¥¹Ğü¹¥¹Ñ•¹Ğ€ôôô€…Õ‘¥¼œ€ü€Ÿ¢ºû’âë¢¾—î¦7’æ@œ€è€ŸšRû–"Ãîšr¬œ°(€€€€€É½ÕÁÉ½Àè€„…ÁÉ•Í•¹Ñ…Ñ¥½¸¹É½ÕÁ%€˜˜½¹Ñ•áĞ¹‘É½Á!¥¹Ğü¹É½ÕÁ%€ôôôÁÉ•Í•¹Ñ…Ñ¥½¸¹É½ÕÁ%°(€€€€€‘É½Á	•™½É”è½¹Ñ•áĞ¹‘É½Á!¥¹Ğü¹Á…É…É…Á¡%€ôôôÁ…É…É…Á¡%€˜˜½¹Ñ•áĞ¹‘É½Á!¥¹Ğ¹Á½Í¥Ñ¥½¸€ôôô€‰•™½É”œ°(€€€€€‘É½Á™Ñ•Èè½¹Ñ•áĞ¹‘É½Á!¥¹Ğü¹Á…É…É…Á¡%€ôôôÁ…É…É…Á¡%€˜˜½¹Ñ•áĞ¹‘É½Á!¥¹Ğ¹Á½Í¥Ñ¥½¸€ôôô€…™Ñ•Èœ°(€€€ôì(€ôì)ô(
+import { musicRangeAt } from '../domain/model/chapters.mjs';
+
+export function createParagraphPresentationReader(getContext) {
+  let lastChapter;
+  let lastAssets;
+  let presentations = new Map();
+  return (paragraphId) => {
+    const context = getContext();
+    const { chapter, assets } = context;
+    if (chapter !== lastChapter || assets !== lastAssets) {
+      const positions = new Map(chapter.document.blocks.map((block, index) => [block.id, index]));
+      const groups = [...chapter.groups].sort((a, b) => (positions.get(a.paragraphIds[0]) ?? -1) - (positions.get(b.paragraphIds[0]) ?? -1));
+      const assetById = new Map(assets.map((asset) => [asset.id, asset]));
+      presentations = new Map(chapter.document.blocks.map((block) => [block.id, { groupId: null, label: 'æœªåˆ†ç»„', summary: '', musicLabel: 'ï¼‹ æ·»åŠ èƒŒæ™¯éŸ³ä¹' }]));
+      groups.forEach((group, index) => {
+        const music = musicRangeAt(chapter, group.paragraphIds[0]);
+        const audio = assetById.get(music?.assetId);
+        const label = 'ç¬¬ ' + (index + 1) + ' ç»„ Â· ' + group.name;
+        const summary = audio ? 'â™« ' + audio.name + (music?.groupIds?.length ? ' Â· è¿ç»­ ' + music.groupIds.length + ' ç»„' : '') : 'æ— é…ä¹';
+        for (const id of group.paragraphIds) presentations.set(id, { groupId: group.id, label, summary: group.paragraphIds.length + ' æ®µ Â· ' + summary, collapsed: !!group.collapsed, groupStart: id === group.paragraphIds[0], musicLabel: audio ? 'æ›´æ¢èƒŒæ™¯éŸ³ä¹' : 'ï¼‹ æ·»åŠ èƒŒæ™¯éŸ³ä¹' });
+      });
+      lastChapter = chapter;
+      lastAssets = assets;
+    }
+    const presentation = presentations.get(paragraphId) ?? { groupId: null, label: 'æœªåˆ†ç»„', summary: '', musicLabel: 'ï¼‹ æ·»åŠ èƒŒæ™¯éŸ³ä¹' };
+    return {
+      ...presentation,
+      paragraphSelected: context.paragraphIds.includes(paragraphId),
+      groupSelected: context.groupIds.includes(presentation.groupId),
+      groupDropLabel: context.dropHint?.intent === 'audio' ? 'è®¾ä¸ºè¯¥ç»„é…ä¹' : 'æ”¾åˆ°ç»„æœ«',
+      groupDrop: !!presentation.groupId && context.dropHint?.groupId === presentation.groupId,
+      dropBefore: context.dropHint?.paragraphId === paragraphId && context.dropHint.position === 'before',
+      dropAfter: context.dropHint?.paragraphId === paragraphId && context.dropHint.position === 'after',
+    };
+  };
+}

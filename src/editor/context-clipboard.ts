@@ -1,3 +1,88 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞìÉ…µ•¹Ğ°M±¥”ô™É½´€Ñ¥ÁÑ…À½Á´½µ½‘•°œì)¥µÁ½ÉĞìQ•áÑM•±•Ñ¥½¸ô™É½´€Ñ¥ÁÑ…À½Á´½ÍÑ…Ñ”œì)¥µÁ½ÉĞì±½Í•!¥ÍÑ½Éäô™É½´€Ñ¥ÁÑ…À½Á´½¡¥ÍÑ½Éäœì)¥µÁ½ÉĞÑåÁ”ì‘¥Ñ½Èô™É½´€Ñ¥ÁÑ…À½½É”œì)¥µÁ½ÉĞìµ…­•%°Á±…¥¹Q•áĞ°Ù…±¥‘…Ñ•½Õµ•¹Ğ°Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì°‘•™…Õ±ÑM•ÑÑ¥¹Ìô™É½´€œ¸¸½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ğ¹µ©Ìœì)¥µÁ½ÉĞìÑ½‘¥Ñ½É½¹Ñ•¹Ğô™É½´€œ¸½ÍÑ½Éäµ•‘¥Ñ½È¹ÑÌœì()•áÁ½ÉĞÑåÁ”MÑ½Éå±¥Á‰½…É€ôìÙ•ÉÍ¥½¸è€ÄìÁÉ½©•Ñ%èÍÑÉ¥¹œì­¥¹è€Á…É…É…Á œğ€Ñ•áĞœğ€…ÍÍ•Ğœğ€±…å•ÈœìÙ…±Õ”è…¹äôì)•áÁ½ÉĞ™Õ¹Ñ¥½¸Ù…±¥‘…Ñ•±¥Á‰½…É¡Ù…±Õ”èÕ¹­¹½İ¸¤èMÑ½Éå±¥Á‰½…Éì(€½¹ÍĞÁ…å±½…€ôÙ…±Õ”…ÌMÑ½Éå±¥Á‰½…Éì(€¥˜€ …Á…å±½…ñğÁ…å±½…¹Ù•ÉÍ¥½¸€„ôô€ÄñğÑåÁ•½˜Á…å±½…¹ÁÉ½©•Ñ%€„ôô€ÍÑÉ¥¹œœñğ€…lÁ…É…É…Á œ°€Ñ•áĞœ°€…ÍÍ•Ğœ°€±…å•Èt¹¥¹±Õ‘•Ì¡Á…å±½…¹­¥¹¤¤Ñ¡É½ÜÉÉ½È Ÿ–&«¢ÒÓšvÿ–&ŸššVÃš6»š^ƒšV#œ¤ì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€Á…É…É…Á œ¤Ù…±¥‘…Ñ•½Õµ•¹Ğ¡ìÑåÁ”è€‘½Œœ°‰±½­ÌèmÁ…å±½…¹Ù…±Õ•tô¤ì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€Ñ•áĞœ€˜˜€ …Á…å±½…¹Ù…±Õ”ñğ€…ÉÉ…ä¹¥ÍÉÉ…ä¡Á…å±½…¹Ù…±Õ”¹½¹Ñ•¹Ğ¤¤¤Ñ¡É½ÜÉÉ½È Ÿ–&«¢ÒÓšvÿšZ–¶_îOšzš^ƒšV#œ¤ì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€…ÍÍ•Ğœ€˜˜ÑåÁ•½˜Á…å±½…¹Ù…±Õ”ü¹…ÍÍ•Ñ%€„ôô€ÍÑÉ¥¹œœ¤Ñ¡É½ÜÉÉ½È Ÿ–&«¢ÒÓšvÿÒƒšvCš^ƒšV#œ¤ì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€±…å•Èœ¤Ù…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡ìÍ•¹•1…å•ÉÌèmÁ…å±½…¹Ù…±Õ•tô¤¤ì(€É•ÑÕÉ¸Á…å±½…ì)ô)•áÁ½ÉĞ™Õ¹Ñ¥½¸¡•­±¥Á‰½…É‘I•™•É•¹•Ì¡Á…å±½…èMÑ½Éå±¥Á‰½…É°ÁÉ½©•Ğè…¹ä¤ì(€Ù…±¥‘…Ñ•±¥Á‰½…É¡Á…å±½…¤ì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€…ÍÍ•Ğœ€˜˜€¡Á…å±½…¹ÁÉ½©•Ñ%€„ôôÁÉ½©•Ğ¹¥ñğ€…ÁÉ½©•Ğ¹…ÍÍ•ÑÌ¹Í½µ” ¡…ÍÍ•Ğè…¹ä¤€ôø…ÍÍ•Ğ¹¥€ôôôÁ…å±½…¹Ù…±Õ”¹…ÍÍ•Ñ%¤¤¤Ñ¡É½ÜÉÉ½È ŸÒƒšvC–&¿šr³’î¢÷–r£–:–Ş—¢/Êc¢ÒÓ¾òo¢Ş£–Ş—¢/¢¾ß–#–¾ó–—ÒƒšvCœ¤ì(€½¹ÍĞ…ÍÍ•ÑÌ€ô¹•Ü5…ÀñÍÑÉ¥¹œ°…¹äø¡ÁÉ½©•Ğ¹…ÍÍ•ÑÌ¹µ…À ¡…ÍÍ•Ğè…¹ä¤€ôøm…ÍÍ•Ğ¹¥°…ÍÍ•Ñt¤¤ì(€½¹ÍĞ¡•¬€ô€¡¥èÍÑÉ¥¹œğ¹Õ±°ğÕ¹‘•™¥¹•°­¥¹‘ÌèÍÑÉ¥¹mt¤€ôøì¥˜€¡¥€˜˜¥€„ôô€}}±•…É}|œ€˜˜€ ……ÍÍ•ÑÌ¹¡…Ì¡¥¤ñğ€…­¥¹‘Ì¹¥¹±Õ‘•Ì¡…ÍÍ•ÑÌ¹•Ğ¡¥¤¹­¥¹¤¤¤Ñ¡É½ÜÉÉ½È Ÿ–&«¢ÒÓšvÿ–2–B¯–öO–&7–Ş—¢/òë–’Çš"[Æï–z/’â7²›jÒƒšvC¾ò3¢¾ß–#–¾ó–—nã–êSÒƒšvCœ¤ìôì(€½¹ÍĞÍ•ÑÑ¥¹Ì€ô€¡Ù…±Õ”è…¹ä¤€ôøìÙ…±¥‘…Ñ•Õ•M•ÑÑ¥¹Ì¡‘•™…Õ±ÑM•ÑÑ¥¹Ì¡Ù…±Õ”¤¤ì¡•¬¡Ù…±Õ”¹‰…­É½Õ¹‘%°l¥µ…”t¤ì¡•¬¡Ù…±Õ”¹…Õ‘¥½%°l…Õ‘¥¼t¤ì™½È€¡½¹ÍĞ±…å•È½˜Ù…±Õ”¹Í•¹•1…å•ÉÌ€üümt¤¡•¬¡±…å•È¹…ÍÍ•Ñ%°l¥µ…”œ°€Ù¥‘•¼t¤ìôì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€Á…É…É…Á œ¤™½È€¡½¹ÍĞ¡¥±½˜Á…å±½…¹Ù…±Õ”¹¡¥±‘É•¸¤¥˜€¡¡¥±¹ÑåÁ”€ôôô€Õ”œ¤Í•ÑÑ¥¹Ì¡¡¥±¹Í•ÑÑ¥¹Ì¤ì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€±…å•Èœ¤¡•¬¡Á…å±½…¹Ù…±Õ”¹…ÍÍ•Ñ%°l¥µ…”œ°€Ù¥‘•¼t¤ì(€¥˜€¡Á…å±½…¹­¥¹€ôôô€Ñ•áĞœ¤ì(€€€½¹ÍĞÙ¥Í¥Ğ€ô€¡¹½‘”è…¹ä¤€ôøì™½È€¡½¹ÍĞµ…É¬½˜¹½‘”¹µ…É­Ì€üümt¤¥˜€¡µ…É¬¹ÑåÁ”€ôôô€Õ”œ¤Í•ÑÑ¥¹Ì¡)M=8¹Á…ÉÍ”¡µ…É¬¹…ÑÑÉÌ¹Õ•5•Ñ„¤¤ì™½È€¡½¹ÍĞ¡¥±½˜¹½‘”¹½¹Ñ•¹Ğ€üümt¤Ù¥Í¥Ğ¡¡¥±¤ìôì(€€€™½È€¡½¹ÍĞ¡¥±½˜Á…å±½…¹Ù…±Õ”¹½¹Ñ•¹Ğ¤Ù¥Í¥Ğ¡¡¥±¤ì(€ô)ô)™Õ¹Ñ¥½¸‘ÕÁ±¥…Ñ•M•ÑÑ¥¹Ì¡Ù…±Õ”è…¹ä¤ì(€É•ÑÕÉ¸ì€¸¸¹ÍÑÉÕÑÕÉ•‘±½¹”¡Ù…±Õ”¤°€¸¸¸¡Ù…±Õ”¹Í•¹•1…å•ÉÌ€üìÍ•¹•1…å•ÉÌèÙ…±Õ”¹Í•¹•1…å•ÉÌ¹µ…À ¡±…å•Èè…¹ä¤€ôø€¡ì€¸¸¹ÍÑÉÕÑÕÉ•‘±½¹”¡±…å•È¤°¥èµ…­•% ±…å•Èœ¤ô¤¤ô€èíô¤ôì)ô)•áÁ½ÉĞ™Õ¹Ñ¥½¸‘ÕÁ±¥…Ñ•A…É…É…Á ¡Ù…±Õ”è…¹ä°É½ÕÁ%èÍÑÉ¥¹œğ¹Õ±°€ô¹Õ±°°µÕÍ¥I…¹”è…¹ä€ô¹Õ±°¤ì(€Ù…±¥‘…Ñ•½Õµ•¹Ğ¡ìÑåÁ”è€‘½Œœ°‰±½­ÌèmÙ…±Õ•tô¤ì(€½¹ÍĞ‰±½¬€ôÍÑÉÕÑÕÉ•‘±½¹”¡Ù…±Õ”¤ì(€‰±½¬¹¥€ôµ…­•% Àœ¤ì‰±½¬¹É½ÕÁ%€ôÉ½ÕÁ%ì‰±½¬¹µÕÍ¥I…¹”€ôÍÑÉÕÑÕÉ•‘±½¹”¡µÕÍ¥I…¹”¤ì(€™½È€¡½¹ÍĞ¡¥±½˜‰±½¬¹¡¥±‘É•¸¤¥˜€¡¡¥±¹ÑåÁ”€ôôô€Õ”œ¤ì¡¥±¹¥€ôµ…­•% Õ”œ¤ì¡¥±¹Í•ÑÑ¥¹Ì€ô‘ÕÁ±¥…Ñ•M•ÑÑ¥¹Ì¡¡¥±¹Í•ÑÑ¥¹Ì¤ìô(€É•ÑÕÉ¸‰±½¬ì)ô)•áÁ½ÉĞ™Õ¹Ñ¥½¸‘ÕÁ±¥…Ñ•M±¥”¡Ù…±Õ”è…¹ä°É½ÕÁ%èÍÑÉ¥¹œğ¹Õ±°°µÕÍ¥I…¹”è…¹ä¤ì(€½¹ÍĞ©Í½¸€ôÍÑÉÕÑÕÉ•‘±½¹”¡Ù…±Õ”¤°Õ•Ì€ô¹•Ü5…ÀñÍÑÉ¥¹œ°ì¥èÍÑÉ¥¹œìµ•Ñ„èÍÑÉ¥¹œôø ¤ì(€½¹ÍĞÙ¥Í¥Ğ€ô€¡¹½‘”è…¹ä¤€ôøì(€€€¥˜€¡¹½‘”¹ÑåÁ”€ôôô€Á…É…É…Á œ¤¹½‘”¹…ÑÑÉÌ€ôì€¸¸¸¡¹½‘”¹…ÑÑÉÌ€üüíô¤°Á…É…É…Á¡%èµ…­•% Àœ¤°É½ÕÁ%°µÕÍ¥I…¹”èÍÑÉÕÑÕÉ•‘±½¹”¡µÕÍ¥I…¹”¤ôì(€€€™½È€¡½¹ÍĞµ…É¬½˜¹½‘”¹µ…É­Ì€üümt¤¥˜€¡µ…É¬¹ÑåÁ”€ôôô€Õ”œ¤ì(€€€€€½¹ÍĞ½±€ôMÑÉ¥¹œ¡µ…É¬¹…ÑÑÉÌ¹Õ•%¤ì(€€€€€¥˜€ …Õ•Ì¹¡…Ì¡½±¤¤Õ•Ì¹Í•Ğ¡½±°ì¥èµ…­•% Õ”œ¤°µ•Ñ„è)M=8¹ÍÑÉ¥¹¥™ä¡‘ÕÁ±¥…Ñ•M•ÑÑ¥¹Ì¡)M=8¹Á…ÉÍ”¡µ…É¬¹…ÑÑÉÌ¹Õ•5•Ñ„¤¤¤ô¤ì(€€€€€½¹ÍĞ½Áä€ôÕ•Ì¹•Ğ¡½±¤„ìµ…É¬¹…ÑÑÉÌ€ôì€¸¸¹µ…É¬¹…ÑÑÉÌ°Õ•%è½Áä¹¥°Õ•5•Ñ„è½Áä¹µ•Ñ„ôì(€€€ô(€€€™½È€¡½¹ÍĞ¡¥±½˜¹½‘”¹½¹Ñ•¹Ğ€üümt¤Ù¥Í¥Ğ¡¡¥±¤ì(€ôì(€™½È€¡½¹ÍĞ¡¥±½˜©Í½¸¹½¹Ñ•¹Ğ€üümt¤Ù¥Í¥Ğ¡¡¥±¤ì(€É•ÑÕÉ¸©Í½¸ì)ô)•áÁ½ÉĞ™Õ¹Ñ¥½¸Á…É…É…Á¡A½Í¥Ñ¥½¸¡•‘¥Ñ½Èè‘¥Ñ½È°¥èÍÑÉ¥¹œ¤ì(€±•Ğ™½Õ¹èì™É½´è¹Õµ‰•ÈìÑ¼è¹Õµ‰•Èì¹½‘”è…¹äôğ¹Õ±°€ô¹Õ±°ì(€•‘¥Ñ½È¹ÍÑ…Ñ”¹‘½Œ¹™½É…  ¡¹½‘”°Á½Ì¤€ôøì¥˜€¡¹½‘”¹ÑåÁ”¹¹…µ”€ôôô€Á…É…É…Á œ€˜˜MÑÉ¥¹œ¡¹½‘”¹…ÑÑÉÌ¹Á…É…É…Á¡%¤€ôôô¥¤™½Õ¹€ôì™É½´èÁ½Ì°Ñ¼èÁ½Ì€¬¹½‘”¹¹½‘•M¥é”°¹½‘”ôìô¤ì(€É•ÑÕÉ¸™½Õ¹…Ìì™É½´è¹Õµ‰•ÈìÑ¼è¹Õµ‰•Èì¹½‘”è…¹äôğ¹Õ±°ì)ô)•áÁ½ÉĞ™Õ¹Ñ¥½¸‘•±•Ñ•‘¥Ñ½ÉA…É…É…Á ¡•‘¥Ñ½Èè‘¥Ñ½È°¥èÍÑÉ¥¹œ¤ì(€½¹ÍĞÉ…¹”€ôÁ…É…É…Á¡A½Í¥Ñ¥½¸¡•‘¥Ñ½È°¥¤ì¥˜€ …É…¹”¤Ñ¡É½ÜÉÉ½È Ÿšº×¢B÷–ŞË’â7–¶c–r£œ¤ì(€±•ĞÑÈ€ô±½Í•!¥ÍÑ½Éä¡•‘¥Ñ½È¹ÍÑ…Ñ”¹ÑÈ¤ì(€¥˜€¡•‘¥Ñ½È¹ÍÑ…Ñ”¹‘½Œ¹¡¥±‘½Õ¹Ğ€ôôô€Ä¤ÑÈ€ôÑÈ¹É•Á±…•]¥Ñ ¡É…¹”¹™É½´°É…¹”¹Ñ¼°•‘¥Ñ½È¹Í¡•µ„¹¹½‘•Ì¹Á…É…É…Á ¹É•…Ñ”¡ìÁ…É…ÈV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅæ„–C¢Ö¶T–B‚wr’Âw&÷W–C¢&ævRææöFRæGG'2æw&÷W–BÂ×W6–5&ævS¢&ævRææöFRæGG'2æ×W6–5&ævRÒ’“°¢VÇ6RG"ÒG"æFVÆWFR‡&ævRæg&öÒÂ&ævRçFò“°¢VF—F÷"çf–WræF—7F6‚‡G"“²&WGW&âG'VS°§Ğ¦W‡÷'BgVæ7F–öâ7FTVF—F÷$6Æ—&ö&B†VF—F÷#¢VF—F÷"Â–ÆöC¢7F÷'”6Æ—&ö&BÂçVÆÂÂFW‡C¢7G&–ærÂ&w&„–C¢7G&–ærÂ6VÆV7F–öãó¢²æ6†÷#¢çVÖ&W#²†VC¢çVÖ&W"Ò’°¢6öç7B&ævRÒ&w&…÷6—F–öâ†VF—F÷"Â&w&„–B“²–b‚&ævR’F‡&÷rW'&÷"‚~{)‹KNyºîj~[{.KˆŞZÙYÊ8"r“°¢6öç7B²w&÷W–BÂ×W6–5&ævRÒÒ&ævRææöFRæGG'3°¢ÆWBG"Ò6Æ÷6T†—7F÷'’†VF—F÷"ç7FFRçG"“°¢–b‡–ÆöCòæ¶–æBÓÓÒw&w&‚r’°¢6öç7B&Æö6²ÒGWÆ–6FU&w&‚‡–ÆöBçfÇVRÂw&÷W–BÂ×W6–5&ævR’Â§6öâÒFôVF—F÷$6öçFVçB‡²G—S¢vFö2rÂ&Æö6·3¢¶&Æö6µÒÒ“°¢6öç7BæöFRÒVF—F÷"ç66†VÖææöFTg&öÔ¥4ôâ†§6öâæ6öçFVçB³Ò“²G"ÒG"æ–ç6W'B‡&ævRçFòÂæöFR’ç6WE6VÆV7F–öâ…FW‡E6VÆV7F–öâæ7&VFR‡G"æFö2Â&ævRçFò²’“°¢ÒVÇ6R°¢6öç7Bæ6†÷"Ò6VÆV7F–öãòææ6†÷"óò&ævRçFòÒÂ†VBÒ6VÆV7F–öãòæ†VBóòæ6†÷#°¢G"ÒG"ç6WE6VÆV7F–öâ…FW‡E6VÆV7F–öâæ7&VFR‡G"æFö2Âæ6†÷"Â†VB’“°¢–b‡–ÆöCòæ¶–æBÓÓÒwFW‡Br’G"ÒG"ç&WÆ6U6VÆV7F–öâ…6Æ–6Ræg&öÔ¥4ôâ†VF—F÷"ç66†VÖÂGWÆ–6FU6Æ–6R‡–ÆöBçfÇVRÂw&÷W–BÂ×W6–5&ævR’’“°¢VÇ6R–b‡FW‡B’°¢6öç7B&Æö6·2ÒFW‡Bç&WÆ6R‚õÇ%ÆãòörÂuÆâr’ç7Æ—B‚uÆâr’æÖ‚‡fÇVR’ÓâVF—F÷"ç66†VÖææöFW2ç&w&‚æ7&VFR‡²&w&„–C¢Ö¶T–B‚wr’Âw&÷W–BÂ×W6–5&ævRÒÂfÇVRòVF—F÷"ç66†VÖçFW‡B‡fÇVR’¢VæFVf–æVB’“°¢G"ÒG"ç&WÆ6U6VÆV7F–öâ†æWr6Æ–6R„g&vÖVçBæg&öÔ'&’†&Æö6·2’ÂÂ’“°¢ÒVÇ6RF‡&÷rW'&÷"‚~Xš®‹KNiÛşKŠŞk*iÈXúş{)‹KNy¨NjÚ>ih~8"r“°¢Ğ¢VF—F÷"çf–WræF—7F6‚‡G"ç67&öÆÄ–çFõf–Wr‚’“°§Ğ¦W‡÷'BgVæ7F–öâ6Æ—&ö&EFW‡B‡–ÆöC¢7F÷'”6Æ—&ö&B’°¢–b‡–ÆöBæ¶–æBÓÓÒw&w&‚r’&WGW&âÆ–åFW‡B‡–ÆöBçfÇVRæ6†–ÆG&Vâ“°¢&WGW&ârs°§Ğ 
+import { Fragment, Slice } from '@tiptap/pm/model';
+import { TextSelection } from '@tiptap/pm/state';
+import { closeHistory } from '@tiptap/pm/history';
+import type { Editor } from '@tiptap/core';
+import { makeId, plainText, validateDocument, validateCueSettings, defaultSettings } from '../domain/model/document.mjs';
+import { toEditorContent } from './story-editor.ts';
+
+export type StoryClipboard = { version: 1; projectId: string; kind: 'paragraph' | 'text' | 'asset' | 'layer'; value: any };
+export function validateClipboard(value: unknown): StoryClipboard {
+  const payload = value as StoryClipboard;
+  if (!payload || payload.version !== 1 || typeof payload.projectId !== 'string' || !['paragraph', 'text', 'asset', 'layer'].includes(payload.kind)) throw Error('å‰ªè´´æ¿å‰§æƒ…æ•°æ®æ— æ•ˆã€‚');
+  if (payload.kind === 'paragraph') validateDocument({ type: 'doc', blocks: [payload.value] });
+  if (payload.kind === 'text' && (!payload.value || !Array.isArray(payload.value.content))) throw Error('å‰ªè´´æ¿æ–‡å­—ç»“æ„æ— æ•ˆã€‚');
+  if (payload.kind === 'asset' && typeof payload.value?.assetId !== 'string') throw Error('å‰ªè´´æ¿ç´ ææ— æ•ˆã€‚');
+  if (payload.kind === 'layer') validateCueSettings(defaultSettings({ sceneLayers: [payload.value] }));
+  return payload;
+}
+export function checkClipboardReferences(payload: StoryClipboard, project: any) {
+  validateClipboard(payload);
+  if (payload.kind === 'asset' && (payload.projectId !== project.id || !project.assets.some((asset: any) => asset.id === payload.value.assetId))) throw Error('ç´ æå‰¯æœ¬ä»…èƒ½åœ¨åŸå·¥ç¨‹ç²˜è´´ï¼›è·¨å·¥ç¨‹è¯·å…ˆå¯¼å…¥ç´ æã€‚');
+  const assets = new Map<string, any>(project.assets.map((asset: any) => [asset.id, asset]));
+  const check = (id: string | null | undefined, kinds: string[]) => { if (id && id !== '__clear__' && (!assets.has(id) || !kinds.includes(assets.get(id).kind))) throw Error('å‰ªè´´æ¿åŒ…å«å½“å‰å·¥ç¨‹ç¼ºå¤±æˆ–ç±»å‹ä¸ç¬¦çš„ç´ æï¼Œè¯·å…ˆå¯¼å…¥ç›¸åº”ç´ æã€‚'); };
+  const settings = (value: any) => { validateCueSettings(defaultSettings(value)); check(value.backgroundId, ['image']); check(value.audioId, ['audio']); for (const layer of value.sceneLayers ?? []) check(layer.assetId, ['image', 'video']); };
+  if (payload.kind === 'paragraph') for (const child of payload.value.children) if (child.type === 'cue') settings(child.settings);
+  if (payload.kind === 'layer') check(payload.value.assetId, ['image', 'video']);
+  if (payload.kind === 'text') {
+    const visit = (node: any) => { for (const mark of node.marks ?? []) if (mark.type === 'cue') settings(JSON.parse(mark.attrs.cueMeta)); for (const child of node.content ?? []) visit(child); };
+    for (const child of payload.value.content) visit(child);
+  }
+}
+function duplicateSettings(value: any) {
+  return { ...structuredClone(value), ...(value.sceneLayers ? { sceneLayers: value.sceneLayers.map((layer: any) => ({ ...structuredClone(layer), id: makeId('layer') })) } : {}) };
+}
+export function duplicateParagraph(value: any, groupId: string | null = null, musicRange: any = null) {
+  validateDocument({ type: 'doc', blocks: [value] });
+  const block = structuredClone(value);
+  block.id = makeId('p'); block.groupId = groupId; block.musicRange = structuredClone(musicRange);
+  for (const child of block.children) if (child.type === 'cue') { child.id = makeId('cue'); child.settings = duplicateSettings(child.settings); }
+  return block;
+}
+export function duplicateSlice(value: any, groupId: string | null, musicRange: any) {
+  const json = structuredClone(value), cues = new Map<string, { id: string; meta: string }>();
+  const visit = (node: any) => {
+    if (node.type === 'paragraph') node.attrs = { ...(node.attrs ?? {}), paragraphId: makeId('p'), groupId, musicRange: structuredClone(musicRange) };
+    for (const mark of node.marks ?? []) if (mark.type === 'cue') {
+      const old = String(mark.attrs.cueId);
+      if (!cues.has(old)) cues.set(old, { id: makeId('cue'), meta: JSON.stringify(duplicateSettings(JSON.parse(mark.attrs.cueMeta))) });
+      const copy = cues.get(old)!; mark.attrs = { ...mark.attrs, cueId: copy.id, cueMeta: copy.meta };
+    }
+    for (const child of node.content ?? []) visit(child);
+  };
+  for (const child of json.content ?? []) visit(child);
+  return json;
+}
+export function paragraphPosition(editor: Editor, id: string) {
+  let found: { from: number; to: number; node: any } | null = null;
+  editor.state.doc.forEach((node, pos) => { if (node.type.name === 'paragraph' && String(node.attrs.paragraphId) === id) found = { from: pos, to: pos + node.nodeSize, node }; });
+  return found as { from: number; to: number; node: any } | null;
+}
+export function deleteEditorParagraph(editor: Editor, id: string) {
+  const range = paragraphPosition(editor, id); if (!range) throw Error('æ®µè½å·²ä¸å­˜åœ¨ã€‚');
+  let tr = closeHistory(editor.state.tr);
+  if (editor.state.doc.childCount === 1) tr = tr.replaceWith(range.from, range.to, editor.schema.nodes.paragraph.create({ paragraphId: makeId('p'), groupId: range.node.attrs.groupId, musicRange: range.node.attrs.musicRange }));
+  else tr = tr.delete(range.from, range.to);
+  editor.view.dispatch(tr); return true;
+}
+export function pasteEditorClipboard(editor: Editor, payload: StoryClipboard | null, text: string, paragraphId: string, selection?: { anchor: number; head: number }) {
+  const range = paragraphPosition(editor, paragraphId); if (!range) throw Error('ç²˜è´´ç›®æ ‡å·²ä¸å­˜åœ¨ã€‚');
+  const { groupId, musicRange } = range.node.attrs;
+  let tr = closeHistory(editor.state.tr);
+  if (payload?.kind === 'paragraph') {
+    const block = duplicateParagraph(payload.value, groupId, musicRange), json = toEditorContent({ type: 'doc', blocks: [block] });
+    const node = editor.schema.nodeFromJSON(json.content![0]); tr = tr.insert(range.to, node).setSelection(TextSelection.create(tr.doc, range.to + 1));
+  } else {
+    const anchor = selection?.anchor ?? range.to - 1, head = selection?.head ?? anchor;
+    tr = tr.setSelection(TextSelection.create(tr.doc, anchor, head));
+    if (payload?.kind === 'text') tr = tr.replaceSelection(Slice.fromJSON(editor.schema, duplicateSlice(payload.value, groupId, musicRange)));
+    else if (text) {
+      const blocks = text.replace(/\r\n?/g, '\n').split('\n').map((value) => editor.schema.nodes.paragraph.create({ paragraphId: makeId('p'), groupId, musicRange }, value ? editor.schema.text(value) : undefined));
+      tr = tr.replaceSelection(new Slice(Fragment.fromArray(blocks), 1, 1));
+    } else throw Error('å‰ªè´´æ¿ä¸­æ²¡æœ‰å¯ç²˜è´´çš„æ­£æ–‡ã€‚');
+  }
+  editor.view.dispatch(tr.scrollIntoView());
+}
+export function clipboardText(payload: StoryClipboard) {
+  if (payload.kind === 'paragraph') return plainText(payload.value.children);
+  return '';
+}

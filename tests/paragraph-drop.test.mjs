@@ -1,6 +1,111 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ°í…™Ñ•Éô™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ)Mi¥À™É½´€©Íé¥Àœì)±½‰…±Q¡¥Ì¹)Mi¥Àõ)Mi¥Àì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞíÁ…É…É…Á¡	½‘å	½Õ¹‘Ì±É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ñô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½Á…É…É…Á µ‘É½ÀµÑ…É•Ğ¹ÑÌœì)¥µÁ½ÉĞíÉ•…Ñ••µ½AÉ½©•Ğ±Ù…±¥‘…Ñ•AÉ½©•Ñô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ğ¹µ©Ìœì)¥µÁ½ÉĞíÉ•…Ñ•A…É…É…Á¡É½ÕÀ±µ½Ù•A…É…É…Á¡Ì±Í•Ñ5ÕÍ¥I…¹”±µÕÍ¥I…¹•A…É…É…Á¡%‘Ì±É•½¹¥±•¡…ÁÑ•É½Õµ•¹Ñô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì)¥µÁ½ÉĞí‘•™…Õ±ÑM•ÑÑ¥¹Ì±½µÁ¥±•½Õµ•¹Ñô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ğ¹µ©Ìœì)¥µÁ½ÉĞíÉ•…Ñ•AÉ½©•ÑÉ¡¥Ù”±É•…‘AÉ½©•ÑÉ¡¥Ù•ô™É½´€œ¸¸½ÍÉŒ½Á•ÉÍ¥ÍÑ•¹”½…É¡¥Ù”¹µ©Ìœì)¥µÁ½ÉĞí•ÑM¡•µ…ô™É½´€Ñ¥ÁÑ…À½½É”œì)¥µÁ½ÉĞMÑ…ÉÑ•É-¥Ğ™É½´€Ñ¥ÁÑ…À½ÍÑ…ÉÑ•Èµ­¥Ğœì)¥µÁ½ÉĞU¹¥ÅÕ•%™É½´€Ñ¥ÁÑ…À½•áÑ•¹Í¥½¸µÕ¹¥ÅÕ”µ¥œì)¥µÁ½ÉĞí‘¥Ñ½ÉMÑ…Ñ•ô™É½´€Ñ¥ÁÑ…À½Á´½ÍÑ…Ñ”œì)¥µÁ½ÉĞí¡¥ÍÑ½Éä±Õ¹‘¼±É•‘½ô™É½´€Ñ¥ÁÑ…À½Á´½¡¥ÍÑ½Éäœì)¥µÁ½ÉĞíMÑ½ÉåÑÑÉ¥‰ÕÑ•Ì±Õ•5…É¬±Ñ½‘¥Ñ½É½¹Ñ•¹Ğ±™É½µ‘¥Ñ½É½¹Ñ•¹Ğ±µ½Ù•‘¥Ñ½ÉA…É…É…Á¡Íô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½ÍÑ½Éäµ•‘¥Ñ½È¹ÑÌœì()½¹ÍĞ9…Ñ¥Ù•±•µ•¹Ğõ±½‰…±Q¡¥Ì¹±•µ•¹Ğì)±…ÍÌ±•µ•¹Ñ¥áÑÕÉ”ì(€½¹ÍÑÉÕÑ½È¡Ñ…œ±‘…Ñ…Í•Ğõíô±É•ĞõíÑ½ÀèÀ±‰½ÑÑ½´èÀ±¡•¥¡ĞèÁô¥íÑ¡¥Ì¹Ñ…9…µ”õÑ…œíÑ¡¥Ì¹‘…Ñ…Í•Ğõ‘…Ñ…Í•ĞíÑ¡¥Ì¹É•ĞõÉ•ĞíÑ¡¥Ì¹¡¥±‘9½‘•Ìõmtíô(€•Ğ¡¥±‘É•¸ ¥íÉ•ÑÕÉ¸Ñ¡¥Ì¹¡¥±‘9½‘•Ì¹™¥±Ñ•È¡¸ôù¸¥¹ÍÑ…¹•½˜±•µ•¹Ñ¥áÑÕÉ”¤íô(€•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ğ ¥íÉ•ÑÕÉ¸Ñ¡¥Ì¹É•Ğíô(€•ÑÑÑÉ¥‰ÕÑ”¡¹…µ”¥íÉ•ÑÕÉ¸Ñ¡¥Ì¹‘…Ñ…Í•Ñm¹…µ”ôôô‘…Ñ„µÁ…É…É…Á¡¥œüÁ…É…É…Á¡¥œèÁ…É…É…Á¡%tüı¹Õ±°íô(€µ…Ñ¡•Ì¡Í•±•Ñ½È¥ì(€€€¥˜¡Í•±•Ñ½Èôôôœ¹½ÕÑ±¥¹”µÁ…É…É…Á µÉ½Üœ¥É•ÑÕÉ¸Ñ¡¥Ì¹½ÕÑ±¥¹”ôôõÑÉÕ”ì(€€€É•ÑÕÉ¸€¡Í•±•Ñ½È¹¥¹±Õ‘•Ì ‘…Ñ„µÉ½ÕÀµÁ…É…É…Á µ¥œ¤˜˜É½ÕÁA…É…É…Á¡%œ¥¸Ñ¡¥Ì¹‘…Ñ…Í•Ğ¥ñğ¡Í•±•Ñ½È¹¥¹±Õ‘•Ì ‘…Ñ„µÁ…É…É…Á µÑ½½±Ìœ¤˜˜Á…É…É…Á¡Q½½±Ìœ¥¸Ñ¡¥Ì¹‘…Ñ…Í•Ğ¤ì(€ô(€±½Í•ÍĞ¡Í•±•Ñ½È¥ì(€€€™½È¡±•Ğ¸õÑ¡¥Ìí¸í¸õ¸¹Á…É•¹Ñ±•µ•¹Ğ¥ì(€€€€€¥˜¡Í•±•Ñ½Èôôôm‘…Ñ„µÉ½ÕÀµ‘É½Átœ˜™¸¹‘…Ñ…Í•Ğ¹É½ÕÁÉ½À¥É•ÑÕÉ¸¸ì(€€€€€¥˜¡Í•±•Ñ½È„ôôm‘…Ñ„µÉ½ÕÀµ‘É½Átœ˜˜¡¸¹Ñ…9…µ”ôôô@ññ¸¹½ÕÑ±¥¹”¤˜™¸¹‘…Ñ…Í•Ğ¹Á…É…É…Á¡%¥É•ÑÕÉ¸¸ì(€€€ô(€€€É•ÑÕÉ¸¹Õ±°ì(€ô)ô)±½‰…±Q¡¥Ì¹±•µ•¹Ğõ±•µ•¹Ñ¥áÑÕÉ”ì)…™Ñ•È  ¤ôùí¥˜¡9…Ñ¥Ù•±•µ•¹ĞôôõÕ¹‘•™¥¹•¥‘•±•Ñ”±½‰…±Q¡¥Ì¹±•µ•¹Ğí•±Í”±½‰…±Q¡¥Ì¹±•µ•¹Ğõ9…Ñ¥Ù•±•µ•¹Ğíô¤ì)™Õ¹Ñ¥½¸•½µ•ÑÉä¡•µÁÑäõ™…±Í”¥ì(€½¹ÍĞÀõ¹•Ü±•µ•¹Ñ¥áÑÕÉ” @œ±íÁ…É…É…Á¡%è™¥ÉÍĞœ±É½ÕÁ%èœô±íÑ½ÀèÀ±‰½ÑÑ½´èÄĞÔ±¡•¥¡ĞèÄĞÕô¤ì(€½¹ÍĞ¡•…õ¹•Ü±•µ•¹Ñ¥áÑÕÉ” MA8œ±íÉ½ÕÁA…É…É…Á¡%è™¥ÉÍĞœ±É½ÕÁÉ½Àèœô±íÑ½ÀèÄÀ±‰½ÑÑ½´èÜÀ±¡•¥¡ĞèØÁô¤ì(€½¹ÍĞÑ½½±Ìõ¹•Ü±•µ•¹Ñ¥áÑÕÉ” MA8œ±íÁ…É…É…Á¡Q½½±Ìè™¥ÉÍĞô±íÑ½ÀèàÀ±‰½ÑÑ½´èÄÀÀ±¡•¥¡ĞèÈÁô¤ì(€½¹ÍĞ‰ÕÑÑ½¸õ¹•Ü±•µ•¹Ñ¥áÑÕÉ” 	UQQ=8œ±íÁ…É…É…Á¡%è™¥ÉÍĞô±íÑ½ÀèàÀ±‰½ÑÑ½´èÄÀÀ±¡•¥¡ĞèÈÁô¤í‰ÕÑÑ½¸¹Á…É•¹Ñ±•µ•¹ĞõÑ½½±Ìì(€½¹ÍĞÑ•áĞõíÉ•ĞéíÑ½ÀèÄÄÀ±‰½ÑÑ½´èÄÌÀ±¡•¥¡ĞèÈÁõôì(€À¹¡¥±‘9½‘•Ìõ•µÁÑäım¡•…±Ñ½½±Ítém¡•…±Ñ½½±Ì±Ñ•áÑtí¡•…¹Á…É•¹Ñ±•µ•¹ĞõÀíÑ½½±Ì¹Á…É•¹Ñ±•µ•¹ĞõÀì(€À¹½İ¹•É½Õµ•¹ĞõíÉ•…Ñ•I…¹” ¥í±•Ğ™¥ÉÍĞ±±…ÍĞíÉ•ÑÕÉ¸íÍ•ÑMÑ…ÉÑ	•™½É”¡¸¥í™¥ÉÍĞõÀ¹¡¥±‘9½‘•Ì¹¥¹‘•á=˜¡¸¤íô±Í•Ñ¹‘™Ñ•È¡¸¥í±…ÍĞõÀ¹¡¥±‘9½‘•Ì¹¥¹‘•á=˜¡¸¤íô±•Ñ	½Õ¹‘¥¹±¥•¹ÑI•Ğ ¥í½¹ÍĞ¹½‘•ÌõÀ¹¡¥±‘9½‘•Ì¹Í±¥”¡™¥ÉÍĞ±±…ÍĞ¬Ä¤í½¹ÍĞÑ½Àõ5…Ñ ¹µ¥¸ ¸¸¹¹½‘•Ì¹µ…À¡¸ôø¡¸¹É•Ğ¤¹Ñ½À¤¤±‰½ÑÑ½´õ5…Ñ ¹µ…à ¸¸¹¹½‘•Ì¹µ…À¡¸ôù¸¹É•Ğ¹‰½ÑÑ½´¤¤íÉ•ÑÕÉ¸íÑ½À±‰½ÑÑ½´±¡•¥¡Ğé‰½ÑÑ½´µÑ½Áôíõôíõôì(€É•ÑÕÉ¸íÀ±¡•…±Ñ½½±Ì±‰ÕÑÑ½¹ôì)ô)Ñ•ÍĞ Ÿî¦š[šº×jš‚¦Š`¿–Ş—–ßš‚?’â7šRç–>cš¶šZ’â+’â/–6+¾ò3š&/š~–F÷’â·’öÿR£–º{¦fÃ¾ò3î–’Ó’î7¢ş÷–*ƒîšr¬œ° ¤ôùì(€½¹ÍĞíÀ±¡•…±‰ÕÑÑ½¹ôõ•½µ•ÑÉä ¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡Á…É…É…Á¡	½‘å	½Õ¹‘Ì¡À¤±íÑ½ÀèÄÄÀ±‰½ÑÑ½´èÄÌÀ±¡•¥¡ĞèÈÁô¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À°ÄÄĞ¤¹Á½Í¥Ñ¥½¸°‰•™½É”œ¤ì€¼¼ƒš^Ã’â·
-äÜÈ¸×’òk¦Rg¢¾¿¢Bõ…™Ñ•Ë(€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À°ÄÈØ¤¹Á½Í¥Ñ¥½¸°…™Ñ•Èœ¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡‰ÕÑÑ½¸°ÄÄĞ¤±íÑåÁ”èÁ…É…É…Á œ±Á…É…É…Á¡%è™¥ÉÍĞœ±Á½Í¥Ñ¥½¸è‰•™½É”ô¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡¡•…°ĞÀ¤±íÑåÁ”èÉ½ÕÀœ±É½ÕÁ%èœô¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À°ÄÄĞ°…Õ‘¥¼œ¤±íÑåÁ”èÉ½ÕÀœ±É½ÕÁ%èœô¤ì)ô¤ì)Ñ•ÍĞ Ÿ¦ëšº×’æšr'–&7–B;¢B÷
-ç¾ò1¢†3–’7R£’â·
-ç¾ò3¦v{šº×¢Bô¿š^ƒî¦~Ï¦ŠG’â7¢¾¿š>C’êœ° ¤ôùì(€½¹ÍĞíÁôõ•½µ•ÑÉä¡ÑÉÕ”¤±‰½‘äõÁ…É…É…Á¡	½‘å	½Õ¹‘Ì¡À¤ì(€…ÍÍ•ÉĞ¹½¬¡‰½‘ä¹¡•¥¡ĞøÀ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À±‰½‘ä¹Ñ½À¬¸Ä¤¹Á½Í¥Ñ¥½¸°‰•™½É”œ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À±‰½‘ä¹‰½ÑÑ½´´¸Ä¤¹Á½Í¥Ñ¥½¸°…™Ñ•Èœ¤ì(€À¹½ÕÑ±¥¹”õÑÉÕ”í…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À°ÜÀ¤¹Á½Í¥Ñ¥½¸°‰•™½É”œ¤í…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À°àÀ¤¹Á½Í¥Ñ¥½¸°…™Ñ•Èœ¤ì(€‘•±•Ñ”À¹‘…Ñ…Í•Ğ¹É½ÕÁ%í…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡À°ÜÀ°…Õ‘¥¼œ¤±¹Õ±°¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡É•Í½±Ù•A…É…É…Á¡É½ÁQ…É•Ğ¡¹•Ü±•µ•¹Ñ¥áÑÕÉ” %Xœ¤°ÜÀ¤±¹Õ±°¤ì)ô¤ì)™Õ¹Ñ¥½¸É½ÕÁ• ¥ì(€½¹ÍĞÁÉ½©•ĞõÉ•…Ñ••µ½AÉ½©•Ğ ¤±‰…Í”õÁÉ½©•Ğ¹¡…ÁÑ•ÉÍlÁtì(€½¹ÍĞ¥‘ÌõÉÉ…ä¹™É½´¡í±•¹Ñ èÙô°¡|±¤¤ôøÀ´œ­¤¤ì(€½¹ÍĞ‰±½­Ìõ¥‘Ì¹µ…À ¡¥±¤¤ôø¡íÑåÁ”èÁ…É…É…Á œ±¥±¡¥±‘É•¸émíÑåÁ”èÕ”œ±¥èÕ”´œ­¤±Í•ÑÑ¥¹Ìé‘•™…Õ±ÑM•ÑÑ¥¹Ì¡í…Õ‘¥½%èÍ½Õ¹œ±Í•¹•1…å•ÉÌémí¥è±…å•È´œ­¤±…ÍÍ•Ñ%è¥µ…”œ±àèÀ±äèÀ±İ¥‘Ñ èÄÀÀ±¡•¥¡ĞèÄÀÀ±½Á…¥ÑäèÄ±é%¹‘•àèÅõuô¤±¡¥±‘É•¸émíÑåÁ”èÑ•áĞœ±Ñ•áĞèŸ²°œ­¤¬Ÿšº×š¶šZõuõuô¤¤ì(€±•Ğ¡…ÁÑ•Èõì¸¸¹‰…Í”±‘½Õµ•¹Ğéì¸¸¹‰…Í”¹‘½Õµ•¹Ğ±‰±½­Íô±É½ÕÁÌémt±µÕÍ¥I…¹•Ìémuôì(€¡…ÁÑ•ÈõÉ•…Ñ•A…É…É…Á¡É½ÕÀ¡¡„V¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅçFW"Æ–G2Â~YÎ{¸Br“°¢6†FW#×6WD×W6–5&ævR†6†FW"Âv×W6–2rÆ–G2“°¢6öç7B76WG3Õµ²v×W6–2rÂvVF–òrÂvVF–ò÷vbuÒÅ²w6÷VæBrÂvVF–òrÂvVF–ò÷vbuÒÅ²v–ÖvRrÂv–ÖvRrÂv–ÖvR÷æruÕÒæÖ‚…¶–BÆ¶–æBÆÖ–ÖUÒ“Óâ‡¶–BÆ¶–æBÆÖ–ÖRÆæÖS¦–B²†¶–æCÓÓÒv–ÖvRsòrçærs¢rçvbr’Ç6—¦S£Æ&Æö#¦æWr&Æö"…¶æWrV–çC„'&’…³Ò•ÒÇ·G—S¦Ö–ÖWÒ—Ò’“°¢&WGW&â·&ö¦V7C§²ââç&ö¦V7BÆ6†FW'3¥¶6†FW%ÒÆ7F—fT6†FW$–C¦6†FW"æ–BÆ76WG3¦76WG2æÖ‚‡¶&Æö"ÂââæÒ“Óæ—ÒÆ6†FW"Æ–G2Æ76WG7Ó°§Ğ§FW7B‚~YÎ{¸NšinKŠŞiÊ¾XøÎY	z{¾XªY(Î‹ùî{ºŞZI®˜KùŞ[¨şûÈÎXh^Zë’şXúT”BşY»î["ş™û>iXXø®{¸N˜XŞK™KˆŞXù‚rÆ7–æ2‚“Óç°¢6öç7B·&ö¦V7BÆ6†FW"Æ–G2Æ76WG7ÓÖw&÷WVB‚’Æw&÷W–CÖ6†FW"æw&÷W5³Òæ–C°¢6öç7B÷&–v–æÃÖæWrÖ†6†FW"æFö7VÖVçBæ&Æö6·2æÖ†#Óå¶"æ–BÆ"æ6†–ÆG&VåÒ’“°¢6öç7BfW&–g“Ö7W'&VçCÓç°¢76W'BæWVÂ†7W'&VçBæw&÷W5³Òæ–BÆw&÷W–B“°¢76W'BæFVWWVÂ†7W'&VçBæw&÷W5³Òç&w&„–G2Æ7W'&VçBæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’“°¢76W'BæFVWWVÂ†×W6–5&ævU&w&„–G2†7W'&VçBÆ7W'&VçBæ×W6–5&ævW5³Ò’Æ7W'&VçBæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’“°¢f÷"†6öç7B&Æö6²öb7W'&VçBæFö7VÖVçBæ&Æö6·2–76W'BæFVWWVÂ†&Æö6²æ6†–ÆG&VâÆ÷&–v–æÂævWB†&Æö6²æ–B’“°¢76W'BæWVÂ‡fÆ–FFU&ö¦V7B‡²ââç&ö¦V7BÆ6†FW'3¥¶7W'&VçE×Ò’ÇG'VR“°¢Ó°¢ÆWBæW‡CÖÖ÷fU&w&‡2†6†FW"Å¶–G5³UÕÒÇ·G—S¢w&w&‚rÇ&w&„–C¦–G5³ÒÇ÷6—F–öã¢v&Vf÷&RwÒ“·fW&–g’†æW‡B“¶76W'BæWVÂ†æW‡BæFö7VÖVçBæ&Æö6·5³Òæ–BÆ–G5³UÒ“°¢æW‡CÖÖ÷fU&w&‡2†æW‡BÅ¶–G5³UÕÒÇ·G—S¢vw&÷WrÆw&÷W–GÒ“·fW&–g’†æW‡B“¶76W'BæFVWWVÂ†æW‡BæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’Æ–G2“°¢æW‡CÖÖ÷fU&w&‡2†æW‡BÅ¶–G5³ÕÒÇ·G—S¢w&w&‚rÇ&w&„–C¦–G5³UÒÇ÷6—F–öã¢vgFW"wÒ“·fW&–g’†æW‡B“¶76W'BæWVÂ†æW‡BæFö7VÖVçBæ&Æö6·2æB‚Ó’æ–BÆ–G5³Ò“°¢æW‡CÖÖ÷fU&w&‡2†æW‡BÅ¶–G5³ÕÒÇ·G—S¢w&w&‚rÇ&w&„–C¦–G5³ÒÇ÷6—F–öã¢v&Vf÷&RwÒ“·fW&–g’†æW‡B“¶76W'BæFVWWVÂ†æW‡BæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’Æ–G2“°¢æW‡CÖÖ÷fU&w&‡2†æW‡BÅ¶–G5³5ÒÆ–G5³%ÕÒÇ·G—S¢w&w&‚rÇ&w&„–C¦–G5³ÒÇ÷6—F–öã¢v&Vf÷&RwÒ“·fW&–g’†æW‡B“¶76W'BæFVWWVÂ†æW‡BæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’Å¶–G5³%ÒÆ–G5³5ÒÆ–G5³ÒÆ–G5³ÒÆ–G5³EÒÆ–G5³UÕÒ“°¢æW‡CÖÖ÷fU&w&‡2†æW‡BÅ¶–G5³%ÒÆ–G5³5ÕÒÇ·G—S¢vw&÷WrÆw&÷W–GÒ“·fW&–g’†æW‡B“¶76W'BæFVWWVÂ†æW‡BæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’Å¶–G5³ÒÆ–G5³ÒÆ–G5³EÒÆ–G5³UÒÆ–G5³%ÒÆ–G5³5ÕÒ“°¢76W'BæWVÂ†Ö÷fU&w&‡2†æW‡BÅ¶–G5³%ÕÒÇ·G—S¢w&w&‚rÇ&w&„–C¦–G5³%ÒÇ÷6—F–öã¢vgFW"wÒ’ÆæW‡B“°¢6öç7B&V÷VæVCÖv—B&VE&ö¦V7D&6†—fR†v—B†v—B7&VFU&ö¦V7D&6†—fR‡²ââç&ö¦V7BÆ6†FW'3¥¶æW‡E×ÒÆ76WG2’’æ'&”'VffW"‚’“·fW&–g’‡&V÷VæVBç&ö¦V7Bæ6†FW'5³Ò“°§Ò“°§FW7B‚~hé.[¨ş‹[XÙ^KˆŞ{¹>ièNK¨¾XªûÈÎKˆjÊi*N™H˜xŞX®h.ZHŞXZš®[¨şXø®{¸N˜XŞK™rÂ‚“Óç°¢6öç7B¶6†FW"Æ–G7ÓÖw&÷WVB‚’Æw&÷W–CÖ6†FW"æw&÷W5³Òæ–C°¢6öç7BæW‡CÖÖ÷fU&w&‡2†6†FW"Å¶–G5³EÒÆ–G5³5ÕÒÇ·G—S¢w&w&‚rÇ&w&„–C¦–G5³ÒÇ÷6—F–öã¢v&Vf÷&RwÒ“°¢6öç7B66†VÖÖvWE66†VÖ…µ7F'FW$¶—BÅVæ—VT”Bæ6öæf–wW&R‡·G—W3¥²w&w&‚uÒÆGG&–'WFTæÖS¢w&w&„–BwÒ’Ä7VTÖ&²Å7F÷'”GG&–'WFW5Ò“°¢ÆWB7FFSÔVF—F÷%7FFRæ7&VFR‡·66†VÖÆFö3§66†VÖææöFTg&öÔ¥4ôâ‡FôVF—F÷$6öçFVçB†6†FW"æFö7VÖVçBÆ6†FW"æw&÷W2Æ6†FW"æ×W6–5&ævW2’’ÇÇVv–ç3¥¶†—7F÷'’‚•×Ò“°¢6öç7BVF—F÷#×¶vWB7FFR‚—·&WGW&â7FFS·ÒÇ66†VÖÇf–Ws§¶F—7F6‚‡G"—·7FFS×7FFRæÇ’‡G"“·××Ó°¢6öç7BfW&–g“Ö7W'&VçCÓç°¢6öç7B7GVÃ×&V6öæ6–ÆT6†FW$Fö7VÖVçB†6†FW"Æg&öÔVF—F÷$6öçFVçB‡7FFRæFö2çFô¥4ôâ‚’’“°¢76W'BæFVWWVÂ†7GVÂæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’Æ7W'&VçBæFö7VÖVçBæ&Æö6·2æÖ†#Óæ"æ–B’“°¢76W'BæFVWWVÂ†7GVÂæw&÷W2æf–æB†sÓæræ–CÓÓÖw&÷W–B’ç&w&„–G2Æ7W'&VçBæw&÷W5³Òç&w&„–G2“°¢76W'BæFVWWVÂ†×W6–5&ævU&w&„–G2†7GVÂÆ7GVÂæ×W6–5&ævW5³Ò’Æ×W6–5&ævU&w&„–G2†7W'&VçBÆ7W'&VçBæ×W6–5&ævW5³Ò’“°¢76W'BæFVWWVÂ†6ö×–ÆTFö7VÖVçB†7GVÂæFö7VÖVçB’æÖ†3Óæ2æ–B’Æ6ö×–ÆTFö7VÖVçB†7W'&VçBæFö7VÖVçB’æÖ†3Óæ2æ–B’“°¢f÷"†6öç7B&Æö6²öb7GVÂæFö7VÖVçBæ&Æö6·2–76W'BæFVWWVÂ†&Æö6²æ6†–ÆG&VâÆ7W'&VçBæFö7VÖVçBæ&Æö6·2æf–æB†#Óæ"æ–CÓÓÖ&Æö6²æ–B’æ6†–ÆG&Vâ“°¢Ó°¢76W'BæWVÂ†Ö÷fTVF—F÷%&w&‡2†VF—F÷"ÆæW‡BæFö7VÖVçBæ&Æö6·2’ÇG'VR“·fW&–g’†æW‡B“°¢76W'BæWVÂ‡VæFò‡7FFRÇG#Óç·7FFS×7FFRæÇ’‡G"“·Ò’ÇG'VR“·fW&–g’†6†FW"“°¢76W'BæWVÂ‡&VFò‡7FFRÇG#Óç·7FFS×7FFRæÇ’‡G"“·Ò’ÇG'VR“·fW&–g’†æW‡B“°§Ò“°
+import test, {after} from 'node:test';
+import JSZip from 'jszip';
+globalThis.JSZip=JSZip;
+import assert from 'node:assert/strict';
+import {paragraphBodyBounds,resolveParagraphDropTarget} from '../src/editor/paragraph-drop-target.ts';
+import {createDemoProject,validateProject} from '../src/domain/model/project.mjs';
+import {createParagraphGroup,moveParagraphs,setMusicRange,musicRangeParagraphIds,reconcileChapterDocument} from '../src/domain/model/chapters.mjs';
+import {defaultSettings,compileDocument} from '../src/domain/model/document.mjs';
+import {createProjectArchive,readProjectArchive} from '../src/persistence/archive.mjs';
+import {getSchema} from '@tiptap/core';
+import StarterKit from '@tiptap/starter-kit';
+import UniqueID from '@tiptap/extension-unique-id';
+import {EditorState} from '@tiptap/pm/state';
+import {history,undo,redo} from '@tiptap/pm/history';
+import {StoryAttributes,CueMark,toEditorContent,fromEditorContent,moveEditorParagraphs} from '../src/editor/story-editor.ts';
+
+const NativeElement=globalThis.Element;
+class ElementFixture {
+  constructor(tag,dataset={},rect={top:0,bottom:0,height:0}){this.tagName=tag;this.dataset=dataset;this.rect=rect;this.childNodes=[];}
+  get children(){return this.childNodes.filter(n=>n instanceof ElementFixture);}
+  getBoundingClientRect(){return this.rect;}
+  getAttribute(name){return this.dataset[name==='data-paragraphid'?'paragraphid':'paragraphId']??null;}
+  matches(selector){
+    if(selector==='.outline-paragraph-row')return this.outline===true;
+    return (selector.includes('data-group-paragraph-id')&&'groupParagraphId' in this.dataset)||(selector.includes('data-paragraph-tools')&&'paragraphTools' in this.dataset);
+  }
+  closest(selector){
+    for(let n=this;n;n=n.parentElement){
+      if(selector==='[data-group-drop]'&&n.dataset.groupDrop)return n;
+      if(selector!=='[data-group-drop]'&&(n.tagName==='P'||n.outline)&&n.dataset.paragraphId)return n;
+    }
+    return null;
+  }
+}
+globalThis.Element=ElementFixture;
+after(()=>{if(NativeElement===undefined)delete globalThis.Element;else globalThis.Element=NativeElement;});
+function geometry(empty=false){
+  const p=new ElementFixture('P',{paragraphId:'first',groupId:'g'},{top:0,bottom:145,height:145});
+  const head=new ElementFixture('SPAN',{groupParagraphId:'first',groupDrop:'g'},{top:10,bottom:70,height:60});
+  const tools=new ElementFixture('SPAN',{paragraphTools:'first'},{top:80,bottom:100,height:20});
+  const button=new ElementFixture('BUTTON',{paragraphId:'first'},{top:80,bottom:100,height:20});button.parentElement=tools;
+  const text={rect:{top:110,bottom:130,height:20}};
+  p.childNodes=empty?[head,tools]:[head,tools,text];head.parentElement=p;tools.parentElement=p;
+  p.ownerDocument={createRange(){let first,last;return {setStartBefore(n){first=p.childNodes.indexOf(n);},setEndAfter(n){last=p.childNodes.indexOf(n);},getBoundingClientRect(){const nodes=p.childNodes.slice(first,last+1);const top=Math.min(...nodes.map(n=>(n.rect).top)),bottom=Math.max(...nodes.map(n=>n.rect.bottom));return {top,bottom,height:bottom-top};}};}};
+  return {p,head,tools,button};
+}
+test('ç»„é¦–æ®µçš„æ ‡é¢˜/å·¥å…·æ ä¸æ”¹å˜æ­£æ–‡ä¸Šä¸‹åŠï¼Œæ‰‹æŸ„å‘½ä¸­ä½¿ç”¨å®é™…pï¼Œç»„å¤´ä»è¿½åŠ ç»„æœ«',()=>{
+  const {p,head,button}=geometry();
+  assert.deepEqual(paragraphBodyBounds(p),{top:110,bottom:130,height:20});
+  assert.equal(resolveParagraphDropTarget(p,114).position,'before'); // æ—§pä¸­ç‚¹72.5ä¼šé”™è¯¯è½afterã€‚
+  assert.equal(resolveParagraphDropTarget(p,126).position,'after');
+  assert.deepEqual(resolveParagraphDropTarget(button,114),{type:'paragraph',paragraphId:'first',position:'before'});
+  assert.deepEqual(resolveParagraphDropTarget(head,40),{type:'group',groupId:'g'});
+  assert.deepEqual(resolveParagraphDropTarget(p,114,'audio'),{type:'group',groupId:'g'});
+});
+test('ç©ºæ®µä¹Ÿæœ‰å‰åè½ç‚¹ï¼ŒBè¡Œå¤ç”¨ä¸­ç‚¹ï¼Œéæ®µè½/æ— ç»„éŸ³é¢‘ä¸è¯¯æäº¤',()=>{
+  const {p}=geometry(true),body=paragraphBodyBounds(p);
+  assert.ok(body.height>0);
+  assert.equal(resolveParagraphDropTarget(p,body.top+.1).position,'before');
+  assert.equal(resolveParagraphDropTarget(p,body.bottom-.1).position,'after');
+  p.outline=true;assert.equal(resolveParagraphDropTarget(p,70).position,'before');assert.equal(resolveParagraphDropTarget(p,80).position,'after');
+  delete p.dataset.groupId;assert.equal(resolveParagraphDropTarget(p,70,'audio'),null);
+  assert.equal(resolveParagraphDropTarget(new ElementFixture('DIV'),70),null);
+});
+function grouped(){
+  const project=createDemoProject(),base=project.chapters[0];
+  const ids=Array.from({length:6},(_,i)=>'p-'+i);
+  const blocks=ids.map((id,i)=>({type:'paragraph',id,children:[{type:'cue',id:'cue-'+i,settings:defaultSettings({audioId:'sound',sceneLayers:[{id:'layer-'+i,assetId:'image',x:0,y:0,width:100,height:100,opacity:1,zIndex:1}]}),children:[{type:'text',text:'ç¬¬'+i+'æ®µæ­£æ–‡'}]}]}));
+  let chapter={...base,document:{...base.document,blocks},groups:[],musicRanges:[]};
+  chapter=createParagraphGroup(chapter,ids,'åŒç»„');
+  chapter=setMusicRange(chapter,'music',ids);
+  const assets=[['music','audio','audio/wav'],['sound','audio','audio/wav'],['image','image','image/png']].map(([id,kind,mime])=>({id,kind,mime,name:id+(kind==='image'?'.png':'.wav'),size:1,blob:new Blob([new Uint8Array([1])],{type:mime})}));
+  return {project:{...project,chapters:[chapter],activeChapterId:chapter.id,assets:assets.map(({blob,...a})=>a)},chapter,ids,assets};
+}
+test('åŒç»„é¦–ä¸­æœ«åŒå‘ç§»åŠ¨å’Œè¿ç»­å¤šé€‰ä¿åºï¼Œå†…å®¹/å¥ID/å›¾å±‚/éŸ³æ•ˆåŠç»„é…ä¹ä¸å˜',async()=>{
+  const {project,chapter,ids,assets}=grouped(),groupId=chapter.groups[0].id;
+  const original=new Map(chapter.document.blocks.map(b=>[b.id,b.children]));
+  const verify=current=>{
+    assert.equal(current.groups[0].id,groupId);
+    assert.deepEqual(current.groups[0].paragraphIds,current.document.blocks.map(b=>b.id));
+    assert.deepEqual(musicRangeParagraphIds(current,current.musicRanges[0]),current.document.blocks.map(b=>b.id));
+    for(const block of current.document.blocks)assert.deepEqual(block.children,original.get(block.id));
+    assert.equal(validateProject({...project,chapters:[current]}),true);
+  };
+  let next=moveParagraphs(chapter,[ids[5]],{type:'paragraph',paragraphId:ids[0],position:'before'});verify(next);assert.equal(next.document.blocks[0].id,ids[5]);
+  next=moveParagraphs(next,[ids[5]],{type:'group',groupId});verify(next);assert.deepEqual(next.document.blocks.map(b=>b.id),ids);
+  next=moveParagraphs(next,[ids[0]],{type:'paragraph',paragraphId:ids[5],position:'after'});verify(next);assert.equal(next.document.blocks.at(-1).id,ids[0]);
+  next=moveParagraphs(next,[ids[0]],{type:'paragraph',paragraphId:ids[1],position:'before'});verify(next);assert.deepEqual(next.document.blocks.map(b=>b.id),ids);
+  next=moveParagraphs(next,[ids[3],ids[2]],{type:'paragraph',paragraphId:ids[0],position:'before'});verify(next);assert.deepEqual(next.document.blocks.map(b=>b.id),[ids[2],ids[3],ids[0],ids[1],ids[4],ids[5]]);
+  next=moveParagraphs(next,[ids[2],ids[3]],{type:'group',groupId});verify(next);assert.deepEqual(next.document.blocks.map(b=>b.id),[ids[0],ids[1],ids[4],ids[5],ids[2],ids[3]]);
+  assert.equal(moveParagraphs(next,[ids[2]],{type:'paragraph',paragraphId:ids[2],position:'after'}),next);
+  const reopened=await readProjectArchive(await (await createProjectArchive({...project,chapters:[next]},assets)).arrayBuffer());verify(reopened.project.chapters[0]);
+});
+test('æ’åºèµ°å•ä¸€PMç»“æ„äº‹åŠ¡ï¼Œä¸€æ¬¡æ’¤é”€é‡åšæ¢å¤å…¨é¡ºåºåŠç»„é…ä¹',()=>{
+  const {chapter,ids}=grouped(),groupId=chapter.groups[0].id;
+  const next=moveParagraphs(chapter,[ids[4],ids[3]],{type:'paragraph',paragraphId:ids[0],position:'before'});
+  const schema=getSchema([StarterKit,UniqueID.configure({types:['paragraph'],attributeName:'paragraphId'}),CueMark,StoryAttributes]);
+  let state=EditorState.create({schema,doc:schema.nodeFromJSON(toEditorContent(chapter.document,chapter.groups,chapter.musicRanges)),plugins:[history()]});
+  const editor={get state(){return state;},schema,view:{dispatch(tr){state=state.apply(tr);}}};
+  const verify=current=>{
+    const actual=reconcileChapterDocument(chapter,fromEditorContent(state.doc.toJSON()));
+    assert.deepEqual(actual.document.blocks.map(b=>b.id),current.document.blocks.map(b=>b.id));
+    assert.deepEqual(actual.groups.find(g=>g.id===groupId).paragraphIds,current.groups[0].paragraphIds);
+    assert.deepEqual(musicRangeParagraphIds(actual,actual.musicRanges[0]),musicRangeParagraphIds(current,current.musicRanges[0]));
+    assert.deepEqual(compileDocument(actual.document).map(c=>c.id),compileDocument(current.document).map(c=>c.id));
+    for(const block of actual.document.blocks)assert.deepEqual(block.children,current.document.blocks.find(b=>b.id===block.id).children);
+  };
+  assert.equal(moveEditorParagraphs(editor,next.document.blocks),true);verify(next);
+  assert.equal(undo(state,tr=>{state=state.apply(tr);}),true);verify(chapter);
+  assert.equal(redo(state,tr=>{state=state.apply(tr);}),true);verify(next);
+});

@@ -1,2 +1,43 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥¹Ñ•É™…”]¥¹‘½Üì(€ÍÑ½Éå]½É­‰•¹ èì(€€€É•…‘±¥Á‰½…É ¤èAÉ½µ¥Í”ñìÑ•áĞèÍÑÉ¥¹œìÁ…å±½…èÕ¹­¹½İ¸ôøì(€€€İÉ¥Ñ•±¥Á‰½…É¡Ù…±Õ”èìÑ•áĞèÍÑÉ¥¹œìÁ…å±½…èÕ¹­¹½İ¸ô¤èAÉ½µ¥Í”ñ‰½½±•…¸øì(€€€€¼¨¨ƒšr³–rÃ–Ş—¢/–êO¾òkš¾?’â¨­•äƒ’â’î÷.³®/––ºçš‹–’7–:–>Ë–J3–’[¦£’şw–¶c’ö7ö¸€¨¼(€€€±¥‰É…Éäèì(€€€€€±¥ÍĞ ¤èAÉ½µ¥Í”ñìÁÉ½©•ÑÌè1¥‰É…Éå¹ÑÉåmtì…Ñ¥Ù•-•äèÍÑÉ¥¹œğ¹Õ±°ì±•…åA•¹‘¥¹œè‰½½±•…¸ôøì(€€€€€±½…‘1•…ä ¤èAÉ½µ¥Í”ñU¥¹ĞáÉÉ…äğ¹Õ±°øì(€€€€€…‘½ÁÑ1•…ä¡‰åÑ•ÌèU¥¹ĞáÉÉ…ä°µ•Ñ„èì¹…µ”üèÍÑÉ¥¹œìÁÉ½©•Ñ%üèÍÑÉ¥¹œô¤èAÉ½µ¥Í”ñ1¥‰É…Éå¹ÑÉäøì(€€€€€±½…¡­•äèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñU¥¹ĞáÉÉ…äğ¹Õ±°øì(€€€€€É•…Ñ”¡‰åÑ•ÌèU¥¹ĞáÉÉ…ä°µ•Ñ„èì¹…µ”üèÍÑÉ¥¹œìÁÉ½©•Ñ%üèÍÑÉ¥¹œô¤èAÉ½µ¥Í”ñ1¥‰É…Éå¹ÑÉäøì(€€€€€É•¹…µ”¡­•äèÍÑÉ¥¹œ°¹…µ”èÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñ1¥‰É…Éå¹ÑÉäøì(€€€€€Í…Ù”¡­•äèÍÑÉ¥¹œ°‰åÑ•ÌèU¥¹ĞáÉÉ…ä°½ÁÑ¥½¹ÌüèìÁÉ½Ñ•ÑÕÉÉ•¹Ğüè‰½½±•…¸ô¤èAÉ½µ¥Í”ñìÍ…Ù•‘ĞèÍÑÉ¥¹œì‰åÑ•Ìè¹Õµ‰•Èì™¥±•A…Ñ üèÍÑÉ¥¹œğ¹Õ±°ìİ…É¹¥¹œüèÍÑÉ¥¹œôøì(€€€€€Í…Ù•Ì¡­•äèÍÑÉ¥¹œ°‰åÑ•ÌèU¥¹ĞáÉÉ…ä¤èAÉ½µ¥Í”ñì™¥±•A…Ñ èÍÑÉ¥¹œìÍ…Ù•‘ĞèÍÑÉ¥¹œôğ¹Õ±°øì(€€€€€Í…Ù•Q…É•Ğ¡­•äèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñÍÑÉ¥¹œğ¹Õ±°øì(€€€€€½Á•¹M…Ù•½±‘•È¡­•äèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñÍÑÉ¥¹œøì(€€€€€¡¥ÍÑ½Éå1¥ÍĞ¡­•äèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñÉÉ…äñì¥èÍÑÉ¥¹œìÍ…Ù•‘ĞèÍÑÉ¥¹œì‰åÑ•Ìè¹Õµ‰•ÈìÉ•…Í½¸èÍÑÉ¥¹œôøøì(€€€€€¡¥ÍÑ½Éå1½…¡­•äèÍÑÉ¥¹œ°¥èÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñU¥¹ĞáÉÉ…äğ¹Õ±°øì(€€€€€É•ÍÑ½É•A½¥¹Ğ¡­•äèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñU¥¹ĞáÉÉ…äğ¹Õ±°øì(€€€€€É•ÍÑ½É•ÁÁ±ä¡­•äèÍÑÉ¥¹œ°‰åÑ•ÌèU¥¹ĞáÉÉ…ä¤èAÉ½µ¥Í”ñìÍ…Ù•‘ĞèÍÑÉ¥¹œì‰åÑ•Ìè¹Õµ‰•Èôøì(€€€€€¥µÁ½ÉÑ	…­ÕÀ¡­•äèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñU¥¹ĞáÉÉ…äğ¹Õ±°øì(€€€€€¥µÁ½ÉÑ	…­ÕÁÁÁ±ä¡­•äèÍÑÉ¥¹œ°‰åÑ•ÌèU¥¹ĞáÉÉ…ä¤èAÉ½µ¥Í”ñìÍ…Ù•‘ĞèÍÑÉ¥¹œì‰åÑ•Ìè¹Õµ‰•Èôøì(€€€€€¥µÁ½ÉÑ½µµ¥Ğ¡­•äèÍÑÉ¥¹œ°‰åÑ•ÌèU¥¹ĞáÉÉ…ä°µ•Ñ„üèì¹…µ”üèÍÑÉ¥¹œìÁÉ½©•Ñ%üèÍÑÉ¥¹œô¤èAÉ½µ¥Í”ñìÍ…Ù•‘ĞèÍÑÉ¥¹œì‰åÑ•Ìè¹Õµ‰•Èì™¥±•A…Ñ üèÍÑÉ¥¹œğ¹Õ±°ôøì(€€€€€Í•ÑÑ¥Ù”¡­•äèÍÑÉ¥¹œ¤èAÉ½µ¥Í”ñÍÑÉ¥¹œøì(€€€ôì(€€€•áÁ½ÉÑAÉ½©•Ğ¡‰åÑ•ÌèU¥¹ĞáÉÉ…ä¤èAÉ½µ¥Í”ñÍÑÉ¥¹œğ¹Õ±°øì(€€€•áÁ½ÉÑI•Ù¥•İA…¬¡‰åÑ•ÌèU¥¹ĞáÉÉ…ä¤èAÉ½µ¥Í”ñÍÑÉ¥¹œğ¹Õ±°øì(€€€•áÁ½ÉÑ½Õµ•¹Ğ¡Ù…±Õ”èìÍÕ•ÍÑ•‘9…µ”èÍÑÉ¥¹œìÑ•áĞèÍÑÉ¥¹œô¤èAÉ½µ¥Í”ñÍÑÉ¥¹œğ¹Õ±°øì(€€€¥µÁ½ÉÑ¥¡…¹•Ì ¤èAÉ½µ¥Í”ñì¹…µ”èÍÑÉ¥¹œìÑ•áĞèÍÑÉ¥¹œôğ¹Õ±°øì(€€€¥µÁ½ÉÑAÉ½©•Ğ ¤èAÉ½µ¥Í”ñì¹…µ”èÍÑÉ¥¹œì‰åÑ•ÌèU¥¹ĞáÉÉ…äôğ¹Õ±°øì(€€€¡½½Í•ÍÍ•ÑÌ ¤èAÉ½µ¥Í”ñì…¹•±±•è‰½½±•…¸ì¥Ñ•µÌèÉÉ…äñì¹…µ”èÍÑÉ¥¹œìµ¥µ”üèÍÑÉ¥¹œì‰åÑ•ÌüèU¥¹ĞáÉÉ…äì•ÉÉ½ÈüèÍÑÉ¥¹œôøôøì(€€€½¹	•™½É•±½Í”¡…±±‰…¬è€¡É•ÅÕ•ÍÑ%è¹Õµ‰•È¤€ôøÙ½¥¤è€ ¤€ôøÙ½¥ì(€€€±½Í•I•ÍÕ±Ğ¡É•ÍÕ±ĞèìÍ…Ù•è‰½½±•…¸ì•ÉÉ½ÈüèÍÑÉ¥¹œô¤èAÉ½µ¥Í”ñÙ½¥øì(€ôì)ô()¥¹Ñ•É™…”1¥‰É…Éå¹ÑÉäì(€­•äèÍÑÉ¥¹œì(€ÁÉ½©•Ñ%èÍÑÉ¥¹œì(€¹…µ”èÍÑÉ¥¹œì(€É•…Ñ•‘ĞèÍÑÉ¥¹œì(€ÕÁ‘…Ñ•‘ĞèÍÑÉ¥¹œì)ô
+interface Window {
+  storyWorkbench: {
+    readClipboard(): Promise<{ text: string; payload: unknown }>;
+    writeClipboard(value: { text: string; payload: unknown }): Promise<boolean>;
+    /** æœ¬åœ°å·¥ç¨‹åº“ï¼šæ¯ä¸ª key ä¸€ä»½ç‹¬ç«‹å†…å®¹ã€æ¢å¤å†å²å’Œå¤–éƒ¨ä¿å­˜ä½ç½® */
+    library: {
+      list(): Promise<{ projects: LibraryEntry[]; activeKey: string | null; legacyPending: boolean }>;
+      loadLegacy(): Promise<Uint8Array | null>;
+      adoptLegacy(bytes: Uint8Array, meta: { name?: string; projectId?: string }): Promise<LibraryEntry>;
+      load(key: string): Promise<Uint8Array | null>;
+      create(bytes: Uint8Array, meta: { name?: string; projectId?: string }): Promise<LibraryEntry>;
+      rename(key: string, name: string): Promise<LibraryEntry>;
+      save(key: string, bytes: Uint8Array, options?: { protectCurrent?: boolean }): Promise<{ savedAt: string; bytes: number; filePath?: string | null; warning?: string }>;
+      saveAs(key: string, bytes: Uint8Array): Promise<{ filePath: string; savedAt: string } | null>;
+      saveTarget(key: string): Promise<string | null>;
+      openSaveFolder(key: string): Promise<string>;
+      historyList(key: string): Promise<Array<{ id: string; savedAt: string; bytes: number; reason: string }>>;
+      historyLoad(key: string, id: string): Promise<Uint8Array | null>;
+      restorePoint(key: string): Promise<Uint8Array | null>;
+      restoreApply(key: string, bytes: Uint8Array): Promise<{ savedAt: string; bytes: number }>;
+      importBackup(key: string): Promise<Uint8Array | null>;
+      importBackupApply(key: string, bytes: Uint8Array): Promise<{ savedAt: string; bytes: number }>;
+      importCommit(key: string, bytes: Uint8Array, meta?: { name?: string; projectId?: string }): Promise<{ savedAt: string; bytes: number; filePath?: string | null }>;
+      setActive(key: string): Promise<string>;
+    };
+    exportProject(bytes: Uint8Array): Promise<string | null>;
+    exportReviewPack(bytes: Uint8Array): Promise<string | null>;
+    exportDocument(value: { suggestedName: string; text: string }): Promise<string | null>;
+    importAiChanges(): Promise<{ name: string; text: string } | null>;
+    importProject(): Promise<{ name: string; bytes: Uint8Array } | null>;
+    chooseAssets(): Promise<{ cancelled: boolean; items: Array<{ name: string; mime?: string; bytes?: Uint8Array; error?: string }> }>;
+    onBeforeClose(callback: (requestId: number) => void): () => void;
+    closeResult(result: { saved: boolean; error?: string }): Promise<void>;
+  };
+}
+
+interface LibraryEntry {
+  key: string;
+  projectId: string;
+  name: string;
+  createdAt: string;
+  updatedAt: string;
+}

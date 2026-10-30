@@ -1,2 +1,36 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y•áÁ½ÉĞÑåÁ”5•¹Õ½¹Ñ•áĞ€ôì(€­¥¹è€Ñ•áĞœğ€Á…É…É…Á œğ€É½ÕÀœğ€¡…ÁÑ•Èœğ€…ÍÍ•Ğœğ€…ÍÍ•ÑÌœğ€±…å•Èœğ€ÍÑ…”œì(€ÁÉ½©•Ñ%èÍÑÉ¥¹œì¡…ÁÑ•É%èÍÑÉ¥¹œìÁ…É…É…Á¡%üèÍÑÉ¥¹œìÉ½ÕÁ%üèÍÑÉ¥¹œì(€…ÍÍ•Ñ%üèÍÑÉ¥¹œì±…å•É%üèÍÑÉ¥¹œìÕ•%üèÍÑÉ¥¹œì(€Í•±•Ñ¥½¸üèì…¹¡½Èè¹Õµ‰•Èì¡•…è¹Õµ‰•Èôì‘½ŒèÕ¹­¹½İ¸ì™½ÕÌè!Q51±•µ•¹Ğğ¹Õ±°ì)ôì)•áÁ½ÉĞÑåÁ”5•¹Õ½µµ…¹€ôì(€¥èÍÑÉ¥¹œì±…‰•°èÍÑÉ¥¹œì¥½¸üèÍÑÉ¥¹œìÍ¡½ÉÑÕĞüèÍÑÉ¥¹œìÉ•…Í½¸üèÍÑÉ¥¹œì(€‘…¹•Èüè‰½½±•…¸ìÍ•Ñ¥½¸üè¹Õµ‰•Èì¡¥±‘É•¸üè5•¹Õ½µµ…¹‘mtìÉÕ¸üè€ ¤€ôøÙ½¥ğAÉ½µ¥Í”ñÙ½¥øì)ôì)•áÁ½ÉĞ™Õ¹Ñ¥½¸½µµ…¹‘½É-•ä¡½µµ…¹‘Ìè5•¹Õ½µµ…¹‘mt°•Ù•¹ĞèA¥¬ñ-•å‰½…É‘Ù•¹Ğ°€­•äœğ€ÑÉ±-•äœğ€µ•Ñ…-•äœğ€…±Ñ-•äœğ€Í¡¥™Ñ-•äœğ€¥Í½µÁ½Í¥¹œœø°½¹Ñ•áĞè5•¹Õ½¹Ñ•áĞ°½Á•¹•è‰½½±•…¸¤ì(€¥˜€¡•Ù•¹Ğ¹¥Í½µÁ½Í¥¹œñğ•Ù•¹Ğ¹…±Ñ-•ä¤É•ÑÕÉ¸¹Õ±°ì(€½¹ÍĞ­•ä€ô•Ù•¹Ğ¹­•ä¹Ñ½1½İ•É…Í” ¤°½¹ÑÉ½°€ô•Ù•¹Ğ¹ÑÉ±-•äñğ•Ù•¹Ğ¹µ•Ñ…-•äì(€½¹ÍĞ¥€ô½¹ÑÉ½°€ü­•ä€ôôô€èœ€ü•Ù•¹Ğ¹Í¡¥™Ñ-•ä€ü€É•‘¼œ€è€Õ¹‘¼œ€è­•ä€ôôô€äœ€ü€É•‘¼œ€è­•ä€ôôô€Œœ€ü€½Áäœ€è­•ä€ôôô€àœ€ü€ÕĞœ€è­•ä€ôôô€Øœ€ü€Á…ÍÑ”œ€è¹Õ±°(€€€€è½Á•¹•€˜˜€…•Ù•¹Ğ¹Í¡¥™Ñ-•ä€˜˜­•ä€ôôô€œ€˜˜½¹Ñ•áĞ¹­¥¹€ôôô€Á…É…É…Á œ€ü€‘•±•Ñ”œ€è¹Õ±°ì(€É•ÑÕÉ¸½µµ…¹‘Ì¹™¥¹ ¡½µµ…¹¤€ôø½µµ…¹¹¥€ôôô¥¤€üü¹Õ±°ì)ô)•áÁ½ÉĞ™Õ¹Ñ¥½¸™¥Ñ5•¹Ô¡àè¹Õµ‰•È°äè¹Õµ‰•È°İ¥‘Ñ è¹Õµ‰•È°¡•¥¡Ğè¹Õµ‰•È°Ù¥•İÁ½ÉÑ]¥‘Ñ è¹Õµ‰•È°Ù¥•İÁ½ÉÑ!•¥¡Ğè¹Õµ‰•È¤ì(€É•ÑÕÉ¸ì±•™Ğè5…Ñ ¹µ…à à°5…Ñ ¹µ¥¸¡à°Ù¥•İÁ½ÉÑ]¥‘Ñ €´İ¥‘Ñ €´€à¤¤°Ñ½Àè5…Ñ ¹µ…à à°5…Ñ ¹µ¥¸¡ä°Ù¥•İÁ½ÉÑ!•¥¡Ğ€´¡•¥¡Ğ€´€à¤¤ôì)ô(¼¨¨ƒ–>Ï¦R»šb¿–B›–êS¢º§îgšÖ?¢#–f£–:RšZ–¶_¢>s–6W(€€€ƒš¶šZò[¢úG–f£–ºç–f£šr³¢ê¯–ÂÇšb¼½¹Ñ•¹Ñ•‘¥Ñ…‰±”ô‰ÑÉÕ”‹¾ò3¢.—–>«š2$½¹Ñ•¹Ñ•‘¥Ñ…‰±”ƒ–"“šZ·¾ò0(€€€ƒ–2ë’îïš?’ö7ö»–>Ï¦R»¦÷’òk¢Š¯š2‡š:'¢>s–6WšÂã’â7–òç–ë¾òo–nƒš¶“ò[¢úG–f£–¦£’â–ú/’ê“îg–Ş—’ös–>Ã¢>s–6W¾ò0(€€€ƒ–>«šr'ò[¢úG–f£’æ/–’[j¢úO–—š:Ÿ’îÛš&7’şwVg–:RšZ–¶_¢¾·’æ'€¨¼)•áÁ½ÉĞ™Õ¹Ñ¥½¸‘•™•ÉQ½9…Ñ¥Ù•5•¹Ô¡Ñ…É•ĞèÙ•¹ÑQ…É•Ğğ¹Õ±°°•‘¥Ñ½É½´è9½‘”ğ¹Õ±°¤è‰½½±•…¸ì(€¥˜€ …Ñ…É•ĞñğÑåÁ•½˜€¡Ñ…É•Ğ…Ì±•µ•¹Ğ¤¹±½Í•ÍĞ€„ôô€™Õ¹Ñ¥½¸œ¤É•ÑÕÉ¸™…±Í”ì(€¥˜€¡•‘¥Ñ½É½´€˜˜•‘¥Ñ½É½´¹½¹Ñ…¥¹Ì¡Ñ…É•Ğ…Ì9½‘”¤¤É•ÑÕÉ¸™…±Í”ì(€É•ÑÕÉ¸€„„¡Ñ…É•Ğ…Ì±•µ•¹Ğ¤¹±½Í•ÍĞ ¥¹ÁÕĞ±Ñ•áÑ…É•„±Í•±•Ğ±m½¹Ñ•¹Ñ•‘¥Ñ…‰±”ô‰ÑÉÕ”‰tœ¤ì)ô)•áÁ½ÉĞ…Íå¹Œ™Õ¹Ñ¥½¸•á•ÕÑ•5•¹Õ½µµ…¹¡½µµ…¹è5•¹Õ½µµ…¹°Ù…±¥è€ ¤€ôø‰½½±•…¸°É•Á½ÉĞè€¡µ•ÍÍ…”èÍÑÉ¥¹œ¤€ôøÙ½¥¤ì(€¥˜€ …Ù…±¥ ¤¤ìÉ•Á½ÉĞ Ÿn»š‚–ŞË–>c–2[¾ò3¢¾ß¦7šZÃ–>Ï¦R»¦'š.§œ¤ìÉ•ÑÕÉ¸™…±Í”ìô(€¥˜€¡½µµ…¹¹É•…Í½¸¤ìÉ•Á½ÉĞ¡½µµ…¹¹É•…Í½¸¤ìÉ•ÑÕÉ¸™…±Í”ìô(€¥˜€ …½µµ…¹¹ÉÕ¸¤É•ÑÕÉ¸™…±Í”ì(€ÑÉäì…İ…¥Ğ½µµ…¹¹ÉÕ¸ ¤ìÉ•ÑÕÉ¸ÑÉÕ”ìô(€…Ñ €¡•ÉÉ½È¤ìÉ•Á½ÉĞ¡•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü•ÉÉ½È¹µ•ÍÍ…”€è€ŸšN7’ösšr«–º3š"Cœ¤ìÉ•ÑÕÉ¸™…±Í”ìô)ô
+export type MenuContext = {
+  kind: 'text' | 'paragraph' | 'group' | 'chapter' | 'asset' | 'assets' | 'layer' | 'stage';
+  projectId: string; chapterId: string; paragraphId?: string; groupId?: string;
+  assetId?: string; layerId?: string; cueId?: string;
+  selection?: { anchor: number; head: number }; doc: unknown; focus: HTMLElement | null;
+};
+export type MenuCommand = {
+  id: string; label: string; icon?: string; shortcut?: string; reason?: string;
+  danger?: boolean; section?: number; children?: MenuCommand[]; run?: () => void | Promise<void>;
+};
+export function commandForKey(commands: MenuCommand[], event: Pick<KeyboardEvent, 'key' | 'ctrlKey' | 'metaKey' | 'altKey' | 'shiftKey' | 'isComposing'>, context: MenuContext, opened: boolean) {
+  if (event.isComposing || event.altKey) return null;
+  const key = event.key.toLowerCase(), control = event.ctrlKey || event.metaKey;
+  const id = control ? key === 'z' ? event.shiftKey ? 'redo' : 'undo' : key === 'y' ? 'redo' : key === 'c' ? 'copy' : key === 'x' ? 'cut' : key === 'v' ? 'paste' : null
+    : opened && !event.shiftKey && key === 'd' && context.kind === 'paragraph' ? 'delete' : null;
+  return commands.find((command) => command.id === id) ?? null;
+}
+export function fitMenu(x: number, y: number, width: number, height: number, viewportWidth: number, viewportHeight: number) {
+  return { left: Math.max(8, Math.min(x, viewportWidth - width - 8)), top: Math.max(8, Math.min(y, viewportHeight - height - 8)) };
+}
+/** å³é”®æ˜¯å¦åº”è®©ç»™æµè§ˆå™¨åŸç”Ÿæ–‡å­—èœå•ã€‚
+    æ­£æ–‡ç¼–è¾‘å™¨å®¹å™¨æœ¬èº«å°±æ˜¯ contenteditable="true"ï¼Œè‹¥åªæŒ‰ contenteditable åˆ¤æ–­ï¼Œ
+    C åŒºä»»æ„ä½ç½®å³é”®éƒ½ä¼šè¢«æŒ¡æ‰ã€èœå•æ°¸ä¸å¼¹å‡ºï¼›å› æ­¤ç¼–è¾‘å™¨å†…éƒ¨ä¸€å¾‹äº¤ç»™å·¥ä½œå°èœå•ï¼Œ
+    åªæœ‰ç¼–è¾‘å™¨ä¹‹å¤–çš„è¾“å…¥æ§ä»¶æ‰ä¿ç•™åŸç”Ÿæ–‡å­—è¯­ä¹‰ã€‚ */
+export function deferToNativeMenu(target: EventTarget | null, editorDom: Node | null): boolean {
+  if (!target || typeof (target as Element).closest !== 'function') return false;
+  if (editorDom && editorDom.contains(target as Node)) return false;
+  return !!(target as Element).closest('input,textarea,select,[contenteditable="true"]');
+}
+export async function executeMenuCommand(command: MenuCommand, valid: () => boolean, report: (message: string) => void) {
+  if (!valid()) { report('ç›®æ ‡å·²å˜åŒ–ï¼Œè¯·é‡æ–°å³é”®é€‰æ‹©ã€‚'); return false; }
+  if (command.reason) { report(command.reason); return false; }
+  if (!command.run) return false;
+  try { await command.run(); return true; }
+  catch (error) { report(error instanceof Error ? error.message : 'æ“ä½œæœªå®Œæˆã€‚'); return false; }
+}

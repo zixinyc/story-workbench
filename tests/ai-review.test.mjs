@@ -1,5 +1,129 @@
-¨¥yÛh~)İ­æ¥–‡¶*'¡ğ”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉĞÑ•ÍĞ™É½´€¹½‘”éÑ•ÍĞœì)¥µÁ½ÉĞ…ÍÍ•ÉĞ™É½´€¹½‘”é…ÍÍ•ÉĞ½ÍÑÉ¥Ğœì)¥µÁ½ÉĞ)Mi¥À™É½´€©Íé¥Àœì)¥µÁ½ÉĞì…Ñ¥Ù•¡…ÁÑ•È°É•…Ñ•A…É…É…Á¡É½ÕÀ°É•µ½Ù•5ÕÍ¥I…¹”°Í•Ñ5ÕÍ¥I…¹”ô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì)¥µÁ½ÉĞìÉ•…Ñ••µ½AÉ½©•Ğ°Ù…±¥‘…Ñ•AÉ½©•Ğô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ğ¹µ©Ìœì)¥µÁ½ÉĞì‘•™…Õ±ÑM•ÑÑ¥¹Ì°Á±…¥¹Q•áĞô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½‘½Õµ•¹Ğ¹µ©Ìœì)¥µÁ½ÉĞì…ÁÁ±åI•Ù¥•İ¡…¹•Ì°É•…Ñ•I•Ù¥•İÉ¡¥Ù”°É•…Ñ•I•Ù¥•İ½Õµ•¹ÑÌ°É•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ°É•Ù¥•İ!…Í °Ù…±¥‘…Ñ•I•Ù¥•İ¡…¹•Ìô™É½´€œ¸¸½ÍÉŒ½…¤µÉ•Ù¥•Ü½É•Ù¥•ÜµÁ…­…”¹µ©Ìœì()™Õ¹Ñ¥½¸™¥áÑÕÉ” ¤ì(€±•ĞÁÉ½©•Ğ€ôÉ•…Ñ••µ½AÉ½©•Ğ ¤ì(€½¹ÍĞ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì(€½¹ÍĞ¥‘Ì€ô¡…ÁÑ•È¹‘½Õµ•¹Ğ¹‰±½­Ì¹µ…À ¡‰±½¬¤€ôø‰±½¬¹¥¤ì(€±•Ğ¹•áÑ¡…ÁÑ•È€ôÉ•…Ñ•A…É…É…Á¡É½ÕÀ¡¡…ÁÑ•È°¥‘Ì¹Í±¥” Ä°€Ì¤°€Ÿ–ú«:¼œ¤ì(€¹•áÑ¡…ÁÑ•È€ôÍ•Ñ5ÕÍ¥I…¹”¡¹•áÑ¡…ÁÑ•È°€…Õ‘¥¼µ±½½Àœ°¥‘Ì¹Í±¥” Ä°€Ì¤¤ì(€ÁÉ½©•Ğ€ôì(€€€€¸¸¹ÁÉ½©•Ğ°(€€€…ÍÍ•ÑÌèmì¥è€…Õ‘¥¼µ±½½Àœ°¹…µ”è€Ÿ–ú«:¿–êW–f¨¹µÀÌœ°­¥¹è€…Õ‘¥¼œ°µ¥µ”è€…Õ‘¥¼½µÁ•œœ°Í¥é”è€ÄÈàõt°(€€€¡…ÁÑ•ÉÌèÁÉ½©•Ğ¹¡…ÁÑ•ÉÌ¹µ…À ¡¥Ñ•´¤€ôø¥Ñ•´¹¥€ôôô¡…ÁÑ•È¹¥€ü¹•áÑ¡…ÁÑ•È€è¥Ñ•´¤°(€ôì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡Ù…±¥‘…Ñ•AÉ½©•Ğ¡ÁÉ½©•Ğ¤°ÑÉÕ”¤ì(€½¹ÍĞÕÉÉ•¹Ğ€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ğ¤ì(€½¹ÍĞ•áÁ±¥¥ÑÕ•Ì€ôÕÉÉ•¹Ğ¹‘½Õµ•¹Ğ¹‰±½­Ì¹™±…Ñ5…À ¡Á…É…É…Á ¤€ôøÁ…É…É…Á ¹¡¥±‘É•¸¹™¥±Ñ•È ¡¹½‘”¤€ôø¹½‘”¹ÑåÁ”€ôôô€Õ”œ¤¹µ…À ¡Õ”¤€ôø€¡ìÕ”°Á…É…É…Á ô¤¤¤ì(€É•ÑÕÉ¸ìÁÉ½©•Ğ°¡…ÁÑ•ÈèÕÉÉ•¹Ğ°É½ÕÀèÕÉÉ•¹Ğ¹É½ÕÁÍlÁt°Ñ•áÑÕ”è•áÁ±¥¥ÑÕ•ÍlÁt°Í•ÑÑ¥¹ÍÕ”è•áÁ±¥¥ÑÕ•Ì¹…Ğ ´Ä¤ôì)ô()™Õ¹Ñ¥½¸•¹Ù•±½Á”¡ÁÉ½©•Ğ°Í½Á”°‰…Í•!…Í °¡…¹•Ì¤ì(€É•ÑÕÉ¸ì™½Éµ…Ğè€ÍÑ½Éäµİ½É­‰•¹ µ…¤µ¡…¹•Ìœ°Ù•ÉÍ¥½¸è€Ä°‰…Í•AÉ½©•Ñ%èÁÉ½©•Ğ¹¥°‰…Í•!…Í °Í½Á”°¡…¹•Ìôì)ô()Ñ•ÍĞ Ÿ–º‡¦b–2–¾ó–ë–&ŸššòS–è¿¦7’æCšâ–6W–ªK’öOš‚¢ºÃ–J3–2ç¦7–¾ó–”Í¡•µ„œ°…Íå¹Œ€ ¤€ôøì(€½¹ÍĞìÁÉ½©•Ğô€ô™¥áÑÕÉ” ¤ì(€½¹ÍĞÍ½Á”€ôìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%èÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ôì(€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÁÉ½©•Ğ°Í½Á”¤ì(€½¹ÍĞ‰…Í•!…Í €ô…İ…¥ĞÉ•Ù¥•İ!…Í ¡Í¹…ÁÍ¡½Ğ¤ì(€½¹ÍĞ™¥±•Ì€ôÉ•…Ñ•I•Ù¥•İ½Õµ•¹ÑÌ¡Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °€Ÿ–*ƒ–òë–ú«:¿š|œ°¹•ÜM•Ğ ¤¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡=‰©•Ğ¹­•åÌ¡™¥±•Ì¤°lŸ’ös–N¢¾Óšb8¹µœ°€Ÿ¦b¢¾ï¢¾Óšb8¹µœ°€Ÿ–&Ÿš¹µœ°€ŸšòS–ë¦7’æCšâ–6T¹©Í½¸œ°€ÁÉ½©•Ğ¹Í¹…ÁÍ¡½Ğ¹©Í½¸œ°€ÍÕÁÁ½ÉÑ•µ¡…¹•Ì¹Í¡•µ„¹©Í½¸œ°€ŸšRç¢şoš>C’ë¢¾4¹µt¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥±•ÍlŸ–&Ÿš¹µt°€½É½ÕÁ%¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥±•ÍlŸšòS–ë¦7’æCšâ–6T¹©Í½¸t°€½µ½Ñ¥½¹M•ÑÑ¥¹Íñµ½Ñ¥½¸¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥±•ÍlŸšòS–ë¦7’æCšâ–6T¹©Í½¸t°€½…ÑÑ…¡•‘Q½A…­…”ˆè™…±Í”¼¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡™¥±•ÍlŸšRç¢şoš>C’ë¢¾4¹µt°€½ÍÑ½Éäµİ½É­‰•¹ µ…¤µ¡…¹•Ì¼¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡)M=8¹Á…ÉÍ”¡™¥±•ÍlÁÉ½©•Ğ¹Í¹…ÁÍ¡½Ğ¹©Í½¸t¤¹‰…Í•!…Í °‰…Í•!…Í ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡)M=8¹Á…ÉÍ”¡™¥±•ÍlÍÕÁÁ½ÉÑ•µ¡…¹•Ì¹Í¡•µ„¹©Í½¸t¤¹ÁÉ½Á•ÉÑ¥•Ì¹‰…Í•!…Í ¹½¹ÍĞ°‰…Í•!…Í ¤ì(€½¹ÍĞİ¥Ñ¡5•‘¥„€ôÉ•…Ñ•I•Ù¥•İ½Õµ•¹ÑÌ¡Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °€Ÿ–*ƒ–òë–ú«:¿š|œ°¹•ÜM•Ğ¡l…Õ‘¥¼µ±½½Àt¤¤ì(€…ÍÍ•ÉĞ¹µ…Ñ ¡İ¥Ñ¡5•‘¥…lŸšòS–ë¦7’æCšâ–6T¹©Í½¸t°€¿–ªK’öMp½…Õ‘¥¼µ±½½Áp¹µÀÌ¼¤ì)ô¤ì()Ñ•ÍĞ Ÿ–º‡¦bi%@ƒ–>¿–ú¢şS¢¾ï–>[¾ò3–ªK’öO¦f–â›*Ûš’â;–º{¦f–öKš†¢Ş¿–ú’â¢Ğœ°…Íå¹Œ€ ¤€ôøì(€½¹ÍĞìÁÉ½©•Ğô€ô™¥áÑÕÉ” ¤ì(€½¹ÍĞÍ½Á”€ôìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%èÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ôì(€½¹ÍĞÍ¹…ÁÍ¡½Ğ€ôÉ•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÁÉ½©•Ğ°Í½Á”¤ì(€½¹ÍĞ‰…Í•!…Í €ô…İ…¥ĞÉ•Ù¥•İ!…Í ¡Í¹…ÁÍ¡½Ğ¤ì(€½¹ÍĞ…ÍÍ•ÑÌ€ômì¥è€…Õ‘¥¼µ±½½Àœ°¹…µ”è€Ÿ–ú«:¿–êW–f¨¹µÀÌœ°Í¥é”è€ÄÈà°‰±½ˆè¹•Ü	±½ˆ¡m¹•ÜU¥¹ĞáÉÉ…ä¡lÄ°€È°€Ì°€Ñt¥t¤õtì(€½¹ÍĞì‰åÑ•Ìô€ô…İ…¥ĞÉ•…Ñ•I•Ù¥•İÉ¡¥Ù”¡)Mi¥À°Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °€Ÿ–â›’â+¦~Ï¦ŠDœ°…ÍÍ•ÑÌ°ÑÉÕ”¤ì(€½¹ÍĞé¥À€ô…İ…¥Ğ)Mi¥À¹±½…‘Íå¹Œ¡‰åÑ•Ì¤ì(€™½È€¡½¹ÍĞ™¥±•9…µ”½˜lŸ’ös–N¢¾Óšb8¹µœ°€Ÿ¦b¢¾ï¢¾Óšb8¹µœ°€Ÿ–&Ÿš¹µœ°€ŸšòS–ë¦7’æCšâ–6T¹©Í½¸œ°€ÁÉ½©•Ğ¹Í¹…ÁÍ¡½Ğ¹©Í½¸œ°€ÍÕÁÁ½ÉÑ•µ¡…¹•Ì¹Í¡•µ„¹©Í½¸œ°€ŸšRç¢şoš>C’ë¢¾4¹µœ°€Ÿ–ªK’öL½…Õ‘¥¼µ±½½À¹µÀÌt¤…ÍÍ•ÉĞ¹½¬¡é¥À¹™¥±”¡™¥±•9…µ”¤¤ì(€½¹ÍĞµ…¹¥™•ÍĞ€ô)M=8¹Á…ÉÍ”¡…İ…¥Ğé¥À¹™¥±” ŸšòS–ë¦7’æCšâ–6T¹©Í½¸œ¤¹…Íå¹Œ ÍÑÉ¥¹œœ¤¤ì(€½¹ÍĞ…Õ‘¥¼€ôµ…¹¥™•ÍĞ¹…ÍÍ•ÑÌ¹™¥¹ ¡…ÍÍ•Ğ¤€ôø…ÍÍ•Ğ¹¥€ôôô€…Õ‘¥¼µ±½½Àœ¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡…Õ‘¥¼¹…ÑÑ…¡•‘Q½A…­…”°ÑÉÕ”¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡…Õ‘¥¼¹Á…­…•A…Ñ °€Ÿ–ªK’öL½…Õ‘¥¼µ±½½À¹µÀÌœ¤ì(€…ÍÍ•ÉĞ¹‘••ÁÅÕ…°¡l¸¸¹¹•ÜU¥¹ĞáÉÉ…ä¡…İ…¥Ğé¥À¹™¥±”¡…Õ‘¥¼¹Á…­…•A…Ñ ¤¹…Íå¹Œ Õ¥¹Ğá…ÉÉ…äœ¤¥t°lÄ°€È°€Ì°€Ñt¤ì(€½¹ÍĞµ•Ñ…‘…Ñ…=¹±ä€ô…İ…¥ĞÉ•…Ñ•I•Ù¥•İÉ¡¥Ù”¡)Mi¥À°Í¹…ÁÍ¡½Ğ°‰…Í•!…Í °€œœ°…ÍÍ•ÑÌ°™…±Í”¤ì(€½¹ÍĞµ•Ñ…‘…Ñ…i¥À€ô…İ…¥Ğ)Mi¥À¹±½…‘Íå¹Œ¡µ•Ñ…‘…Ñ…=¹±ä¹‰åÑ•Ì¤ì(€½¹ÍĞµ•Ñ…‘…Ñ„€ô)M=8¹Á…ÉÍ”¡…İ…¥Ğµ•Ñ…‘…Ñ…i¥À¹™¥±” ŸšòS–ë¦7’æCšâ–6T¹©Í½¸œ¤¹…Íå¹Œ ÍÑÉ¥¹œœ¤¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡µ•Ñ…‘…Ñ„¹…ÍÍ•ÑÌ¹™¥¹ ¡…ÍÍ•Ğ¤€ôø…ÍÍ•Ğ¹¥€ôôô€…Õ‘¥¼µ±½½Àœ¤¹…ÑÑ…¡•‘Q½A…­…”°™…±Í”¤ì(€…ÍÍ•ÉĞ¹•ÅÕ…°¡µ•Ñ…‘…Ñ…i¥À¹™¥±” Ÿ–ªK’öL½…Õ‘¥¼µ±½½À¹µÀÌœ¤°¹Õ±°¤ì)ô¤ì()Ñ•ÍĞ Ÿ–îë¢º»š‚‡¦ª3–æÛ–:–¶C–êSR£š¶šZšòS–ë’â;¢ş{î·šº×¢B÷î¦7’æC¾ò3’şwVgš&šr'¢Ï–ºh%œ°…Íå¹Œ€ ¤€ôøì(€½¹ÍĞìÁÉ½©•Ğ°Ñ•áÑÕ”°Í•ÑÑ¥¹ÍÕ”°É½ÕÀô€ô™¥áÑÕÉ” ¤ì(€½¹ÍĞÍ½Á”€ôìÑåÁ”è€¡…ÁÑ•Èœ°¡…ÁÑ•É%èÁÉ½©•Ğ¹…Ñ¥Ù•¡…ÁÑ•É%ôì(€½¹ÍĞ‰…Í•!…Í €ô…İ…¥ĞÉ•Ù¥•İ!…Í ¡É•…Ñ•I•Ù¥•İM¹…ÁÍ¡½Ğ¡ÁÉ½©•Ğ°Í½Á”¤¤ì(€½¹ÍĞ‰•™½É•M•ÑÑ¥¹Ì€ô‘•™…Õ±ÑM•ÑÑ¥¹Ì¡Í•ÑÑ¥¹ÍÕ”¹Õ”¹Í•ÑÑ¥¹Ì¤ì(€½¹ÍĞ…™Ñ•ÉM•ÑÑ¥¹Ì€ôì€¸¸¹‰•™½É•M•ÑÑ¥¹Ì°µ½‘”èV¢•çm¡ø§v·š–ZjØ¨‡ÂRÇ«±’ Ğ)¤6­hºjSë¢
-ÚšÃò¶'?+a¢}õŞœ­†‰ŞÅâvg&VRrÂÖ÷F–öã¢w6†¶RrÂƒ¢ƒ#Â“¢C#ÂGW&F–öä×3¢SCÓ°¢6öç7B&Vf÷&T×W6–2Ò²76WD–C¢vVF–òÖÆö÷rÂföÇVÖS¢ÂÆö÷¢fÇ6RÓ°¢6öç7B6†ævW2Ò°¢²÷¢w&WÆ6T7VUFW‡BrÂ6†FW$–C¢66÷Ræ6†FW$–BÂ7VT–C¢FW‡D7VRæ7VRæ–BÂ&Vf÷&S¢Æ–åFW‡B‡FW‡D7VRæ7VRæ6†–ÆG&Vâ’ÂgFW#¢~iky¨Ni‹îZÙ~Xh^Zë’rÂ&V6öã¢~Šê[ê®xêşKÈşzÉNi»Nkˆ^jY®8"rÒÀ¢²÷¢wWFFT7VU6WGF–æw2rÂ6†FW$–C¢66÷Ræ6†FW$–BÂ7VT–C¢6WGF–æw47VRæ7VRæ–BÂ&Vf÷&S¢&Vf÷&U6WGF–æw2ÂgFW#¢gFW%6WGF–æw2Â&V6öã¢~KÛşyJˆz®yKih~ZÙ~[›nh¸™[ş™ˆ^Šû¾i{n™{N8"rÒÀ¢²÷¢wWFFTw&÷W×W6–2rÂ6†FW$–C¢66÷Ræ6†FW$–BÂw&÷W–G3¢¶w&÷Wæ–EÒÂ&Vf÷&S¢&Vf÷&T×W6–2ÂgFW#¢²ââæ&Vf÷&T×W6–2ÂföÇVÖS¢ãc"ÂÆö÷¢G'VRÒÂ&V6öã¢~™˜ŞKØî™û>˜xş[›nKùŞhÈ[ê®xêş8"rÒÀ¢Ó°¢6öç7B&rÒ¥4ôâç7G&–æv–g’†VçfVÆ÷R‡&ö¦V7BÂ66÷RÂ&6T†6‚Â6†ævW2’“°¢6öç7B&÷÷6ÂÒv—BfÆ–FFU&Wf–Wt6†ævW2‡&ö¦V7BÂ&r“°¢6öç7BWFFVBÒÇ•&Wf–Wt6†ævW2‡&ö¦V7BÂ&÷÷6Â“°¢76W'BæWVÂ‡fÆ–FFU&ö¦V7B‡WFFVB’ÂG'VR“°¢6öç7BWFFVD6†FW"Ò7F—fT6†FW"‡WFFVB“°¢76W'BæWVÂ‡WFFVD6†FW"æFö7VÖVçBæ&Æö6·2æf–æB‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒFW‡D7VRç&w&‚æ–B’æ6†–ÆG&Vâæf–æB‚†æöFR’ÓâæöFRæ–BÓÓÒFW‡D7VRæ7VRæ–B’æ6†–ÆG&Vå³ÒçFW‡BÂ~iky¨Ni‹îZÙ~Xh^Zë’r“°¢6öç7BWFFVE6WGF–æw47VRÒWFFVD6†FW"æFö7VÖVçBæ&Æö6·2æfÆDÖ‚†&Æö6²’Óâ&Æö6²æ6†–ÆG&Vâ’æf–æB‚†æöFR’ÓâæöFRçG—RÓÓÒv7VRrbbæöFRæ–BÓÓÒ6WGF–æw47VRæ7VRæ–B“°¢76W'BæWVÂ‡WFFVE6WGF–æw47VRç6WGF–æw2ç‚Âƒ#“°¢76W'BæWVÂ‡WFFVE6WGF–æw47VRç6WGF–æw2æÖ÷F–öâÂw6†¶Rr“°¢76W'BæWVÂ‡WFFVE6WGF–æw47VRæ–BÂ6WGF–æw47VRæ7VRæ–B“°¢76W'BæFVWWVÂ‡WFFVD6†FW"æ×W6–5&ævW5³Òæw&÷W–G2Â¶w&÷Wæ–EÒ“°¢76W'BæWVÂ‡WFFVD6†FW"æ×W6–5&ævW5³ÒçföÇVÖRÂãc"“°¢76W'BæWVÂ‡WFFVD6†FW"æ×W6–5&ævW5³ÒæÆö÷ÂG'VR“°§Ò“° §FW7B‚~‹ø~iÉşYû®{«ş8iÊ®yú^yºîj~8[˜:ZÙ~ˆ›.iKXi8YØşXø.i[Y(Î™û>K™Xk.z¨˜;Şi[NK»Şh¹.{¹ÒrÂ7–æ2‚’Óâ°¢6öç7B²&ö¦V7BÂFW‡D7VRÂ6WGF–æw47VRÂw&÷WÒÒf—‡GW&R‚“°¢6öç7B66÷RÒ²G—S¢v6†FW"rÂ6†FW$–C¢&ö¦V7Bæ7F—fT6†FW$–BÓ°¢6öç7B&6T†6‚Òv—B&Wf–Wt†6‚†7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ66÷R’“°¢6öç7BvööEFW‡BÒ²÷¢w&WÆ6T7VUFW‡BrÂ6†FW$–C¢66÷Ræ6†FW$–BÂ7VT–C¢FW‡D7VRæ7VRæ–BÂ&Vf÷&S¢Æ–åFW‡B‡FW‡D7VRæ7VRæ6†–ÆG&Vâ’ÂgFW#¢~iKXi’rÂ&V6öã¢~yJŠøŞi»NXxnzî8"rÓ°¢v—B76W'Bç&V¦V7G2‡fÆ–FFU&Wf–Wt6†ævW2‡&ö¦V7BÂ¥4ôâç7G&–æv–g’‡²ââæVçfVÆ÷R‡&ö¦V7BÂ66÷RÂ&6T†6‚Â¶vööEFW‡EÒ’Â&6T†6ƒ¢srç&WVBƒcB’Ò’’Âş[z^zˆ¾YÊZûÎX{®Yî[{.XùXÉbò“°¢v—B76W'Bç&V¦V7G2‡fÆ–FFU&Wf–Wt6†ævW2‡&ö¦V7BÂ¥4ôâç7G&–æv–g’†VçfVÆ÷R‡&ö¦V7BÂ66÷RÂ&6T†6‚Â·²ââævööEFW‡BÂ7VT–C¢vÖ—76–ærÖ7VRrÕÒ’’’Âö7VT–BKˆŞZÙYÊ‚ò“°¢6öç7B&E6WGF–æw2Ò²÷¢wWFFT7VU6WGF–æw2rÂ6†FW$–C¢66÷Ræ6†FW$–BÂ7VT–C¢6WGF–æw47VRæ7VRæ–BÂ&Vf÷&S¢FVfVÇE6WGF–æw2‡6WGF–æw47VRæ7VRç6WGF–æw2’ÂgFW#¢²ââæFVfVÇE6WGF–æw2‡6WGF–æw47VRæ7VRç6WGF–æw2’ÂföçE6—¦S¢““’ÒÂ&V6öã¢~kX¾Šù^‹h®yXÎ8"rÓ°¢v—B76W'Bç&V¦V7G2‡fÆ–FFU&Wf–Wt6†ævW2‡&ö¦V7BÂ¥4ôâç7G&–æv–g’†VçfVÆ÷R‡&ö¦V7BÂ66÷RÂ&6T†6‚Â¶vööEFW‡BÂ&E6WGF–æw5Ò’’’ÂşZÙ~Xû~[ø^š²ò“°¢6öç7B6öÆ÷&VBÒ7G'V7GW&VD6ÆöæR‡&ö¦V7B“°¢6öç7B6öÆ÷&VD7VRÒ7F—fT6†FW"†6öÆ÷&VB’æFö7VÖVçBæ&Æö6·2æfÆDÖ‚†&Æö6²’Óâ&Æö6²æ6†–ÆG&Vâ’æf–æB‚†æöFR’ÓâæöFRçG—RÓÓÒv7VRrbbæöFRæ–BÓÓÒFW‡D7VRæ7VRæ–B“°¢6öÆ÷&VD7VRæ6†–ÆG&VâÒ·²G—S¢wFW‡BrÂFW‡C¢~iÈš)Îˆ›"rÂ6öÆ÷#¢r6fcrÕÓ°¢6öç7B6öÆ÷&VD†6‚Òv—B&Wf–Wt†6‚†7&VFU&Wf–Wu6æ6†÷B†6öÆ÷&VBÂ66÷R’“°¢6öç7B6öÆ÷&VD6†ævRÒ²ââævööEFW‡BÂ&Vf÷&S¢~iÈš)Îˆ›"rÓ°¢v—B76W'Bç&V¦V7G2‡fÆ–FFU&Wf–Wt6†ævW2†6öÆ÷&VBÂ¥4ôâç7G&–æv–g’†VçfVÆ÷R†6öÆ÷&VBÂ66÷RÂ6öÆ÷&VD†6‚Â¶6öÆ÷&VD6†ævUÒ’’’ÂşY
-¾iÈ[˜:ZÙ~ˆ›"ò“°¢6öç7B÷fW&Æ–ærÒ7G'V7GW&VD6ÆöæR‡&ö¦V7B“°¢6öç7B6†FW%v—F†÷WD×W6–2Ò&VÖ÷fT×W6–5&ævR†7F—fT6†FW"†÷fW&Æ–ær’Â7F—fT6†FW"†÷fW&Æ–ær’æ×W6–5&ævW5³Òæ–B“°¢6öç7B÷fW&Æ–æt6†FW"Ò6WD×W6–5&ævR†6†FW%v—F†÷WD×W6–2ÂvVF–òÖÆö÷rÂ¶w&÷Wç&w&„–G5³ÕÒ“°¢÷fW&Æ–æræ6†FW'2Ò÷fW&Æ–æræ6†FW'2æÖ‚†—FVÒ’Óâ—FVÒæ–BÓÓÒ÷fW&Æ–æt6†FW"æ–Bò÷fW&Æ–æt6†FW"¢—FVÒ“°¢6öç7B÷fW&Æ–æt†6‚Òv—B&Wf–Wt†6‚†7&VFU&Wf–Wu6æ6†÷B†÷fW&Æ–ærÂ66÷R’“°¢6öç7B÷fW&Æ–æt×W6–2Ò²÷¢wWFFTw&÷W×W6–2rÂ6†FW$–C¢66÷Ræ6†FW$–BÂw&÷W–G3¢¶w&÷Wæ–EÒÂ&Vf÷&S¢çVÆÂÂgFW#¢çVÆÂÂ&V6öã¢~kˆ^ynXk.z¨ˆÈ>Y»N8"rÓ°¢v—B76W'Bç&V¦V7G2‡fÆ–FFU&Wf–Wt6†ævW2†÷fW&Æ–ærÂ¥4ôâç7G&–æv–g’†VçfVÆ÷R†÷fW&Æ–ærÂ66÷RÂ÷fW&Æ–æt†6‚Â¶÷fW&Æ–æt×W6–5Ò’’’Âş˜:Xˆn˜xŞXúò“°§Ò“° §FW7B‚~ZûÎXZ^Xú®hê^Xù~{+îzîZÙ~jë^ûÈÎKˆŞhš~ŠÎ™˜N[ŠnKº>zûÈÎK™şh¹.{¹ŞˆÈ>Y»NZIn{¸BrÂ7–æ2‚’Óâ°¢6öç7B²&ö¦V7BÂ6WGF–æw47VRÂw&÷WÒÒf—‡GW&R‚“°¢6öç7B66÷RÒ²G—S¢vw&÷W2rÂ6†FW$–C¢&ö¦V7Bæ7F—fT6†FW$–BÂw&÷W–G3¢¶w&÷Wæ–EÒÓ°¢6öç7B&6T†6‚Òv—B&Wf–Wt†6‚†7&VFU&Wf–Wu6æ6†÷B‡&ö¦V7BÂ66÷R’“°¢6öç7B7VRÒw&÷Wç&w&„–G2æÖ‚†–B’Óâ7F—fT6†FW"‡&ö¦V7B’æFö7VÖVçBæ&Æö6·2æf–æB‚†&Æö6²’Óâ&Æö6²æ–BÓÓÒ–B’’æfÆDÖ‚†&Æö6²’Óâ&Æö6²æ6†–ÆG&Vâ’æf–æB‚†æöFR’ÓâæöFRçG—RÓÓÒv7VRr“°¢76W'Bæö²†7VR“°¢6öç7BÆÆ÷vVBÒ²÷¢w&WÆ6T7VUFW‡BrÂ6†FW$–C¢66÷Ræ6†FW!ZŠW¶‡âÚŞjYhq«b¢z	K®ÆH\ƒ@¦Úµ¢èq©O®ˆ+jkÊØhœü­†‰÷×zr¶'{’YİYRYˆİYKšY™Y›Ü™NˆZ[•^
-İYK˜Ú[™[ŠKY\ˆ	ù«­z$/yîá9a¡y¥.y¥¡ÉË™X\ÛÛˆ	ù¥.z/æú(j:/ì8à ‰ÈNÂˆÛÛœİ^˜QšY[HÈ‹‹˜[İÙYØÜš\ˆ	ÙÛØ˜[\ËœÛ™Y]YIÈNÂˆ]ØZ]\ÜÙ\œ™Z™XİÊ˜[Y]T™]šY]ĞÚ[™Ù\Ê›Ú™Xİ”ÓÓ‹œİš[™ÚYJ[™[ÜJ›Ú™XİØÛÜK˜\ÙR\ÚÙ^˜QšY[JJJKùkeù«­yï.¹i,y¢%¹c!yd*ù.#y¥+ù£ KÊNÂˆ]ØZ]\ÜÙ\œ™Z™XİÊ˜[Y]T™]šY]ĞÚ[™Ù\Ê›Ú™Xİ”ÓÓ‹œİš[™ÚYJ[™[ÜJ›Ú™XİØÛÜK˜\ÙR\ÚŞÈ‹‹˜[İÙYİYRYˆÙ][™ÜĞİYK˜İYKšYWJJJKú-¡yaî¹k¨zf!z# ùfíÊNÂŸJNÂ
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import JSZip from 'jszip';
+import { activeChapter, createParagraphGroup, removeMusicRange, setMusicRange } from '../src/domain/model/chapters.mjs';
+import { createDemoProject, validateProject } from '../src/domain/model/project.mjs';
+import { defaultSettings, plainText } from '../src/domain/model/document.mjs';
+import { applyReviewChanges, createReviewArchive, createReviewDocuments, createReviewSnapshot, reviewHash, validateReviewChanges } from '../src/ai-review/review-package.mjs';
+
+function fixture() {
+  let project = createDemoProject();
+  const chapter = activeChapter(project);
+  const ids = chapter.document.blocks.map((block) => block.id);
+  let nextChapter = createParagraphGroup(chapter, ids.slice(1, 3), 'å¾ªç¯');
+  nextChapter = setMusicRange(nextChapter, 'audio-loop', ids.slice(1, 3));
+  project = {
+    ...project,
+    assets: [{ id: 'audio-loop', name: 'å¾ªç¯åº•å™ª.mp3', kind: 'audio', mime: 'audio/mpeg', size: 128 }],
+    chapters: project.chapters.map((item) => item.id === chapter.id ? nextChapter : item),
+  };
+  assert.equal(validateProject(project), true);
+  const current = activeChapter(project);
+  const explicitCues = current.document.blocks.flatMap((paragraph) => paragraph.children.filter((node) => node.type === 'cue').map((cue) => ({ cue, paragraph })));
+  return { project, chapter: current, group: current.groups[0], textCue: explicitCues[0], settingsCue: explicitCues.at(-1) };
+}
+
+function envelope(project, scope, baseHash, changes) {
+  return { format: 'story-workbench-ai-changes', version: 1, baseProjectId: project.id, baseHash, scope, changes };
+}
+
+test('å®¡é˜…åŒ…å¯¼å‡ºå‰§æƒ…ã€æ¼”å‡º/é…ä¹æ¸…å•ã€åª’ä½“æ ‡è®°å’ŒåŒ¹é…å¯¼å…¥ schema', async () => {
+  const { project } = fixture();
+  const scope = { type: 'chapter', chapterId: project.activeChapterId };
+  const snapshot = createReviewSnapshot(project, scope);
+  const baseHash = await reviewHash(snapshot);
+  const files = createReviewDocuments(snapshot, baseHash, 'åŠ å¼ºå¾ªç¯æ„Ÿ', new Set());
+  assert.deepEqual(Object.keys(files), ['ä½œå“è¯´æ˜.md', 'é˜…è¯»è¯´æ˜.md', 'å‰§æƒ….md', 'æ¼”å‡ºé…ä¹æ¸…å•.json', 'project.snapshot.json', 'supported-changes.schema.json', 'æ”¹è¿›æç¤ºè¯.md']);
+  assert.match(files['å‰§æƒ….md'], /groupId/);
+  assert.match(files['æ¼”å‡ºé…ä¹æ¸…å•.json'], /motionSettings|motion/);
+  assert.match(files['æ¼”å‡ºé…ä¹æ¸…å•.json'], /attachedToPackage": false/);
+  assert.match(files['æ”¹è¿›æç¤ºè¯.md'], /story-workbench-ai-changes/);
+  assert.equal(JSON.parse(files['project.snapshot.json']).baseHash, baseHash);
+  assert.equal(JSON.parse(files['supported-changes.schema.json']).properties.baseHash.const, baseHash);
+  const withMedia = createReviewDocuments(snapshot, baseHash, 'åŠ å¼ºå¾ªç¯æ„Ÿ', new Set(['audio-loop']));
+  assert.match(withMedia['æ¼”å‡ºé…ä¹æ¸…å•.json'], /åª’ä½“\/audio-loop\.mp3/);
+});
+
+test('å®¡é˜… ZIP å¯å¾€è¿”è¯»å–ï¼Œåª’ä½“é™„å¸¦çŠ¶æ€ä¸å®é™…å½’æ¡£è·¯å¾„ä¸€è‡´', async () => {
+  const { project } = fixture();
+  const scope = { type: 'chapter', chapterId: project.activeChapterId };
+  const snapshot = createReviewSnapshot(project, scope);
+  const baseHash = await reviewHash(snapshot);
+  const assets = [{ id: 'audio-loop', name: 'å¾ªç¯åº•å™ª.mp3', size: 128, blob: new Blob([new Uint8Array([1, 2, 3, 4])]) }];
+  const { bytes } = await createReviewArchive(JSZip, snapshot, baseHash, 'å¸¦ä¸ŠéŸ³é¢‘', assets, true);
+  const zip = await JSZip.loadAsync(bytes);
+  for (const fileName of ['ä½œå“è¯´æ˜.md', 'é˜…è¯»è¯´æ˜.md', 'å‰§æƒ….md', 'æ¼”å‡ºé…ä¹æ¸…å•.json', 'project.snapshot.json', 'supported-changes.schema.json', 'æ”¹è¿›æç¤ºè¯.md', 'åª’ä½“/audio-loop.mp3']) assert.ok(zip.file(fileName));
+  const manifest = JSON.parse(await zip.file('æ¼”å‡ºé…ä¹æ¸…å•.json').async('string'));
+  const audio = manifest.assets.find((asset) => asset.id === 'audio-loop');
+  assert.equal(audio.attachedToPackage, true);
+  assert.equal(audio.packagePath, 'åª’ä½“/audio-loop.mp3');
+  assert.deepEqual([...new Uint8Array(await zip.file(audio.packagePath).async('uint8array'))], [1, 2, 3, 4]);
+  const metadataOnly = await createReviewArchive(JSZip, snapshot, baseHash, '', assets, false);
+  const metadataZip = await JSZip.loadAsync(metadataOnly.bytes);
+  const metadata = JSON.parse(await metadataZip.file('æ¼”å‡ºé…ä¹æ¸…å•.json').async('string'));
+  assert.equal(metadata.assets.find((asset) => asset.id === 'audio-loop').attachedToPackage, false);
+  assert.equal(metadataZip.file('åª’ä½“/audio-loop.mp3'), null);
+});
+
+test('å»ºè®®æ ¡éªŒå¹¶åŸå­åº”ç”¨æ­£æ–‡ã€æ¼”å‡ºä¸è¿ç»­æ®µè½ç»„é…ä¹ï¼Œä¿ç•™æ‰€æœ‰ç¨³å®š ID', async () => {
+  const { project, textCue, settingsCue, group } = fixture();
+  const scope = { type: 'chapter', chapterId: project.activeChapterId };
+  const baseHash = await reviewHash(createReviewSnapshot(project, scope));
+  const beforeSettings = defaultSettings(settingsCue.cue.settings);
+  const afterSettings = { ...beforeSettings, mode: 'free', motion: 'shake', x: 820, y: 420, durationMs: 5400 };
+  const beforeMusic = { assetId: 'audio-loop', volume: 1, loop: false };
+  const changes = [
+    { op: 'replaceCueText', chapterId: scope.chapterId, cueId: textCue.cue.id, before: plainText(textCue.cue.children), after: 'æ–°çš„æ˜¾å­—å†…å®¹', reason: 'è®©å¾ªç¯ä¼ç¬”æ›´æ¸…æ¥šã€‚' },
+    { op: 'updateCueSettings', chapterId: scope.chapterId, cueId: settingsCue.cue.id, before: beforeSettings, after: afterSettings, reason: 'ä½¿ç”¨è‡ªç”±æ–‡å­—å¹¶æ‹‰é•¿é˜…è¯»æ—¶é—´ã€‚' },
+    { op: 'updateGroupMusic', chapterId: scope.chapterId, groupIds: [group.id], before: beforeMusic, after: { ...beforeMusic, volume: 0.62, loop: true }, reason: 'é™ä½éŸ³é‡å¹¶ä¿æŒå¾ªç¯ã€‚' },
+  ];
+  const raw = JSON.stringify(envelope(project, scope, baseHash, changes));
+  const proposal = await validateReviewChanges(project, raw);
+  const updated = applyReviewChanges(project, proposal);
+  assert.equal(validateProject(updated), true);
+  const updatedChapter = activeChapter(updated);
+  assert.equal(updatedChapter.document.blocks.find((block) => block.id === textCue.paragraph.id).children.find((node) => node.id === textCue.cue.id).children[0].text, 'æ–°çš„æ˜¾å­—å†…å®¹');
+  const updatedSettingsCue = updatedChapter.document.blocks.flatMap((block) => block.children).find((node) => node.type === 'cue' && node.id === settingsCue.cue.id);
+  assert.equal(updatedSettingsCue.settings.x, 820);
+  assert.equal(updatedSettingsCue.settings.motion, 'shake');
+  assert.equal(updatedSettingsCue.id, settingsCue.cue.id);
+  assert.deepEqual(updatedChapter.musicRanges[0].groupIds, [group.id]);
+  assert.equal(updatedChapter.musicRanges[0].volume, 0.62);
+  assert.equal(updatedChapter.musicRanges[0].loop, true);
+});
+
+test('è¿‡æœŸåŸºçº¿ã€æœªçŸ¥ç›®æ ‡ã€å±€éƒ¨å­—è‰²æ”¹å†™ã€åå‚æ•°å’ŒéŸ³ä¹å†²çªéƒ½æ•´ä»½æ‹’ç»', async () => {
+  const { project, textCue, settingsCue, group } = fixture();
+  const scope = { type: 'chapter', chapterId: project.activeChapterId };
+  const baseHash = await reviewHash(createReviewSnapshot(project, scope));
+  const goodText = { op: 'replaceCueText', chapterId: scope.chapterId, cueId: textCue.cue.id, before: plainText(textCue.cue.children), after: 'æ”¹å†™', reason: 'ç”¨è¯æ›´å‡†ç¡®ã€‚' };
+  await assert.rejects(validateReviewChanges(project, JSON.stringify({ ...envelope(project, scope, baseHash, [goodText]), baseHash: '0'.repeat(64) })), /å·¥ç¨‹åœ¨å¯¼å‡ºåå·²å˜åŒ–/);
+  await assert.rejects(validateReviewChanges(project, JSON.stringify(envelope(project, scope, baseHash, [{ ...goodText, cueId: 'missing-cue' }]))), /cueId ä¸å­˜åœ¨/);
+  const badSettings = { op: 'updateCueSettings', chapterId: scope.chapterId, cueId: settingsCue.cue.id, before: defaultSettings(settingsCue.cue.settings), after: { ...defaultSettings(settingsCue.cue.settings), fontSize: 999 }, reason: 'æµ‹è¯•è¶Šç•Œã€‚' };
+  await assert.rejects(validateReviewChanges(project, JSON.stringify(envelope(project, scope, baseHash, [goodText, badSettings]))), /å­—å·å¿…é¡»/);
+  const colored = structuredClone(project);
+  const coloredCue = activeChapter(colored).document.blocks.flatMap((block) => block.children).find((node) => node.type === 'cue' && node.id === textCue.cue.id);
+  coloredCue.children = [{ type: 'text', text: 'æœ‰é¢œè‰²', color: '#ff0000' }];
+  const coloredHash = await reviewHash(createReviewSnapshot(colored, scope));
+  const coloredChange = { ...goodText, before: 'æœ‰é¢œè‰²' };
+  await assert.rejects(validateReviewChanges(colored, JSON.stringify(envelope(colored, scope, coloredHash, [coloredChange]))), /å«æœ‰å±€éƒ¨å­—è‰²/);
+  const overlapping = structuredClone(project);
+  const chapterWithoutMusic = removeMusicRange(activeChapter(overlapping), activeChapter(overlapping).musicRanges[0].id);
+  const overlappingChapter = setMusicRange(chapterWithoutMusic, 'audio-loop', [group.paragraphIds[0]]);
+  overlapping.chapters = overlapping.chapters.map((item) => item.id === overlappingChapter.id ? overlappingChapter : item);
+  const overlappingHash = await reviewHash(createReviewSnapshot(overlapping, scope));
+  const overlappingMusic = { op: 'updateGroupMusic', chapterId: scope.chapterId, groupIds: [group.id], before: null, after: null, reason: 'æ¸…ç†å†²çªèŒƒå›´ã€‚' };
+  await assert.rejects(validateReviewChanges(overlapping, JSON.stringify(envelope(overlapping, scope, overlappingHash, [overlappingMusic]))), /éƒ¨åˆ†é‡å /);
+});
+
+test('å¯¼å…¥åªæ¥å—ç²¾ç¡®å­—æ®µï¼Œä¸æ‰§è¡Œé™„å¸¦ä»£ç ï¼Œä¹Ÿæ‹’ç»èŒƒå›´å¤–ç»„', async () => {
+  const { project, settingsCue, group } = fixture();
+  const scope = { type: 'groups', chapterId: project.activeChapterId, groupIds: [group.id] };
+  const baseHash = await reviewHash(createReviewSnapshot(project, scope));
+  const cue = group.paragraphIds.map((id) => activeChapter(project).document.blocks.find((block) => block.id === id)).flatMap((block) => block.children).find((node) => node.type === 'cue');
+  assert.ok(cue);
+  const allowed = { op: 'replaceCueText', chapterId: scope.chapterId, cueId: cue.id, before: plainText(cue.children), after: 'æ®µè½ç»„å†…æ”¹æ–‡', reason: 'æ”¹è¿›è¡¨è¿°ã€‚' };
+  const extraField = { ...allowed, script: 'globalThis.pwned=true' };
+  await assert.rejects(validateReviewChanges(project, JSON.stringify(envelope(project, scope, baseHash, [extraField]))), /å­—æ®µç¼ºå¤±æˆ–åŒ…å«ä¸æ”¯æŒ/);
+  await assert.rejects(validateReviewChanges(project, JSON.stringify(envelope(project, scope, baseHash, [{ ...allowed, cueId: settingsCue.cue.id }]))), /è¶…å‡ºå®¡é˜…èŒƒå›´/);
+});

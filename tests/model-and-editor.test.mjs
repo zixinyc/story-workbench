@@ -1,3 +1,80 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±y¥µÁ½ÉÐÑ•ÍÐ™É½´€¹½‘”éÑ•ÍÐœì)¥µÁ½ÉÐ…ÍÍ•ÉÐ™É½´€¹½‘”é…ÍÍ•ÉÐ½ÍÑÉ¥Ðœì)¥µÁ½ÉÐìÉ•…Ñ••µ½AÉ½©•Ð°Ù…±¥‘…Ñ•AÉ½©•Ðô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½ÁÉ½©•Ð¹µ©Ìœì)¥µÁ½ÉÐì…Ñ¥Ù•¡…ÁÑ•È°É•…Ñ•A…É…É…Á¡É½ÕÀô™É½´€œ¸¸½ÍÉŒ½‘½µ…¥¸½µ½‘•°½¡…ÁÑ•ÉÌ¹µ©Ìœì)¥µÁ½ÉÐìÑ½‘¥Ñ½É½¹Ñ•¹Ð°™É½µ‘¥Ñ½É½¹Ñ•¹Ðô™É½´€œ¸¸½ÍÉŒ½•‘¥Ñ½È½ÍÑ½Éäµ•‘¥Ñ½È¹ÑÌœì)¥µÁ½ÉÐìÉ•…Ñ•A±…å•È°Á±…å‰…­MÑ…ÉÑ%¹‘•àô™É½´€œ¸¸½ÍÉŒ½ÉÕ¹Ñ¥µ”½Á±…å•È¹µ©Ìœì()Ñ•ÍÐ Ÿž’ë’ú/–Þ—ž¢/žjš¶šZ–J3šòS–ë–>¿–ú¢þS¾ò3šº×¢B÷’â8Õ”%ƒ’þwš2ž¢Ï–ºhœ°€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ‘½Õµ•¹Ð€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ð¤¹‘½Õµ•¹Ðì(€½¹ÍÐÉ½Õ¹‘QÉ¥À€ô™É½µ‘¥Ñ½É½¹Ñ•¹Ð¡Ñ½‘¥Ñ½É½¹Ñ•¹Ð¡‘½Õµ•¹Ð¤¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡É½Õ¹‘QÉ¥À°‘½Õµ•¹Ð¤ì)ô¤ì()Ñ•ÍÐ Ÿ¢þ{žî·š6‹¢†3’ös’âë–B3’âš¶šZ–J3–B3’âšòS–ë–6W–’þw–¶`œ°€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ‘½Õµ•¹Ð€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ð¤¹‘½Õµ•¹Ðì(€½¹ÍÐÁ…É…É…Á €ô‘½Õµ•¹Ð¹‰±½­Ì¹™¥¹ ¡‰±½¬¤€ôø‰±½¬¹¡¥±‘É•¹lÁtü¹ÑåÁ”€ôôô€Õ”œ¤ì(€½¹ÍÐÕ”€ôÁ…É…É…Á ¹¡¥±‘É•¹lÁtì(€Õ”¹¡¥±‘É•¹lÁt¹Ñ•áÐ€ô€Ÿž²³’â¢†1q»ž²³’ê3¢†0œì(€½¹ÍÐ•‘¥Ñ½É½¹Ñ•¹Ð€ôÑ½‘¥Ñ½É½¹Ñ•¹Ð¡‘½Õµ•¹Ð¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡•‘¥Ñ½É½¹Ñ•¹Ð¹½¹Ñ•¹Ð¹™¥¹ ¡‰±½¬¤€ôø‰±½¬¹…ÑÑÉÌ¹Á…É…É…Á¡%€ôôôÁ…É…É…Á ¹¥¤¹½¹Ñ•¹Ð¹±•¹Ñ °€Ä¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡™É½µ‘¥Ñ½É½¹Ñ•¹Ð¡•‘¥Ñ½É½¹Ñ•¹Ð¤°‘½Õµ•¹Ð¤ì)ô¤ì()Ñ•ÍÐ Ÿšº×¢B÷žîž¢Ï–ºh%ƒ¦j?š¶šZžò[¢úG–f£––ºç–ú¢þS’þw–¶`œ°€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ð¤ì(€½¹ÍÐ¥‘Ì€ô¡…ÁÑ•È¹‘½Õµ•¹Ð¹‰±½­Ì¹Í±¥” À°€È¤¹µ…À ¡‰±½¬¤€ôø‰±½¬¹¥¤ì(€½¹ÍÐÉ½ÕÁ•€ôÉ•…Ñ•A…É…É…Á¡É½ÕÀ¡¡…ÁÑ•È°¥‘Ì°€Ÿ–ò–rèœ¤ì(€½¹ÍÐÉ½Õ¹‘QÉ¥À€ô™É½µ‘¥Ñ½É½¹Ñ•¹Ð¡Ñ½‘¥Ñ½É½¹Ñ•¹Ð¡É½ÕÁ•¹‘½Õµ•¹Ð°É½ÕÁ•¹É½ÕÁÌ¤¤ì(€…ÍÍ•ÉÐ¹‘••ÁÅÕ…°¡É½Õ¹‘QÉ¥À°É½ÕÁ•¹‘½Õµ•¹Ð¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡É½Õ¹‘QÉ¥À¹‰±½­ÍlÁt¹É½ÕÁ%°É½ÕÁ•¹É½ÕÁÍlÁt¹¥¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡É½Õ¹‘QÉ¥À¹‰±½­ÍlÉt¹É½ÕÁ%°Õ¹‘•™¥¹•¤ì)ô¤ì()Ñ•ÍÐ Ÿ–Þ—ž¢/š‚‡¦ª3š.Kžîwš^ƒšV#¦Šs¢&ËŽ¢"{–>Ã–vCš‚–J3–nû–Æ–Æžêœœ°€ ¤€ôøì(€½¹ÍÐ‰…Í”€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ¥¹Ù…±¥‘½±½È€ôÍÑÉÕÑÕÉ•‘±½¹”¡‰…Í”¤ì(€…Ñ¥Ù•¡…ÁÑ•È¡¥¹Ù…±¥‘½±½È¤¹‘½Õµ•¹Ð¹‰±½­Ì¹™¥¹ ¡‰±½¬¤€ôø‰±½¬¹¡¥±‘É•¹lÁtü¹ÑåÁ”€ôôô€Õ”œ¤¹¡¥±‘É•¹lÁt¹Í•ÑÑ¥¹Ì¹½±½È€ô¹Õ±°ì(€…ÍÍ•ÉÐ¹Ñ¡É½ÝÌ  ¤€ôøÙ…±¥‘…Ñ•AÉ½©•Ð¡¥¹Ù…±¥‘½±½È¤°€¿¦Šs¢&È¼¤ì((€½¹ÍÐ¥¹Ù…±¥‘1…å•È€ôÍÑÉÕÑÕÉ•‘±½¹”¡‰…Í”¤ì(€¥¹Ù…±¥‘1…å•È¹…ÍÍ•ÑÌ¹ÁÕÍ ¡ì¥è€¥µ…”´Äœ°¹…µ”è€Ÿ¢3šf¼¹Á¹œœ°­¥¹è€¥µ…”œ°µ¥µ”è€¥µ…”½Á¹œœ°Í¥é”è€ÄÀô¤ì(€½¹ÍÐÕ”€ô…Ñ¥Ù•¡…ÁÑ•È¡¥¹Ù…±¥‘1…å•È¤¹‘½Õµ•¹Ð¹‰±½­Ì¹™¥¹ ¡‰±½¬¤€ôø‰±½¬¹¡¥±‘É•¹lÁtü¹ÑåÁ”€ôôô€Õ”œ¤¹¡¥±‘É•¹lÁtì(€Õ”¹Í•ÑÑ¥¹Ì¹Í•¹•1…å•ÉÌ€ômì¥è€±…å•È´Äœ°…ÍÍ•Ñ%è€¥µ…”´Äœ°àè€À°äè€À°Ý¥‘Ñ è€ÄÀÀ°¡•¥¡Ðè€ÄÀÀ°½Á…¥Ñäè€Ä°é%¹‘•àè€À¸Ôõtì(€…ÍÍ•ÉÐ¹Ñ¡É½ÝÌ  ¤€ôøÙ…±¥‘…Ñ•AÉ½©•Ð¡¥¹Ù…±¥‘1…å•È¤°€¿–nû–Æ¼¤ì)ô¤ì()Ñ•ÍÐ Ÿ¢"{–>Ã–nû–Æ’þw–¶c–º3šVÓ¢Ž–&«Ž–>cš6‹’â;¢ž¦ŠGž&šº×¢ºûžö¸œ°€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐ¡…ÁÑ•È€ô…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ð¤ì(€ÁÉ½©•Ð¹…ÍÍ•ÑÌ¹ÁÕÍ ¡ì¥è€¥µ…”´Äœ°¹…µ”è€Ÿ¦?šb8¹Á¹œœ°­¥¹è€¥µ…”œ°µ¥µ”è€¥µ…”½Á¹œœ°Í¥é”è€ÄÀ°Ý¥‘Ñ è€ÈÀÀ°¡•¥¡Ðè€ÌÀÀô¤ì(€ÁÉ½©•Ð¹…ÍÍ•ÑÌ¹ÁÕÍ ¡ì¥è€Ù¥‘•¼´Äœ°¹…µ”è€Ÿž&šºÔ¹µÀÐœ°­¥¹è€Ù¥‘•¼œ°µ¥µ”è€Ù¥‘•¼½µÀÐœ°Í¥é”è€ÈÀô¤ì(€½¹ÍÐÕ”€ô¡…ÁÑ•È¹‘½Õµ•¹Ð¹‰±½­Ì¹™¥¹ ¡‰±½¬¤€ôø‰±½¬¹¡¥±‘É•¹lÁtü¹ÑåÁ”€ôôô€Õ”œ¤¹¡¥±‘É•¹lÁtì(€Õ”¹Í•ÑÑ¥¹Ì¹Í•¹•1…å•ÉÌ€ôl(€€€ì¥è€¥µ…”µ±…å•Èœ°…ÍÍ•Ñ%è€¥µ…”´Äœ°àè€ÈÀ°äè€ÌÀ°Ý¥‘Ñ è€ÔÀÀ°¡•¥¡Ðè€ÜÔÀ°½Á…¥Ñäè€À¸à°é%¹‘•àè€À°É½Ñ…Ñ¥½¸è€ÈÐ°™±¥Á`èÑÉÕ”°É½Àèì±•™Ðè€À¸Ä°Ñ½Àè€À°É¥¡Ðè€À¸ÀÔ°‰½ÑÑ½´è€Àô°™¥Ðè€½Ù•Èœ°±½­•èÑÉÕ”°¡¥‘‘•¸è™…±Í”ô°(€€€ì¥è€Ù¥‘•¼µ±…å•Èœ°…ÍÍ•Ñ%è€Ù¥‘•¼´Äœ°àè€àÀÀ°äè€ÔÀÀ°Ý¥‘Ñ è€ÔÀÀ°¡•¥¡Ðè€ÌÀÀ°½Á…¥Ñäè€Ä°é%¹‘•àè€Ä°Ù¥‘•½MÑ…ÉÑ5Ìè€ÔÀÀ°Ù¥‘•½¹‘5Ìè€ÈØÀÀ°Ù¥‘•½5ÕÑ•èÑÉÕ”°Ù¥‘•½Y½±Õµ”è€À¸Ð°Ù¥‘•½1½½ÀèÑÉÕ”ô°(€tì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Ù…±¥‘…Ñ•AÉ½©•Ð¡ÁÉ½©•Ð¤°ÑÉÕ”¤ì)ô¤ì()Ñ•ÍÐ ŸšJ·šRû¢þo–ê›š.[–*£’òkš*+žnã–B3š¾¯žžK’ö7žö»’òƒžîg–ªK’öO’òk¢¾tœ°€ ¤€ôøì(€½¹ÍÐÁÉ½©•Ð€ôÉ•…Ñ••µ½AÉ½©•Ð ¤ì(€½¹ÍÐÍ••­Ì€ômtì(€½¹ÍÐÁ±…å•È€ôÉ•…Ñ•A±…å•È¡ì(€€€•ÑA±…¸è€ ¤€ôø…Ñ¥Ù•¡…ÁÑ•È¡ÁÉ½©•Ð¤¹‘½Õµ•¹Ð¹‰±½­Ì¹µ…À ¡‰±½¬°¥¹‘•à¤€ôø€¡ì¥èMÑÉ¥¹œ¡¥¹‘•à¤°Í•ÑÑ¥¹Ìèì‘ÕÉ…Ñ¥½¹5Ìè€ÌÔÀÀ°…‘Ù…¹”è€±¥¬œôô¤¤°(€€€½¹¡…¹” ¤íô°½¹¹Ñ•È ¤íô°½¹A…ÕÍ•5•‘¥„ ¤íô°½¹I•ÍÕµ•5•‘¥„ ¤íô°½¹M••­5•‘¥„è€¡µ¥±±¥Í•½¹‘Ì¤€ôøÍ••­Ì¹ÁÕÍ ¡µ¥±±¥Í•½¹‘Ì¤°½¹MÑ½Á5•‘¥„ ¤íô°(€ô¤ì(€Á±…å•È¹Á±…åÉ½´ À¤ì(€Á±…å•È¹Í••¬ À¸Ô¤ì(€Á±…å•È¹ÍÑ½À ¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Í••­ÍlÁt°€ÄÜÔÀ¤ì)ô¤ì()Ñ•ÍÐ ŸšJ·šRûšVÓšº×’î;ž²³’â–>—–ò–ž/¾ò3¢3’î;–öO–&7–>—¦Š¢ž#’þwžVg–öO–&7–>—¢Ößž
-äœ°€ ¤€ôøì(€½¹ÍÐÁ±…¸€ôÉÉ…ä¹™É½´¡ì±•¹Ñ è€ÄÀô°€¡|°¥¹‘•à¤€ôø€¡ì¥èÕ”´‘í¥¹‘•áõ€ô¤¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Á±…å‰…­MÑ…ÉÑ%¹‘•à¡Á±…¸°€Õ”´Ôœ°€…ÕÑ¼œ¤°€À¤ì(€…ÍÍ•ÉÐ¹•ÅÕ…°¡Á±…å‰…­MÑ…ÉÑ%¹‘•à¡Á±…¸°€Õ”´Ôœ°¹Õ±°¤°€Ô¤ì)ô¤ì(
+import test from 'node:test';
+import assert from 'node:assert/strict';
+import { createDemoProject, validateProject } from '../src/domain/model/project.mjs';
+import { activeChapter, createParagraphGroup } from '../src/domain/model/chapters.mjs';
+import { toEditorContent, fromEditorContent } from '../src/editor/story-editor.ts';
+import { createPlayer, playbackStartIndex } from '../src/runtime/player.mjs';
+
+test('ç¤ºä¾‹å·¥ç¨‹çš„æ­£æ–‡å’Œæ¼”å‡ºå¯å¾€è¿”ï¼Œæ®µè½ä¸Ž cue ID ä¿æŒç¨³å®š', () => {
+  const project = createDemoProject();
+  const document = activeChapter(project).document;
+  const roundTrip = fromEditorContent(toEditorContent(document));
+  assert.deepEqual(roundTrip, document);
+});
+
+test('è¿žç»­æ¢è¡Œä½œä¸ºåŒä¸€æ­£æ–‡å’ŒåŒä¸€æ¼”å‡ºå•å…ƒä¿å­˜', () => {
+  const project = createDemoProject();
+  const document = activeChapter(project).document;
+  const paragraph = document.blocks.find((block) => block.children[0]?.type === 'cue');
+  const cue = paragraph.children[0];
+  cue.children[0].text = 'ç¬¬ä¸€è¡Œ\nç¬¬äºŒè¡Œ';
+  const editorContent = toEditorContent(document);
+  assert.equal(editorContent.content.find((block) => block.attrs.paragraphId === paragraph.id).content.length, 1);
+  assert.deepEqual(fromEditorContent(editorContent), document);
+});
+
+test('æ®µè½ç»„ç¨³å®š ID éšæ­£æ–‡ç¼–è¾‘å™¨å†…å®¹å¾€è¿”ä¿å­˜', () => {
+  const project = createDemoProject();
+  const chapter = activeChapter(project);
+  const ids = chapter.document.blocks.slice(0, 2).map((block) => block.id);
+  const grouped = createParagraphGroup(chapter, ids, 'å¼€åœº');
+  const roundTrip = fromEditorContent(toEditorContent(grouped.document, grouped.groups));
+  assert.deepEqual(roundTrip, grouped.document);
+  assert.equal(roundTrip.blocks[0].groupId, grouped.groups[0].id);
+  assert.equal(roundTrip.blocks[2].groupId, undefined);
+});
+
+test('å·¥ç¨‹æ ¡éªŒæ‹’ç»æ— æ•ˆé¢œè‰²ã€èˆžå°åæ ‡å’Œå›¾å±‚å±‚çº§', () => {
+  const base = createDemoProject();
+  const invalidColor = structuredClone(base);
+  activeChapter(invalidColor).document.blocks.find((block) => block.children[0]?.type === 'cue').children[0].settings.color = null;
+  assert.throws(() => validateProject(invalidColor), /é¢œè‰²/);
+
+  const invalidLayer = structuredClone(base);
+  invalidLayer.assets.push({ id: 'image-1', name: 'èƒŒæ™¯.png', kind: 'image', mime: 'image/png', size: 10 });
+  const cue = activeChapter(invalidLayer).document.blocks.find((block) => block.children[0]?.type === 'cue').children[0];
+  cue.settings.sceneLayers = [{ id: 'layer-1', assetId: 'image-1', x: 0, y: 0, width: 100, height: 100, opacity: 1, zIndex: 0.5 }];
+  assert.throws(() => validateProject(invalidLayer), /å›¾å±‚/);
+});
+
+test('èˆžå°å›¾å±‚ä¿å­˜å®Œæ•´è£å‰ªã€å˜æ¢ä¸Žè§†é¢‘ç‰‡æ®µè®¾ç½®', () => {
+  const project = createDemoProject();
+  const chapter = activeChapter(project);
+  project.assets.push({ id: 'image-1', name: 'é€æ˜Ž.png', kind: 'image', mime: 'image/png', size: 10, width: 200, height: 300 });
+  project.assets.push({ id: 'video-1', name: 'ç‰‡æ®µ.mp4', kind: 'video', mime: 'video/mp4', size: 20 });
+  const cue = chapter.document.blocks.find((block) => block.children[0]?.type === 'cue').children[0];
+  cue.settings.sceneLayers = [
+    { id: 'image-layer', assetId: 'image-1', x: 20, y: 30, width: 500, height: 750, opacity: 0.8, zIndex: 0, rotation: 24, flipX: true, crop: { left: 0.1, top: 0, right: 0.05, bottom: 0 }, fit: 'cover', locked: true, hidden: false },
+    { id: 'video-layer', assetId: 'video-1', x: 800, y: 500, width: 500, height: 300, opacity: 1, zIndex: 1, videoStartMs: 500, videoEndMs: 2600, videoMuted: true, videoVolume: 0.4, videoLoop: true },
+  ];
+  assert.equal(validateProject(project), true);
+});
+
+test('æ’­æ”¾è¿›åº¦æ‹–åŠ¨ä¼šæŠŠç›¸åŒæ¯«ç§’ä½ç½®ä¼ ç»™åª’ä½“ä¼šè¯', () => {
+  const project = createDemoProject();
+  const seeks = [];
+  const player = createPlayer({
+    getPlan: () => activeChapter(project).document.blocks.map((block, index) => ({ id: String(index), settings: { durationMs: 3500, advance: 'click' } })),
+    onChange() {}, onEnter() {}, onPauseMedia() {}, onResumeMedia() {}, onSeekMedia: (milliseconds) => seeks.push(milliseconds), onStopMedia() {},
+  });
+  player.playFrom(0);
+  player.seek(0.5);
+  player.stop();
+  assert.equal(seeks[0], 1750);
+});
+
+test('æ’­æ”¾æ•´æ®µä»Žç¬¬ä¸€å¥å¼€å§‹ï¼Œè€Œä»Žå½“å‰å¥é¢„è§ˆä¿ç•™å½“å‰å¥èµ·ç‚¹', () => {
+  const plan = Array.from({ length: 10 }, (_, index) => ({ id: `cue-${index}` }));
+  assert.equal(playbackStartIndex(plan, 'cue-5', 'auto'), 0);
+  assert.equal(playbackStartIndex(plan, 'cue-5', null), 5);
+});

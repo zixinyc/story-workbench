@@ -1,2 +1,69 @@
-¨¥yÛh~)Ý­æ¥–‡¶*'¡ð”±êìd…È4
-i«Z.‡”úè‚¶¦°ü­†‰ÏÊØhŸ}w§+a¢w±yÑåÁ”AÉ½É•ÍÌ€ô€¡±…‰•°èÍÑÉ¥¹œ¤€ôøÙ½¥ì()•áÁ½ÉÐ…Íå¹Œ™Õ¹Ñ¥½¸•áÑÉ…ÑÕ‘¥½É½µY¥‘•¼¡‰±½ˆè	±½ˆ°ìÍ¥¹…°°¹…µ”€ô€5@Ó¦~Ï¢ö œ°½¹AÉ½É•ÍÌ€ô€ ¤€ôøíôôèìÍ¥¹…°üè‰½ÉÑM¥¹…°ì¹…µ”üèÍÑÉ¥¹œì½¹AÉ½É•ÍÌüèAÉ½É•ÍÌô€ôíô¤èAÉ½µ¥Í”ñ¥±”øì(€¥˜€¡‰±½ˆ¹ÑåÁ”€„ôô€Ù¥‘•¼½µÀÐœ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¦~Ï¢ö£š>C–>[žn»–&7–>«šR¿š25@Ðƒ¢ž¦ŠGŽœ¤ì(€¥˜€¡‰±½ˆ¹Í¥é”€ø€ÄÀÀ€¨€ÄÀÈÐ€¨€ÄÀÈÐ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢ž¦ŠGšZ’îÛ¢Ú¢þ€ÄÀÀ5¾ò3š^ƒšÎW–º'–£š>C–>[Žœ¤ì(€¥˜€¡Í¥¹…°ü¹…‰½ÉÑ•¤Ñ¡É½Ü¹•Ü=5á•ÁÑ¥½¸ Ÿ–ÞË–>[šÚ#¦~Ï¢ö£š>C–>[Žœ°€‰½ÉÑÉÉ½Èœ¤ì(€½¹ÍÐÕ‘¥½½¹Ñ•áÑ±…ÍÌ€ôÝ¥¹‘½Ü¹Õ‘¥½½¹Ñ•áÐì(€¥˜€ …Õ‘¥½½¹Ñ•áÑ±…ÍÌ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ–öO–&7š†3¦v‹¢þC¢†3ž:¿–ŠšÊ‡šr'–>¿žR£žj¦~Ï¦ŠG¢žž‚–f£Žœ¤ì(€½¹ÍÐ½¹Ñ•áÐ€ô¹•ÜÕ‘¥½½¹Ñ•áÑ±…ÍÌ ¤ì(€±•Ð‘•½‘•èÕ‘¥½	Õ™™•Èì(€ÑÉäì(€€€½¹AÉ½É•ÍÌ Ÿš¶–r£¢¾ï–>[–æÛ¢žž‚5@Ðƒ¦~Ï¢ö£Š˜œ¤ì(€€€½¹ÍÐ¥¹ÁÕÐ€ô…Ý…¥Ð‰±½ˆ¹…ÉÉ…å	Õ™™•È ¤ì(€€€‘•½‘•€ô…Ý…¥Ð½¹Ñ•áÐ¹‘•½‘•Õ‘¥½…Ñ„¡¥¹ÁÕÐ¤ì(€ô…Ñ €¡•ÉÉ½È¤ì(€€€Ñ¡É½Ü¹•ÜÉÉ½È¡ƒšr«–>Gž:Ã–>¿¢¾ï–>[žj¦~Ï¢ö£¾ò3š"[¢ž¦ŠG’öÿžR£’ê–öO–&7šJ·šRû–f£’â7šR¿š2žjžò[ž‚Ž‘í•ÉÉ½È¥¹ÍÑ…¹•½˜ÉÉ½È€ü€€‘í•ÉÉ½È¹µ•ÍÍ…•õ€€è€œõ€¤ì(€ô™¥¹…±±äì(€€€…Ý…¥Ð½¹Ñ•áÐ¹±½Í” ¤¹…Ñ   ¤€ôøíô¤ì(€ô(€¥˜€¡Í¥¹…°ü¹…‰½ÉÑ•¤Ñ¡É½Ü¹•Ü=5á•ÁÑ¥½¸ Ÿ–ÞË–>[šÚ#¦~Ï¢ö£š>C–>[Žœ°€‰½ÉÑÉÉ½Èœ¤ì(€¥˜€ …‘•½‘•¹±•¹Ñ ñð€…‘•½‘•¹¹Õµ‰•É=™¡…¹¹•±Ì¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢ž¦ŠG’â·šÊ‡šr'–>¿š>C–>[žj¦~Ï¢ö£Žœ¤ì(€½¹ÍÐ¡…¹¹•±Ì€ô5…Ñ ¹µ¥¸ È°‘•½‘•¹¹Õµ‰•É=™¡…¹¹•±Ì¤ì(€½¹ÍÐ‘…Ñ…	åÑ•Ì€ô‘•½‘•¹±•¹Ñ €¨¡…¹¹•±Ì€¨€Èì(€¥˜€ …9Õµ‰•È¹¥ÍM…™•%¹Ñ••È¡‘…Ñ…	åÑ•Ì¤ñð‘…Ñ…	åÑ•Ì€ø€ÄÀÀ€¨€ÄÀÈÐ€¨€ÄÀÈÐ€´€ÐÐ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿš>C–>[–B;žj]Xƒ–Â¢Ú¢þ–6W’â«žÒƒšv@€ÄÀÀ5ƒžj’â+¦fC¾ò3–ÞË–sš¶‹’î—’þwš*“––¶cŽœ¤ì(€¥˜€¡‘•½‘•¹‘ÕÉ…Ñ¥½¸€ø€ØÀ€¨€ØÀ¤Ñ¡É½Ü¹•ÜÉÉ½È Ÿ¢ž¦ŠG¢Ú¢þ€ØÀƒ–"¦J¾ò3–öO–&7ž&#šr³šj’â7š>C–>[Žœ¤ì(€½¹ÍÐÝ…Ø€ô…Ý…¥Ð•¹½‘•]…Ø¡‘•½‘•°¡…¹¹•±Ì°Í¥¹…°°½¹AÉ½É•ÍÌ¤ì(€½¹ÍÐ‰…Í•9…µ”€ô¹…µ”¹É•Á±…” ½p¹µÀÐ½¤°€œœ¤ñð€5@Ó¦~Ï¢ö œì(€É•ÑÕÉ¸¹•Ü¥±”¡mÝ…Ùt°€‘í‰…Í•9…µ•ô¹Ý…Ù€°ìÑåÁ”è€…Õ‘¥¼½Ý…Øœô¤ì)ô()•áÁ½ÉÐ…Íå¹Œ™Õ¹Ñ¥½¸•¹½‘•]…Ø¡…Õ‘¥¼èÕ‘¥½	Õ™™•È°¡…¹¹•±½Õ¹Ð€ô5…Ñ ¹µ¥¸ È°…Õ‘¥¼¹¹Õµ‰•É=™¡…¹¹•±Ì¤°Í¥¹…°üè‰½ÉÑM¥¹…°°½¹AÉ½É•ÍÌèAÉ½É•ÍÌ€ô€ ¤€ôøíô¤èAÉ½µ¥Í”ñÉÉ…å	Õ™™•Èøì(€½¹ÍÐ¡…¹¹•±Ì€ô5…Ñ ¹µ¥¸ È°5…Ñ ¹µ…à Ä°¡…¹¹•±½Õ¹Ð¤¤ì(€½¹ÍÐÍ…µÁ±•I…Ñ”€ô…Õ‘¥¼¹Í…µÁ±•I…Ñ”ì(€½¹ÍÐ‘…Ñ…	åÑ•Ì€ô…Õ‘¥¼¹±•¹Ñ €¨¡…¹¹•±Ì€¨€Èì(€½¹ÍÐ½ÕÑÁÕÐ€ô¹•ÜÉÉ…å	Õ™™•È ÐÐ€¬‘…Ñ…	åÑ•Ì¤ì(€½¹ÍÐÙ¥•Ü€ô¹•Ü…Ñ…Y¥•Ü¡½ÕÑÁÕÐ¤ì(€ÝÉ¥Ñ•Í¥¤¡Ù¥•Ü°€À°€I%œ¤ìÙ¥•Ü¹Í•ÑU¥¹ÐÌÈ Ð°€ÌØ€¬‘…Ñ…	åÑ•Ì°ÑÉÕ”¤ìÝÉ¥Ñ•Í¥¤¡Ù¥•Ü°€à°€]Yœ¤ì(€ÝÉ¥Ñ•Í¥¤¡Ù¥•Ü°€ÄÈ°€™µÐ€œ¤ìÙ¥•Ü¹Í•ÑU¥¹ÐÌÈ ÄØ°€ÄØ°ÑÉÕ”¤ìÙ¥•Ü¹Í•ÑU¥¹ÐÄØ ÈÀ°€Ä°ÑÉÕ”¤ì(€Ù¥•Ü¹Í•ÑU¥¹ÐÄØ ÈÈ°¡…¹¹•±Ì°ÑÉÕ”¤ìÙ¥•Ü¹Í•ÑU¥¹ÐÌÈ ÈÐ°Í…µÁ±•I…Ñ”°ÑÉÕ”¤ì(€Ù¥•Ü¹Í•ÑU¥¹ÐÌÈ Èà°Í…µÁ±•I…Ñ”€¨¡…¹¹•±Ì€¨€È°ÑÉÕ”¤ìÙ¥•Ü¹Í•ÑU¥¹ÐÄØ ÌÈ°¡…¹¹•±Ì€¨€È°ÑÉÕ”¤ìÙ¥•Ü¹Í•ÑU¥¹ÐÄØ ÌÐ°€ÄØ°ÑÉÕ”¤ì(€ÝÉ¥Ñ•Í¥¤¡Ù¥•Ü°€ÌØ°€‘…Ñ„œ¤ìÙ¥•Ü¹Í•ÑU¥¹ÐÌÈ ÐÀ°‘…Ñ…	åÑ•Ì°ÑÉÕ”¤ì(€½¹ÍÐÍ½ÕÉ•¡…¹¹•±Ì€ôÉÉ…ä¹™É½´¡ì±•¹Ñ è…Õ‘¥¼¹¹Õµ‰•É=™¡…¹¹•±Ìô°€¡|°¥¹‘•à¤€ôø…Õ‘¥¼¹•Ñ¡…¹¹•±…Ñ„¡¥¹‘•à¤¤ì(€½¹ÍÐ¡Õ¹­É…µ•Ì€ô5…Ñ ¹µ…à Ä°Í…µÁ±•I…Ñ”¤ì(€™½È€¡±•ÐÍÑ…ÉÐ€ô€ÀìÍÑ…ÉÐ€ð…Õ‘¥¼¹±•¹Ñ ìÍÑ…ÉÐ€¬ô¡Õ¹­É…µ•Ì¤ì(€€€¥˜€¡Í¥¹…°ü¹…‰½ÉÑ•¤Ñ¡É½Ü¹•Ü=5á•ÁÑ¥½¸ Ÿ–ÞË–>[šÚ#¦~Ï¢ö£š>C–>[Žœ°€‰½ÉÑÉÉ½Èœ¤ì(€€€½¹ÍÐ•¹€ô5…Ñ ¹µ¥¸¡…Õ‘¥¼¹±•¹Ñ °ÍÑ…ÉÐ€¬¡Õ¹­É…µ•Ì¤ì(€€€±•Ð½™™Í•Ð€ô€ÐÐ€¬ÍÑ…ÉÐ€¨¡…¹¹•±Ì€¨€Èì(€€€™½È€¡±•Ð™É…µ”€ôÍÑ…ÉÐì™É…µ”€ð•¹ì™É…µ”€¬ô€Ä¤ì(€€€€€™½È€¡±•Ð¡…¹¹•°€ô€Àì¡…¹¹•°€ð¡…¹¹•±Ìì¡…¹¹•°€¬ô€Ä¤ì(€€€€€€€±•ÐÍ…µÁ±”è¹Õµ‰•Èì(€€€€€€€¥˜€¡…Õ‘¥¼¹¹Õµ‰•É=™¡…¹¹•±Ì€ðô€È¤Í…µÁ±”€ôÍ½ÕÉ•¡…¹¹•±Ím¡…¹¹•±um™É…µ•tì(€€€€€€€•±Í”ì(€€€€€€€€€Í…µÁ±”€ô€Àì(€€€€€€€€€™½È€¡±•ÐÍ½ÕÉ”€ô€ÀìÍ½ÕÉ”€ð…Õ‘¥¼¹¹Õµ‰•É=™¡…¹¹•±ÌìÍ½ÕÉ”€¬ô€Ä¤Í…µÁ±”€¬ôÍ½ÕÉ•¡…¹¹•±ÍmÍ½ÕÉ•um™É…µ•t€¼…Õ‘¥¼¹¹Õµ‰•É=™¡…¹¹•±Ìì(€€€€€€€ô(€€€€€€€½¹ÍÐ±¥ÁÁ•€ô5…Ñ ¹µ…à ´Ä°5…Ñ ¹µ¥¸ Ä°Í…µÁ±”¤¤ì(€€€€€€€Ù¥•Ü¹Í•Ñ%¹ÐÄØ¡½™™Í•Ð°±¥ÁÁ•€ð€À€ü±¥ÁÁ•€¨€ÁààÀÀÀ€è±¥ÁÁ•€¨€ÁàÝ™™˜°ÑÉÕ”¤ì(€€€€€€€½™™Í•Ð€¬ô€Èì(€€€€€ô(€€€ô(€€€½¹AÉ½É•ÍÌ¡ƒš¶–r£–Â¢Ž][Š˜€‘í5…Ñ ¹É½Õ¹¡•¹€¼…Õ‘¥¼¹±•¹Ñ €¨€ÄÀÀ¥ô•€¤ì(€€€…Ý…¥Ð¹•ÜAÉ½µ¥Í”ñÙ½¥ø ¡É•Í½±Ù”¤€ôøÍ•ÑQ¥µ•½ÕÐ¡É•Í½±Ù”°€À¤¤ì(€ô(€É•ÑÕÉ¸½ÕÑÁÕÐì)ô()™Õ¹Ñ¥½¸ÝÉ¥Ñ•Í¥¤¡Ù¥•Üè…Ñ…Y¥•Ü°½™™Í•Ðè¹Õµ‰•È°Ù…±Õ”èÍÑÉ¥¹œ¤ì(€™½È€¡±•Ð¥¹‘•à€ô€Àì¥¹‘•à€ðÙ…±Õ”¹±•¹Ñ ì¥¹‘•à€¬ô€Ä¤Ù¥•Ü¹Í•ÑU¥¹Ðà¡½™™Í•Ð€¬¥¹‘•à°Ù…±Õ”¹¡…É½‘•Ð¡¥¹‘•à¤¤ì)ô(
+type Progress = (label: string) => void;
+
+export async function extractAudioFromVideo(blob: Blob, { signal, name = 'MP4éŸ³è½¨', onProgress = () => {} }: { signal?: AbortSignal; name?: string; onProgress?: Progress } = {}): Promise<File> {
+  if (blob.type !== 'video/mp4') throw new Error('éŸ³è½¨æå–ç›®å‰åªæ”¯æŒ MP4 è§†é¢‘ã€‚');
+  if (blob.size > 100 * 1024 * 1024) throw new Error('è§†é¢‘æ–‡ä»¶è¶…è¿‡ 100 MBï¼Œæ— æ³•å®‰å…¨æå–ã€‚');
+  if (signal?.aborted) throw new DOMException('å·²å–æ¶ˆéŸ³è½¨æå–ã€‚', 'AbortError');
+  const AudioContextClass = window.AudioContext;
+  if (!AudioContextClass) throw new Error('å½“å‰æ¡Œé¢è¿è¡ŒçŽ¯å¢ƒæ²¡æœ‰å¯ç”¨çš„éŸ³é¢‘è§£ç å™¨ã€‚');
+  const context = new AudioContextClass();
+  let decoded: AudioBuffer;
+  try {
+    onProgress('æ­£åœ¨è¯»å–å¹¶è§£ç  MP4 éŸ³è½¨â€¦');
+    const input = await blob.arrayBuffer();
+    decoded = await context.decodeAudioData(input);
+  } catch (error) {
+    throw new Error(`æœªå‘çŽ°å¯è¯»å–çš„éŸ³è½¨ï¼Œæˆ–è§†é¢‘ä½¿ç”¨äº†å½“å‰æ’­æ”¾å™¨ä¸æ”¯æŒçš„ç¼–ç ã€‚${error instanceof Error ? ` ${error.message}` : ''}`);
+  } finally {
+    await context.close().catch(() => {});
+  }
+  if (signal?.aborted) throw new DOMException('å·²å–æ¶ˆéŸ³è½¨æå–ã€‚', 'AbortError');
+  if (!decoded.length || !decoded.numberOfChannels) throw new Error('è§†é¢‘ä¸­æ²¡æœ‰å¯æå–çš„éŸ³è½¨ã€‚');
+  const channels = Math.min(2, decoded.numberOfChannels);
+  const dataBytes = decoded.length * channels * 2;
+  if (!Number.isSafeInteger(dataBytes) || dataBytes > 100 * 1024 * 1024 - 44) throw new Error('æå–åŽçš„ WAV å°†è¶…è¿‡å•ä¸ªç´ æ 100 MB çš„ä¸Šé™ï¼Œå·²åœæ­¢ä»¥ä¿æŠ¤å†…å­˜ã€‚');
+  if (decoded.duration > 60 * 60) throw new Error('è§†é¢‘è¶…è¿‡ 60 åˆ†é’Ÿï¼Œå½“å‰ç‰ˆæœ¬æš‚ä¸æå–ã€‚');
+  const wav = await encodeWav(decoded, channels, signal, onProgress);
+  const baseName = name.replace(/\.mp4$/i, '') || 'MP4éŸ³è½¨';
+  return new File([wav], `${baseName}.wav`, { type: 'audio/wav' });
+}
+
+export async function encodeWav(audio: AudioBuffer, channelCount = Math.min(2, audio.numberOfChannels), signal?: AbortSignal, onProgress: Progress = () => {}): Promise<ArrayBuffer> {
+  const channels = Math.min(2, Math.max(1, channelCount));
+  const sampleRate = audio.sampleRate;
+  const dataBytes = audio.length * channels * 2;
+  const output = new ArrayBuffer(44 + dataBytes);
+  const view = new DataView(output);
+  writeAscii(view, 0, 'RIFF'); view.setUint32(4, 36 + dataBytes, true); writeAscii(view, 8, 'WAVE');
+  writeAscii(view, 12, 'fmt '); view.setUint32(16, 16, true); view.setUint16(20, 1, true);
+  view.setUint16(22, channels, true); view.setUint32(24, sampleRate, true);
+  view.setUint32(28, sampleRate * channels * 2, true); view.setUint16(32, channels * 2, true); view.setUint16(34, 16, true);
+  writeAscii(view, 36, 'data'); view.setUint32(40, dataBytes, true);
+  const sourceChannels = Array.from({ length: audio.numberOfChannels }, (_, index) => audio.getChannelData(index));
+  const chunkFrames = Math.max(1, sampleRate);
+  for (let start = 0; start < audio.length; start += chunkFrames) {
+    if (signal?.aborted) throw new DOMException('å·²å–æ¶ˆéŸ³è½¨æå–ã€‚', 'AbortError');
+    const end = Math.min(audio.length, start + chunkFrames);
+    let offset = 44 + start * channels * 2;
+    for (let frame = start; frame < end; frame += 1) {
+      for (let channel = 0; channel < channels; channel += 1) {
+        let sample: number;
+        if (audio.numberOfChannels <= 2) sample = sourceChannels[channel][frame];
+        else {
+          sample = 0;
+          for (let source = 0; source < audio.numberOfChannels; source += 1) sample += sourceChannels[source][frame] / audio.numberOfChannels;
+        }
+        const clipped = Math.max(-1, Math.min(1, sample));
+        view.setInt16(offset, clipped < 0 ? clipped * 0x8000 : clipped * 0x7fff, true);
+        offset += 2;
+      }
+    }
+    onProgress(`æ­£åœ¨å°è£… WAVâ€¦ ${Math.round(end / audio.length * 100)}%`);
+    await new Promise<void>((resolve) => setTimeout(resolve, 0));
+  }
+  return output;
+}
+
+function writeAscii(view: DataView, offset: number, value: string) {
+  for (let index = 0; index < value.length; index += 1) view.setUint8(offset + index, value.charCodeAt(index));
+}
